@@ -1,11 +1,10 @@
 import httpx
-from base64 import b64encode, encode
-#from dotenv import load_dotenv, find_dotenv  #testing
+from dotenv import load_dotenv, find_dotenv  #testing
 import os
 
 
 #testing
-#load_dotenv(find_dotenv())
+load_dotenv(find_dotenv())
 
 
 REFRESH_TOKEN = os.environ.get("REFRESH_TOKEN").strip()
@@ -67,7 +66,7 @@ def get_recently_played_tracks(access_token):
 
 def main():
     token = get_refresh_token()
-    userinfo = get_user_info(token)    
+    userinfo = get_user_info(token)     
     tracks = get_recently_played_tracks(token) 
     tracks_played = []
 
@@ -84,6 +83,10 @@ def main():
     with open("README.md","w") as file:
         file.write("# github-actions-spotify-recent-tracks\n")
         file.write("muestro las ultimas canciones de mi cuenta spotify usando github actions\n")
+        file.write("# Info de mi Cuenta\n")
+        file.write(f"Nombre: **{userinfo['display_name']}**\n")
+        file.write(f"[Link cuenta spotify] ({userinfo['external_urls']['spotify']})\n")
+        file.write("")
         file.write("# Canciones:\n")
         file.write("\n")
         for track in tracks_played:
