@@ -2,9 +2,18 @@
 muestro las ultimas canciones de mi cuenta spotify usando github actions
 # Info de mi Cuenta
 Nombre: **lotario1999**
-[Link cuenta spotify] (https://open.spotify.com/user/lotario1999)
+[Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Sunshine (Adagio in D Minor)** - John Murphy Album: Sunshine (Adagio in D Minor)
+- **Dr. Ford** - Ramin Djawadi Album: Westworld: Season 1 (Music from the HBO Series)
+- **"We're Not Programs, GERTY, We're People"** - Clint Mansell Album: Moon (Original Score)
+- **Justin’s Theme** - Jeff Russo Album: The Man Who Fell to Earth: Themes and Sketches (Original Series Soundtrack)
+- **Love** - Mica Levi Album: Under The Skin (Original Soundtrack Album)
+- **Endings** - Michael McCann Album: Deus Ex: Human Revolution (Original Soundtrack)
+- **Main Menu** - Michael McCann Album: Deus Ex: Human Revolution (Original Soundtrack)
+- **Icarus - Main Theme** - Michael McCann Album: Deus Ex: Human Revolution (Original Soundtrack)
+- **Subwoofer Lullaby** - C418 Album: Minecraft - Volume Alpha
 - **Door** - C418 Album: Minecraft - Volume Alpha
 - **Key** - C418 Album: Minecraft - Volume Alpha
 - **My Favourite Game** - The Cardigans Album: Gran Turismo (Remastered)
@@ -16,12 +25,3 @@ Nombre: **lotario1999**
 - **Caminar Sola** - Julieta Venegas Album: Caminar Sola
 - **Rock It for Me** - Caravan Palace Album: Panic
 - **Pressure** - Billy Joel Album: The Nylon Curtain
-- **Fuel** - Metallica Album: Reload
-- **I Think I'm Paranoid - 2018 - Remaster** - Garbage Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-- **Special - 2018 - Remaster** - Garbage Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-- **Down By The Water** - PJ Harvey Album: To Bring You My Love
-- **Beetlebum - 2012 Remaster** - Blur Album: Blur (Special Edition)
-- **Ungodly Fruit** - Wax Tailor Album: Tales of the Forgotten Melodies
-- **Glory Box** - Portishead Album: Dummy
-- **It Could Be Sweet** - Portishead Album: Dummy
-- **Strangers** - Portishead Album: Dummy
