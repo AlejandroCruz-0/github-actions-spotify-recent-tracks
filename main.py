@@ -1,8 +1,8 @@
 import httpx
 from base64 import b64encode, encode
-#from dotenv import load_dotenv, find_dotenv  #for test
+#from dotenv import load_dotenv, find_dotenv  #testing
 import os
-import json
+
 
 #testing
 #load_dotenv(find_dotenv())
@@ -13,19 +13,7 @@ CLIENT_ID = os.environ.get("CLIENT_ID").strip()
 CLIENT_SECRET = os.environ.get("CLIENT_SECRET").strip()
 
 
-def get_refresh_token():
-    encoded_bearer = b64encode((CLIENT_ID + ":" + CLIENT_SECRET).encode("ascii"))
-    """ payload = {    
-    'grant_type': 'refresh_token',
-    'refresh_token': REFRESH_TOKEN,
-    'json': True,
-  }
-
-  headers = {          
-    "Authorization":f"Basic {encoded_bearer}",
-    'Content-Type':'application/x-www-form-urlencoded',
-    }
-    """
+def get_refresh_token():    
     data = {
         "grant_type": "refresh_token",
         "refresh_token": REFRESH_TOKEN,
@@ -85,7 +73,7 @@ def main():
 
     
     for track in tracks['items']:
-        track_name = track['track']['name']
+        track_name = f"**{track['track']['name']}**"
         track_artists = [x['name']  for x in track['track']['artists']]
         track_album = track['track']['album']['name']
         full_track_info = f'{track_name} - {"|".join(track_artists)} Album: {track_album}'
@@ -99,7 +87,7 @@ def main():
         file.write("# Canciones:\n")
         file.write("\n")
         for track in tracks_played:
-            file.write(f"{track}\n")
+            file.write(f"- {track}\n")
 
 
 
