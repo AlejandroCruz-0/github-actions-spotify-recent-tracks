@@ -85,7 +85,7 @@ def main():
         file.write("muestro las ultimas canciones de mi cuenta spotify usando github actions\n")
         file.write("# Info de mi Cuenta\n")
         file.write(f"Nombre: **{userinfo['display_name']}**\n")
-        file.write(f"[Link cuenta spotify] ({userinfo['external_urls']['spotify']})\n")
+        file.write(f"[Link perfil spotify]({userinfo['external_urls']['spotify']})\n")
         file.write("")
         file.write("# Canciones:\n")
         file.write("\n")
