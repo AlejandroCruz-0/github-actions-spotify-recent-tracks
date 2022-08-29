@@ -2,6 +2,10 @@
 muestro las ultimas canciones de mi cuenta spotify usando github actions
 # Canciones:
 
+50 Ways to Leave Your Lover - Paul Simon Album: Still Crazy After All These Years
+The Gambler - susie wilkins|Adele Roberts Album: Raw Americana
+Meaner Than The Sea - Graham Coxon Album: The End of The F***ing World 2 (Original Songs and Score)
+You're Dead - Norma Tanega Album: Walkin' My Cat Named Dog
 Congregation - Low Album: Ones and Sixes
 Holding On - Aloboi Album: Holding On
 Holding On - Aloboi Album: Holding On
@@ -18,7 +22,3 @@ Congregation - Low Album: Ones and Sixes
 Don't Say You Love Me - Free Album: Fire And Water
 Remember - Free Album: Fire And Water
 Oh I Wept - Free Album: Fire And Water
-Time Deer - Bent Knee Album: Land Animal
-Land Animal - Bent Knee Album: Land Animal
-These Hands - Bent Knee Album: Land Animal
-Insides In - Bent Knee Album: Land Animal
