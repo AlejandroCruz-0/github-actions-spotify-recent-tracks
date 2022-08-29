@@ -5,23 +5,23 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
-- **Sunshine (Adagio in D Minor)** - John Murphy Album: Sunshine (Adagio in D Minor)
-- **Dr. Ford** - Ramin Djawadi Album: Westworld: Season 1 (Music from the HBO Series)
-- **"We're Not Programs, GERTY, We're People"** - Clint Mansell Album: Moon (Original Score)
-- **Justin’s Theme** - Jeff Russo Album: The Man Who Fell to Earth: Themes and Sketches (Original Series Soundtrack)
-- **Love** - Mica Levi Album: Under The Skin (Original Soundtrack Album)
-- **Endings** - Michael McCann Album: Deus Ex: Human Revolution (Original Soundtrack)
-- **Main Menu** - Michael McCann Album: Deus Ex: Human Revolution (Original Soundtrack)
-- **Icarus - Main Theme** - Michael McCann Album: Deus Ex: Human Revolution (Original Soundtrack)
-- **Subwoofer Lullaby** - C418 Album: Minecraft - Volume Alpha
-- **Door** - C418 Album: Minecraft - Volume Alpha
-- **Key** - C418 Album: Minecraft - Volume Alpha
-- **My Favourite Game** - The Cardigans Album: Gran Turismo (Remastered)
-- **Rock the Casbah - Remastered** - The Clash Album: Combat Rock (Remastered)
-- **First Love / Late Spring** - Mitski Album: Bury Me At Makeout Creek
-- **Burning Down the House - Live** - Talking Heads Album: Stop Making Sense
-- **The Passenger** - Iggy Pop Album: Lust For Life
-- **Rapto** - Gustavo Cerati Album: Fuerza Natural
-- **Caminar Sola** - Julieta Venegas Album: Caminar Sola
-- **Rock It for Me** - Caravan Palace Album: Panic
-- **Pressure** - Billy Joel Album: The Nylon Curtain
+- **For Whom The Bell Tolls - Remastered** - Metallica Album: Ride The Lightning (Remastered) | 2022-08-29 17:52:58
+- **Something on Your Mind** - Karen Dalton Album: In My Own Time (50th Anniversary Edition) | 2022-08-29 17:42:54
+- **All Gone (Aftermath)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:37:20
+- **Infected** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:36:16
+- **Home** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:34:58
+- **I Know What You Are** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:31:50
+- **The Last of Us (Goodnight)** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:30:29
+- **The Last of Us (Never Again)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:29:36
+- **Smugglers** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:28:34
+- **The Choice** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:26:56
+- **By Any Means** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:25:13
+- **Vanishing Grace (Innocence)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:23:19
+- **All Gone** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:22:23
+- **The Hunters** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:21:10
+- **Vanishing Grace** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:19:08
+- **The Outbreak** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:17:02
+- **Forgotten Memories** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:15:27
+- **The Last of Us** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:14:19
+- **The Hour** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:11:16
+- **The Quarantine Zone (20 Years Later)** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:10:13
