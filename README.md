@@ -5,6 +5,7 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **One** - Metallica Album: ...And Justice For All | 2022-08-29 17:53:16
 - **For Whom The Bell Tolls - Remastered** - Metallica Album: Ride The Lightning (Remastered) | 2022-08-29 17:52:58
 - **Something on Your Mind** - Karen Dalton Album: In My Own Time (50th Anniversary Edition) | 2022-08-29 17:42:54
 - **All Gone (Aftermath)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:37:20
@@ -24,4 +25,3 @@ Nombre: **lotario1999**
 - **Forgotten Memories** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:15:27
 - **The Last of Us** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:14:19
 - **The Hour** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:11:16
-- **The Quarantine Zone (20 Years Later)** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:10:13
