@@ -1,6 +1,8 @@
 import httpx
 from dotenv import load_dotenv, find_dotenv  #testing
 import os
+from datetime import datetime
+import pytz
 
 
 #testing
@@ -62,6 +64,23 @@ def get_recently_played_tracks(access_token):
         print(error)
         exit()
 
+def get_chilean_time(time):
+    #Función para convertir el tiempo UTC sin offset de la propiedad played_at
+    #De la respuesta de la api de Spotify, a tiempo Chileno
+
+    #Mejorar esto
+    year = int(time[:4])
+    month = int(time[5:7])
+    day = int(time[8:10])
+    hour = int(time[11:13])
+    minute = int(time[14:16])
+    second = int(time[17:19])
+
+    #Crear nueva datetime con tiempo utc
+    my_datetime = datetime(year, month, day, hour, minute, second, tzinfo = pytz.utc)
+    #convertir a tiempo chileno
+    my_chile_time = my_datetime.astimezone(pytz.timezone('America/Santiago')).strftime('%Y-%m-%d %H:%M:%S')
+    return my_chile_time
 
 
 def main():
@@ -74,8 +93,9 @@ def main():
     for track in tracks['items']:
         track_name = f"**{track['track']['name']}**"
         track_artists = [x['name']  for x in track['track']['artists']]
-        track_album = track['track']['album']['name']
-        full_track_info = f'{track_name} - {"|".join(track_artists)} Album: {track_album}'
+        track_album = track['track']['album']['name']        
+        played_at = get_chilean_time(track['played_at'])
+        full_track_info = f'{track_name} - {"|".join(track_artists)} Album: {track_album} | {played_at}'
         tracks_played.append(full_track_info)
 
     
