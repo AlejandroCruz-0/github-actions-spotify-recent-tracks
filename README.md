@@ -5,6 +5,9 @@ Nombre: **lotario1999**
 [Link cuenta spotify] (https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Door** - C418 Album: Minecraft - Volume Alpha
+- **Key** - C418 Album: Minecraft - Volume Alpha
+- **My Favourite Game** - The Cardigans Album: Gran Turismo (Remastered)
 - **Rock the Casbah - Remastered** - The Clash Album: Combat Rock (Remastered)
 - **First Love / Late Spring** - Mitski Album: Bury Me At Makeout Creek
 - **Burning Down the House - Live** - Talking Heads Album: Stop Making Sense
@@ -22,6 +25,3 @@ Nombre: **lotario1999**
 - **Glory Box** - Portishead Album: Dummy
 - **It Could Be Sweet** - Portishead Album: Dummy
 - **Strangers** - Portishead Album: Dummy
-- **Sour Times** - Portishead Album: Dummy
-- **Glory Box** - Portishead Album: Dummy
-- **Fever** - The Black Keys Album: Turn Blue
