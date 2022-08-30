@@ -3,10 +3,23 @@ from dotenv import load_dotenv, find_dotenv  #testing
 import os
 from datetime import datetime
 import pytz
-
+import logging
+import logging.handlers
 
 #testing
 load_dotenv(find_dotenv())
+
+logger = logging.getLogger(__name__)
+logger.setLevel(logging.DEBUG)
+logger_file_handler = logging.handlers.RotatingFileHandler(
+    "status.log",
+    maxBytes=1024 * 1024,
+    backupCount=1,
+    encoding="utf8",
+)
+formatter = logging.Formatter("%(asctime)s - %(name)s - %(levelname)s - %(message)s")
+logger_file_handler.setFormatter(formatter)
+logger.addHandler(logger_file_handler)
 
 
 REFRESH_TOKEN = os.environ.get("REFRESH_TOKEN").strip()
@@ -31,6 +44,7 @@ def get_refresh_token():
 
     except httpx.HTTPStatusError as error:
         print(error)
+        logger.error(error)
         exit()
 
 
@@ -47,6 +61,7 @@ def get_user_info(access_token):
 
     except httpx.HTTPStatusError as error:
         print(error)
+        logger.error(error)
         exit()
 
 
@@ -62,25 +77,31 @@ def get_recently_played_tracks(access_token):
 
     except httpx.HTTPStatusError as error:
         print(error)
+        logger.error(error)
         exit()
 
 def get_chilean_time(time):
     #Función para convertir el tiempo UTC sin offset de la propiedad played_at
     #De la respuesta de la api de Spotify, a tiempo Chileno
 
-    #Mejorar esto
-    year = int(time[:4])
-    month = int(time[5:7])
-    day = int(time[8:10])
-    hour = int(time[11:13])
-    minute = int(time[14:16])
-    second = int(time[17:19])
+    try:
+        #Mejorar esto
+        year = int(time[:4])
+        month = int(time[5:7])
+        day = int(time[8:10])
+        hour = int(time[11:13])
+        minute = int(time[14:16])
+        second = int(time[17:19])
 
-    #Crear nueva datetime con tiempo utc
-    my_datetime = datetime(year, month, day, hour, minute, second, tzinfo = pytz.utc)
-    #convertir a tiempo chileno
-    my_chile_time = my_datetime.astimezone(pytz.timezone('America/Santiago')).strftime('%Y-%m-%d %H:%M:%S')
-    return my_chile_time
+        #Crear nueva datetime con tiempo utc
+        my_datetime = datetime(year, month, day, hour, minute, second, tzinfo = pytz.utc)
+        #convertir a tiempo chileno
+        my_chile_time = my_datetime.astimezone(pytz.timezone('America/Santiago')).strftime('%Y-%m-%d %H:%M:%S')
+        return my_chile_time
+    except Exception as error:
+        logger.error(error)
+        exit
+            
 
 
 def main():
@@ -112,7 +133,7 @@ def main():
         for track in tracks_played:
             file.write(f"- {track}\n")
 
-
+    logger.info("Operación completada")
 
 
 if __name__ == "__main__":
