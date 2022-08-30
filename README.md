@@ -5,6 +5,7 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Por Qué No Se Van** - Los Prisioneros Album: Pateando Piedras | 2022-08-30 16:57:04
 - **Virtua Mima** - Satoshi Kon Album: Perfect Blue | 2022-08-30 16:16:47
 - **太陽がまた輝くとき (幽☆遊☆白書)** - Hiro Takahashi Album: 微笑みの爆弾/アンバランスなkiss をして | 2022-08-30 16:16:45
 - **砂糖玉の月** - yanaginagi Album: here and there/砂糖玉の月 | 2022-08-30 16:11:19
@@ -24,4 +25,3 @@ Nombre: **lotario1999**
 - **50 Ways to Leave Your Lover** - Paul Simon Album: Still Crazy After All These Years | 2022-08-30 14:26:44
 - **Relight My Fire - Single Version** - Dan Hartman Album: 70s Gems | 2022-08-30 14:23:05
 - **Holding On** - Aloboi Album: Holding On | 2022-08-30 11:37:10
-- **The Well** - Bent Knee Album: Land Animal | 2022-08-30 11:35:37
