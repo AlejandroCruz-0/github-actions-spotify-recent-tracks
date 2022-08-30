@@ -5,6 +5,10 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 10:32:17
+- **All Right Now** - Free Album: Fire And Water | 2022-08-30 10:21:43
+- **Don't Say You Love Me** - Free Album: Fire And Water | 2022-08-30 10:16:12
+- **Remember** - Free Album: Fire And Water | 2022-08-30 10:10:06
 - **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 10:05:41
 - **Three of a Perfect Pair** - King Crimson Album: Three of a Perfect Pair | 2022-08-29 20:50:20
 - **Millersdale** - William Doyle Album: Your Wilderness Revisited | 2022-08-29 20:50:16
@@ -21,7 +25,3 @@ Nombre: **lotario1999**
 - **Something on Your Mind** - Karen Dalton Album: In My Own Time (50th Anniversary Edition) | 2022-08-29 17:42:54
 - **All Gone (Aftermath)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:37:20
 - **Infected** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:36:16
-- **Home** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:34:58
-- **I Know What You Are** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:31:50
-- **The Last of Us (Goodnight)** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:30:29
-- **The Last of Us (Never Again)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:29:36
