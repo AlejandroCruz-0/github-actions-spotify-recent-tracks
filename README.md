@@ -5,6 +5,8 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Millersdale** - William Doyle Album: Your Wilderness Revisited | 2022-08-29 20:50:16
+- **Hand in My Pocket - 2015 Remaster** - Alanis Morissette Album: Jagged Little Pill (2015 Remaster) | 2022-08-29 19:36:16
 - **You Oughta Know - 2015 Remaster** - Alanis Morissette Album: Jagged Little Pill (2015 Remaster) | 2022-08-29 19:35:42
 - **Ironic - 2015 Remaster** - Alanis Morissette Album: Jagged Little Pill (2015 Remaster) | 2022-08-29 19:31:33
 - **High and Dry** - Radiohead Album: The Bends | 2022-08-29 19:26:32
@@ -23,5 +25,3 @@ Nombre: **lotario1999**
 - **The Last of Us (Never Again)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:29:36
 - **Smugglers** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:28:34
 - **The Choice** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:26:56
-- **By Any Means** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:25:13
-- **Vanishing Grace (Innocence)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:23:19
