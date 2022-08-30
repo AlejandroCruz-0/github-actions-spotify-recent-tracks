@@ -5,6 +5,13 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **You Oughta Know - 2015 Remaster** - Alanis Morissette Album: Jagged Little Pill (2015 Remaster) | 2022-08-29 19:35:42
+- **Ironic - 2015 Remaster** - Alanis Morissette Album: Jagged Little Pill (2015 Remaster) | 2022-08-29 19:31:33
+- **High and Dry** - Radiohead Album: The Bends | 2022-08-29 19:26:32
+- **Save Me** - Aimee Mann Album: Magnolia (Music from the Motion Picture) | 2022-08-29 19:22:14
+- **Stolen Car** - Beth Orton Album: Central Reservation | 2022-08-29 19:17:39
+- **First Love / Late Spring** - Mitski Album: Bury Me At Makeout Creek | 2022-08-29 19:11:39
+- **Oh I Wept** - Free Album: Fire And Water | 2022-08-29 19:07:00
 - **One** - Metallica Album: ...And Justice For All | 2022-08-29 17:53:16
 - **For Whom The Bell Tolls - Remastered** - Metallica Album: Ride The Lightning (Remastered) | 2022-08-29 17:52:58
 - **Something on Your Mind** - Karen Dalton Album: In My Own Time (50th Anniversary Edition) | 2022-08-29 17:42:54
@@ -18,10 +25,3 @@ Nombre: **lotario1999**
 - **The Choice** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:26:56
 - **By Any Means** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:25:13
 - **Vanishing Grace (Innocence)** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:23:19
-- **All Gone** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:22:23
-- **The Hunters** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:21:10
-- **Vanishing Grace** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:19:08
-- **The Outbreak** - Gustavo Santaolalla|Alan Umstead Album: The Last of Us | 2022-08-29 17:17:02
-- **Forgotten Memories** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:15:27
-- **The Last of Us** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:14:19
-- **The Hour** - Gustavo Santaolalla Album: The Last of Us | 2022-08-29 17:11:16
