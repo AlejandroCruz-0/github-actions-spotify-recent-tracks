@@ -5,6 +5,15 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Ningyo Hime** - Rie Tanaka Album: Chobits New Ending Theme Ningyo Hime | 2022-08-30 16:02:20
+- **You're Not Here** - Akira Yamaoka Album: SILENT HILL3 (Original Soundtrack) | 2022-08-30 15:58:15
+- **Over** - Portishead Album: Portishead | 2022-08-30 15:53:00
+- **Half Day Closing** - Portishead Album: Portishead | 2022-08-30 15:49:04
+- **Undenied** - Portishead Album: Portishead | 2022-08-30 15:45:16
+- **All Mine** - Portishead Album: Portishead | 2022-08-30 15:40:55
+- **Mourning Air** - Portishead Album: Portishead | 2022-08-30 15:29:40
+- **Glory Box** - Portishead Album: Dummy | 2022-08-30 15:23:45
+- **White Room** - Cream Album: Wheels Of Fire | 2022-08-30 14:36:45
 - **Green Onions** - Booker T. & the M.G.'s Album: Green Onions | 2022-08-30 14:34:51
 - **One - Single Version** - Three Dog Night Album: Three Dog Night | 2022-08-30 14:31:54
 - **Pink Moon** - Nick Drake Album: Pink Moon | 2022-08-30 14:28:48
@@ -16,12 +25,3 @@ Nombre: **lotario1999**
 - **Heavy Load** - Free Album: Fire And Water | 2022-08-30 11:27:04
 - **Pjanoo - Club Mix** - Eric Prydz Album: Pjanoo | 2022-08-30 11:21:43
 - **Terror Bird** - Bent Knee Album: Land Animal | 2022-08-30 11:14:13
-- **Fever** - The Black Keys Album: Turn Blue | 2022-08-30 11:10:03
-- **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 10:32:17
-- **All Right Now** - Free Album: Fire And Water | 2022-08-30 10:21:43
-- **Don't Say You Love Me** - Free Album: Fire And Water | 2022-08-30 10:16:12
-- **Remember** - Free Album: Fire And Water | 2022-08-30 10:10:06
-- **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 10:05:41
-- **Three of a Perfect Pair** - King Crimson Album: Three of a Perfect Pair | 2022-08-29 20:50:20
-- **Millersdale** - William Doyle Album: Your Wilderness Revisited | 2022-08-29 20:50:16
-- **Hand in My Pocket - 2015 Remaster** - Alanis Morissette Album: Jagged Little Pill (2015 Remaster) | 2022-08-29 19:36:16
