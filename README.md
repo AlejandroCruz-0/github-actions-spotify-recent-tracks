@@ -5,6 +5,10 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Virtua Mima** - Satoshi Kon Album: Perfect Blue | 2022-08-30 16:16:47
+- **太陽がまた輝くとき (幽☆遊☆白書)** - Hiro Takahashi Album: 微笑みの爆弾/アンバランスなkiss をして | 2022-08-30 16:16:45
+- **砂糖玉の月** - yanaginagi Album: here and there/砂糖玉の月 | 2022-08-30 16:11:19
+- **JUST COMMUNICATION** - TWO-MIX Album: JUST COMMUNICATION | 2022-08-30 16:06:40
 - **Ningyo Hime** - Rie Tanaka Album: Chobits New Ending Theme Ningyo Hime | 2022-08-30 16:02:20
 - **You're Not Here** - Akira Yamaoka Album: SILENT HILL3 (Original Soundtrack) | 2022-08-30 15:58:15
 - **Over** - Portishead Album: Portishead | 2022-08-30 15:53:00
@@ -21,7 +25,3 @@ Nombre: **lotario1999**
 - **Relight My Fire - Single Version** - Dan Hartman Album: 70s Gems | 2022-08-30 14:23:05
 - **Holding On** - Aloboi Album: Holding On | 2022-08-30 11:37:10
 - **The Well** - Bent Knee Album: Land Animal | 2022-08-30 11:35:37
-- **For How Long** - Tycho|Saint Sinner Album: Weather | 2022-08-30 11:30:05
-- **Heavy Load** - Free Album: Fire And Water | 2022-08-30 11:27:04
-- **Pjanoo - Club Mix** - Eric Prydz Album: Pjanoo | 2022-08-30 11:21:43
-- **Terror Bird** - Bent Knee Album: Land Animal | 2022-08-30 11:14:13
