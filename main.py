@@ -113,7 +113,7 @@ def main():
     tracks_played = {}
 
     for id, track in enumerate(tracks["items"]):
-        track_name = f"**{track['track']['name']}**"
+        track_name = track["track"]["name"]
         track_artists = [x["name"] for x in track["track"]["artists"]]
         track_album = track["track"]["album"]["name"]
         played_at = get_chilean_time(track["played_at"])
@@ -138,15 +138,16 @@ def main():
         file.write("# Canciones:\n")
         file.write("\n")
         for id, track in tracks_played.items():
+            # file.write(" Canción:\n")
+            file.write(f"# {track['track_name']}-{'|'.join(track['track_artists'])}\n")
+            # file.write(f"{'|'.join(track['track_artists'])}\n")
             file.write(
-                f"# Canción: **{track['track_name']}** - **{'|'.join(track['track_artists'])}**\n"
+                f"![Foto del album: {track['track_album']}]({track['album_image']})"
             )
-            file.write(
-                f"![Foto del album: {track['track_album']}]({track['album_image']})\n"
-            )
-            file.write(f"Album: {track['track_album']}\n")
-            file.write(f"Tiempo de reproducción: {track['played_at']}\n")
-            file.write("_________________________________________________")
+            file.write("\n")
+            file.write(f"## Album: {track['track_album']}\n")
+            file.write(f"### Tiempo de reproducción: {track['played_at']}\n")
+            file.write("\n")
 
     logger.info("Operación completada")
 
