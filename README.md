@@ -5,6 +5,10 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Worth It** - Faith and Freedom Album: Worth It | 2022-08-31 12:06:45
+- **Dynasties and Dystopia (from the series Arcane League of Legends)** - Denzel Curry|Gizzle|Bren Joy Album: Arcane League of Legends (Soundtrack from the Animated Series) | 2022-08-31 12:03:19
+- **Remember** - Free Album: Fire And Water | 2022-08-31 11:14:53
+- **Oh I Wept** - Free Album: Fire And Water | 2022-08-31 11:14:42
 - **Remember** - Free Album: Fire And Water | 2022-08-30 20:08:18
 - **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 19:53:09
 - **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 19:48:17
@@ -21,7 +25,3 @@ Nombre: **lotario1999**
 - **Half Day Closing** - Portishead Album: Portishead | 2022-08-30 15:49:04
 - **Undenied** - Portishead Album: Portishead | 2022-08-30 15:45:16
 - **All Mine** - Portishead Album: Portishead | 2022-08-30 15:40:55
-- **Mourning Air** - Portishead Album: Portishead | 2022-08-30 15:29:40
-- **Glory Box** - Portishead Album: Dummy | 2022-08-30 15:23:45
-- **White Room** - Cream Album: Wheels Of Fire | 2022-08-30 14:36:45
-- **Green Onions** - Booker T. & the M.G.'s Album: Green Onions | 2022-08-30 14:34:51
