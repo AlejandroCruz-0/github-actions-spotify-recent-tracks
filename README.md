@@ -5,6 +5,7 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Remember** - Free Album: Fire And Water | 2022-08-30 20:08:18
 - **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 19:53:09
 - **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 19:48:17
 - **Gaze** - AireLoosh Album: EX MEDIAS, Vol. II | 2022-08-30 19:18:10
@@ -24,4 +25,3 @@ Nombre: **lotario1999**
 - **Glory Box** - Portishead Album: Dummy | 2022-08-30 15:23:45
 - **White Room** - Cream Album: Wheels Of Fire | 2022-08-30 14:36:45
 - **Green Onions** - Booker T. & the M.G.'s Album: Green Onions | 2022-08-30 14:34:51
-- **One - Single Version** - Three Dog Night Album: Three Dog Night | 2022-08-30 14:31:54
