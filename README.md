@@ -5,6 +5,10 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+- **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 19:53:09
+- **Oh I Wept** - Free Album: Fire And Water | 2022-08-30 19:48:17
+- **Gaze** - AireLoosh Album: EX MEDIAS, Vol. II | 2022-08-30 19:18:10
+- **What Could Have Been feat. Ray Chen (from the series Arcane League of Legends)** - Sting|Ray Chen Album: Arcane League of Legends (Soundtrack from the Animated Series) | 2022-08-30 19:17:59
 - **Por Qué No Se Van** - Los Prisioneros Album: Pateando Piedras | 2022-08-30 16:57:04
 - **Virtua Mima** - Satoshi Kon Album: Perfect Blue | 2022-08-30 16:16:47
 - **太陽がまた輝くとき (幽☆遊☆白書)** - Hiro Takahashi Album: 微笑みの爆弾/アンバランスなkiss をして | 2022-08-30 16:16:45
@@ -21,7 +25,3 @@ Nombre: **lotario1999**
 - **White Room** - Cream Album: Wheels Of Fire | 2022-08-30 14:36:45
 - **Green Onions** - Booker T. & the M.G.'s Album: Green Onions | 2022-08-30 14:34:51
 - **One - Single Version** - Three Dog Night Album: Three Dog Night | 2022-08-30 14:31:54
-- **Pink Moon** - Nick Drake Album: Pink Moon | 2022-08-30 14:28:48
-- **50 Ways to Leave Your Lover** - Paul Simon Album: Still Crazy After All These Years | 2022-08-30 14:26:44
-- **Relight My Fire - Single Version** - Dan Hartman Album: 70s Gems | 2022-08-30 14:23:05
-- **Holding On** - Aloboi Album: Holding On | 2022-08-30 11:37:10
