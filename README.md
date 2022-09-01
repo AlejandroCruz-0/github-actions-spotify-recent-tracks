@@ -13,7 +13,52 @@ Nombre: **lotario1999**
 
 
 
-# **Special - 2018 - Remaster** Garbage
+# **Déjate Caer** / Los Tres
+
+![Foto del album: La Espada & la Pared](https://i.scdn.co/image/ab67616d00001e0278310de37af0875569acc411)
+
+**Album:** La Espada & la Pared
+
+📅 2022-09-01 13:37:07
+
+
+# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
+
+![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
+
+**Album:** Reluciente, Rechinante y Aterciopelado
+
+📅 2022-09-01 13:32:40
+
+
+# **Me Van a Matar** / Julieta Venegas
+
+![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
+
+**Album:** Escena Alterlatina
+
+📅 2022-09-01 13:27:48
+
+
+# **Rapto** / Gustavo Cerati
+
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
+
+**Album:** Fuerza Natural
+
+📅 2022-09-01 13:23:47
+
+
+# **Hammering in My Head - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-01 12:43:28
+
+
+# **Special - 2018 - Remaster** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
 
@@ -22,7 +67,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:43:02
 
 
-# **Road** Nick Drake
+# **Road** / Nick Drake
 
 ![Foto del album: Pink Moon](https://i.scdn.co/image/ab67616d00001e02e369195caf5d169bf5e9eafc)
 
@@ -31,7 +76,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:21:45
 
 
-# **I Didn't Understand** Elliott Smith
+# **I Didn't Understand** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
@@ -40,7 +85,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:20:23
 
 
-# **Everybody Cares, Everybody Understands** Elliott Smith
+# **Everybody Cares, Everybody Understands** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
@@ -49,7 +94,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:18:05
 
 
-# **A Question Mark** Elliott Smith
+# **A Question Mark** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
@@ -58,7 +103,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:13:39
 
 
-# **Bottle Up And Explode!** Elliott Smith
+# **Bottle Up And Explode!** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
@@ -67,7 +112,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:10:56
 
 
-# **Waltz #2 (XO)** Elliott Smith
+# **Waltz #2 (XO)** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
@@ -76,7 +121,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 12:07:26
 
 
-# **Holy Ghost** Bent Knee
+# **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
@@ -85,7 +130,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:31:31
 
 
-# **Holding On** Aloboi
+# **Holding On** / Aloboi
 
 ![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
@@ -94,7 +139,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:29:53
 
 
-# **For Whom The Bell Tolls - Remastered** Metallica
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
 ![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
@@ -103,7 +148,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:25:49
 
 
-# **Congregation** Low
+# **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
@@ -112,7 +157,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:20:14
 
 
-# **Caminar Sola** Julieta Venegas
+# **Caminar Sola** / Julieta Venegas
 
 ![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
 
@@ -121,7 +166,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:16:21
 
 
-# **Fuel** Metallica
+# **Fuel** / Metallica
 
 ![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
 
@@ -130,7 +175,7 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:13:01
 
 
-# **Congregation** Low
+# **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
@@ -139,55 +184,10 @@ Nombre: **lotario1999**
 📅 2022-09-01 01:08:32
 
 
-# **Sleep Together - 2018 - Remaster** Garbage
+# **Sleep Together - 2018 - Remaster** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
 
 **Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
 
 📅 2022-09-01 01:04:41
-
-
-# **Dumb - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-01 01:00:45
-
-
-# **The Trick Is to Keep Breathing - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-01 00:56:55
-
-
-# **Push It - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-01 00:52:43
-
-
-# **Hammering in My Head - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-01 00:48:40
-
-
-# **Special - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-01 00:43:48
