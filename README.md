@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Special - 2018 - Remaster** Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-01 12:43:02
+
+
+# **Road** Nick Drake
+
+![Foto del album: Pink Moon](https://i.scdn.co/image/ab67616d00001e02e369195caf5d169bf5e9eafc)
+
+**Album:** Pink Moon
+
+📅 2022-09-01 12:21:45
+
+
+# **I Didn't Understand** Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-01 12:20:23
+
+
+# **Everybody Cares, Everybody Understands** Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-01 12:18:05
+
+
+# **A Question Mark** Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-01 12:13:39
+
+
+# **Bottle Up And Explode!** Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-01 12:10:56
+
+
+# **Waltz #2 (XO)** Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-01 12:07:26
+
+
 # **Holy Ghost** Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
 
 📅 2022-09-01 00:43:48
-
-
-# **Hammering in My Head - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-08-31 19:30:12
-
-
-# **Special - 2018 - Remaster** Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-08-31 19:08:16
-
-
-# **Perfect (Exceeder) [Mix Cut] - Vocal Club Mix** Mason|Princess Superstar
-
-![Foto del album: House Top 1000 (Mini Mix 001)](https://i.scdn.co/image/ab67616d00001e0294d7da44f591878796a2253f)
-
-**Album:** House Top 1000 (Mini Mix 001)
-
-📅 2022-08-31 18:46:57
-
-
-# **Pjanoo - Club Mix** Eric Prydz
-
-![Foto del album: Pjanoo](https://i.scdn.co/image/ab67616d00001e02bf82130ce529153496038461)
-
-**Album:** Pjanoo
-
-📅 2022-08-31 18:46:53
-
-
-# **Land Animal** Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-08-31 18:12:30
-
-
-# **These Hands** Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-08-31 18:12:21
-
-
-# **Insides In** Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-08-31 18:06:44
