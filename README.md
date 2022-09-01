@@ -5,6 +5,36 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+# Sleep Together - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-09-01 01:04:41
+
+# Dumb - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-09-01 01:00:45
+
+# The Trick Is to Keep Breathing - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-09-01 00:56:55
+
+# Push It - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-09-01 00:52:43
+
+# Hammering in My Head - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-09-01 00:48:40
+
+# Special - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-09-01 00:43:48
+
 # Hammering in My Head - 2018 - Remaster-Garbage
 ![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
 ## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
@@ -74,34 +104,4 @@ Nombre: **lotario1999**
 ![Foto del album: Worth It](https://i.scdn.co/image/ab67616d00001e0270c28a3915726b1c435e5226)
 ## Album: Worth It
 ### Tiempo de reproducción: 2022-08-31 12:06:45
-
-# Dynasties and Dystopia (from the series Arcane League of Legends)-Denzel Curry|Gizzle|Bren Joy
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-## Album: Arcane League of Legends (Soundtrack from the Animated Series)
-### Tiempo de reproducción: 2022-08-31 12:03:19
-
-# Remember-Free
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-## Album: Fire And Water
-### Tiempo de reproducción: 2022-08-31 11:14:53
-
-# Oh I Wept-Free
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-## Album: Fire And Water
-### Tiempo de reproducción: 2022-08-31 11:14:42
-
-# Remember-Free
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-## Album: Fire And Water
-### Tiempo de reproducción: 2022-08-30 20:08:18
-
-# Oh I Wept-Free
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-## Album: Fire And Water
-### Tiempo de reproducción: 2022-08-30 19:53:09
-
-# Oh I Wept-Free
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-## Album: Fire And Water
-### Tiempo de reproducción: 2022-08-30 19:48:17
 
