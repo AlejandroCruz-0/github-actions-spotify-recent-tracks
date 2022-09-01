@@ -5,6 +5,21 @@ Nombre: **lotario1999**
 [Link perfil spotify](https://open.spotify.com/user/lotario1999)
 # Canciones:
 
+# Hammering in My Head - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-08-31 19:30:12
+
+# Special - 2018 - Remaster-Garbage
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+## Album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+### Tiempo de reproducción: 2022-08-31 19:08:16
+
+# Perfect (Exceeder) [Mix Cut] - Vocal Club Mix-Mason|Princess Superstar
+![Foto del album: House Top 1000 (Mini Mix 001)](https://i.scdn.co/image/ab67616d00001e0294d7da44f591878796a2253f)
+## Album: House Top 1000 (Mini Mix 001)
+### Tiempo de reproducción: 2022-08-31 18:46:57
+
 # Pjanoo - Club Mix-Eric Prydz
 ![Foto del album: Pjanoo](https://i.scdn.co/image/ab67616d00001e02bf82130ce529153496038461)
 ## Album: Pjanoo
@@ -89,19 +104,4 @@ Nombre: **lotario1999**
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 ## Album: Fire And Water
 ### Tiempo de reproducción: 2022-08-30 19:48:17
-
-# Gaze-AireLoosh
-![Foto del album: EX MEDIAS, Vol. II](https://i.scdn.co/image/ab67616d00001e021fcbb8111a0cd6f813e7b113)
-## Album: EX MEDIAS, Vol. II
-### Tiempo de reproducción: 2022-08-30 19:18:10
-
-# What Could Have Been feat. Ray Chen (from the series Arcane League of Legends)-Sting|Ray Chen
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-## Album: Arcane League of Legends (Soundtrack from the Animated Series)
-### Tiempo de reproducción: 2022-08-30 19:17:59
-
-# Por Qué No Se Van-Los Prisioneros
-![Foto del album: Pateando Piedras](https://i.scdn.co/image/ab67616d00001e02e3c716aaec57ac6b73cdd68f)
-## Album: Pateando Piedras
-### Tiempo de reproducción: 2022-08-30 16:57:04
 
