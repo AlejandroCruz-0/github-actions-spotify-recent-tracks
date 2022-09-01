@@ -5,6 +5,7 @@ from datetime import datetime
 import pytz
 import logging
 import logging.handlers
+from create_markdown import tracks_markdown, header_markdown
 
 # testing
 load_dotenv(find_dotenv())
@@ -127,27 +128,13 @@ def main():
         }
 
     with open("README.md", "w") as file:
-        file.write("# github-actions-spotify-recent-tracks\n")
-        file.write(
-            "muestro las ultimas canciones de mi cuenta spotify usando github actions\n"
-        )
-        file.write("# Info de mi Cuenta\n")
-        file.write(f"Nombre: **{userinfo['display_name']}**\n")
-        file.write(f"[Link perfil spotify]({userinfo['external_urls']['spotify']})\n")
-        file.write("")
-        file.write("# Canciones:\n")
-        file.write("\n")
+
+        header = header_markdown(userinfo)
+        file.write(header)
+
         for id, track in tracks_played.items():
-            # file.write(" Canción:\n")
-            file.write(f"# {track['track_name']}-{'|'.join(track['track_artists'])}\n")
-            # file.write(f"{'|'.join(track['track_artists'])}\n")
-            file.write(
-                f"![Foto del album: {track['track_album']}]({track['album_image']})"
-            )
-            file.write("\n")
-            file.write(f"## Album: {track['track_album']}\n")
-            file.write(f"### Tiempo de reproducción: {track['played_at']}\n")
-            file.write("\n")
+            markdown = tracks_markdown(track)
+            file.write(markdown)
 
     logger.info("Operación completada")
 
