@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-02 11:58:30
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-02 11:54:23
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-09-02 11:50:59
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-09-02 11:47:45
+
+
+# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
+
+![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
+
+**Album:** INDUSTRY BABY (feat. Jack Harlow)
+
+📅 2022-09-02 11:44:00
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2022-09-02 11:40:28
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-09-02 11:36:44
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-02 11:31:24
+
+
+# **Cumberland Gap** / David Rawlings
+
+![Foto del album: Poor David's Almanack](https://i.scdn.co/image/ab67616d00001e02820cfd36dadb34d48da86b0c)
+
+**Album:** Poor David's Almanack
+
+📅 2022-09-01 22:42:21
+
+
 # **Remember** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** XO
 
 📅 2022-09-01 12:20:23
-
-
-# **Everybody Cares, Everybody Understands** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-01 12:18:05
-
-
-# **A Question Mark** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-01 12:13:39
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-01 12:10:56
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-01 12:07:26
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-09-01 01:31:31
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2022-09-01 01:29:53
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2022-09-01 01:25:49
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-01 01:20:14
-
-
-# **Caminar Sola** / Julieta Venegas
-
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
-
-**Album:** Caminar Sola
-
-📅 2022-09-01 01:16:21
