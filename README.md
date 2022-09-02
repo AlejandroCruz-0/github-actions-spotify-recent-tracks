@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Your Woman** / White Town
+
+![Foto del album: Women In Technology](https://i.scdn.co/image/ab67616d00001e02f1ad059f340b79a88f85ae64)
+
+**Album:** Women In Technology
+
+📅 2022-09-02 18:04:31
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Panic
 
 📅 2022-09-02 11:50:59
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-09-02 11:47:45
