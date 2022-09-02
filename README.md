@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-09-02 18:22:33
+
+
+# **Into The Void** / Nine Inch Nails
+
+![Foto del album: The Fragile](https://i.scdn.co/image/ab67616d00001e0278b860d90b266bfcd7e4c0be)
+
+**Album:** The Fragile
+
+📅 2022-09-02 18:17:06
+
+
+# **Special - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02b327c04c5a212f09383748bc)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2022-09-02 18:12:16
+
+
+# **Frank Sinatra** / CAKE
+
+![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0200df6727e2cfe905baa75c1e)
+
+**Album:** Fashion Nugget
+
+📅 2022-09-02 18:08:33
+
+
 # **Your Woman** / White Town
 
 ![Foto del album: Women In Technology](https://i.scdn.co/image/ab67616d00001e02f1ad059f340b79a88f85ae64)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
 
 📅 2022-09-02 12:16:17
-
-
-# **Don't Say You Love Me** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-02 11:58:47
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-09-02 11:58:30
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-02 11:54:23
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-09-02 11:50:59
