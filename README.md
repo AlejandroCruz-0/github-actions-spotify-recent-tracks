@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Medication - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-02 13:03:57
+
+
 # **When I Grow Up - 2018 - Remaster** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** La Espada & la Pared
 
 📅 2022-09-01 13:37:07
-
-
-# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
-
-![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
-
-**Album:** Reluciente, Rechinante y Aterciopelado
-
-📅 2022-09-01 13:32:40
