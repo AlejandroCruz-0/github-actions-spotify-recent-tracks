@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-02 15:43:07
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-02 15:34:36
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-09-02 15:28:18
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-02 15:17:09
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-02 15:12:43
+
+
 # **Medication - 2018 - Remaster** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2022-09-02 11:31:24
-
-
-# **Cumberland Gap** / David Rawlings
-
-![Foto del album: Poor David's Almanack](https://i.scdn.co/image/ab67616d00001e02820cfd36dadb34d48da86b0c)
-
-**Album:** Poor David's Almanack
-
-📅 2022-09-01 22:42:21
-
-
-# **Remember** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-01 22:31:52
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-01 22:27:26
-
-
-# **Carnaval** / Lucybell
-
-![Foto del album: Viajar](https://i.scdn.co/image/ab67616d00001e02f4114e0a24bc274ddbaf6bc0)
-
-**Album:** Viajar
-
-📅 2022-09-01 13:37:12
-
-
-# **Déjate Caer** / Los Tres
-
-![Foto del album: La Espada & la Pared](https://i.scdn.co/image/ab67616d00001e0278310de37af0875569acc411)
-
-**Album:** La Espada & la Pared
-
-📅 2022-09-01 13:37:07
