@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Fast As You Can** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2022-09-03 09:51:21
+
+
+# **Sound & Color** / Alabama Shakes
+
+![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
+
+**Album:** Sound & Color (Deluxe Edition)
+
+📅 2022-09-03 09:38:43
+
+
+# **Don't Bring Me Down** / Electric Light Orchestra
+
+![Foto del album: Discovery](https://i.scdn.co/image/ab67616d00001e02c18cc9d6fcea1478b1257678)
+
+**Album:** Discovery
+
+📅 2022-09-02 22:15:20
+
+
 # **50 Ways to Leave Your Lover** / Paul Simon
 
 ![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fire And Water
 
 📅 2022-09-02 15:43:07
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-02 15:34:36
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-09-02 15:28:18
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-02 15:17:09
