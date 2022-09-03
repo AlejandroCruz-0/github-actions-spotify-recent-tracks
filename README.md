@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Move On Up - Radio Edit** / Destination
+
+![Foto del album: From Beginning to End](https://i.scdn.co/image/ab67616d00001e0295bbfcbe4b9cdec5cda668ba)
+
+**Album:** From Beginning to End
+
+📅 2022-09-03 10:51:38
+
+
 # **Relight My Fire - Single Version** / Dan Hartman
 
 ![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Reload
 
 📅 2022-09-02 16:22:29
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-02 16:17:59
