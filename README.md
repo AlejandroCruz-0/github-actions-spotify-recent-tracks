@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Relight My Fire - Single Version** / Dan Hartman
+
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+
+**Album:** 70s Gems
+
+📅 2022-09-03 10:38:53
+
+
+# **Teardrop** / José González
+
+![Foto del album: In Our Nature](https://i.scdn.co/image/ab67616d00001e0243a5cf948888c8cde9a3faab)
+
+**Album:** In Our Nature
+
+📅 2022-09-03 09:51:36
+
+
 # **Fast As You Can** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fire And Water
 
 📅 2022-09-02 16:17:59
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-09-02 15:43:25
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-02 15:43:07
