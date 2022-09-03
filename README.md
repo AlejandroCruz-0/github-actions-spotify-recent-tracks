@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Spellbound** / Siouxsie and the Banshees
+
+![Foto del album: Juju](https://i.scdn.co/image/ab67616d00001e022cc7f91bdbd30dd7c408777a)
+
+**Album:** Juju
+
+📅 2022-09-02 20:14:23
+
+
+# **Running Up That Hill (A Deal With God)** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-02 20:11:06
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-02 19:58:50
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-02 19:54:22
+
+
+# **Coffee & TV** / Blur
+
+![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
+
+**Album:** 13
+
+📅 2022-09-02 18:22:34
+
+
 # **Stolen Car** / Beth Orton
 
 ![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
 
 📅 2022-09-02 13:03:57
-
-
-# **When I Grow Up - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-02 12:39:31
-
-
-# **I Think I'm Paranoid - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-02 12:36:06
-
-
-# **Push It - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-02 12:25:13
-
-
-# **Hammering in My Head - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-02 12:21:10
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-02 12:16:17
