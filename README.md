@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2022-09-02 22:00:34
+
+
+# **The Killing Moon** / Echo & the Bunnymen
+
+![Foto del album: Songs to Learn & Sing](https://i.scdn.co/image/ab67616d00001e02f709ceec39345de8ab2dc51c)
+
+**Album:** Songs to Learn & Sing
+
+📅 2022-09-02 21:28:50
+
+
 # **Spellbound** / Siouxsie and the Banshees
 
 ![Foto del album: Juju](https://i.scdn.co/image/ab67616d00001e022cc7f91bdbd30dd7c408777a)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fire And Water
 
 📅 2022-09-02 15:17:09
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-02 15:12:43
-
-
-# **Medication - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-02 13:03:57
