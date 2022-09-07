@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Hot Knife** / Fiona Apple
+
+![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
+
+**Album:** The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)
+
+📅 2022-09-06 20:57:42
+
+
+# **I Do What I Want** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-06 18:50:47
+
+
+# **Paper Bag** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2022-09-06 13:18:25
+
+
+# **Francis Forever** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2022-09-06 10:53:45
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2022-09-06 10:43:31
+
+
+# **Running Up That Hill (A Deal With God)** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-06 10:40:06
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+
+**Album:** Dear Science
+
+📅 2022-09-05 21:29:21
+
+
 # **Nuclear** / Mike Oldfield
 
 ![Foto del album: Man On The Rocks](https://i.scdn.co/image/ab67616d00001e0224d2d2abca78a7ce0e3e15b5)
@@ -103,6 +166,15 @@ Nombre: **lotario1999**
 📅 2022-09-05 20:14:49
 
 
+# **Wicked Ways - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-05 19:08:27
+
+
 # **Special - 2018 - Remaster** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Angels & Devils
 
 📅 2022-09-05 15:39:37
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-05 15:38:12
-
-
-# **Hammering in My Head - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-05 12:42:14
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-05 12:38:21
-
-
-# **Anthem** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
-
-**Album:** The Future
-
-📅 2022-09-05 12:14:06
-
-
-# **Closing Time** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
-
-**Album:** The Future
-
-📅 2022-09-05 12:09:27
-
-
-# **Nevermind** / Leonard Cohen
-
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
-
-**Album:** Popular Problems
-
-📅 2022-09-05 11:44:16
-
-
-# **In My Secret Life** / Leonard Cohen
-
-![Foto del album: Hallelujah & Songs from His Albums](https://i.scdn.co/image/ab67616d00001e022542a2c98c635f59e072a90f)
-
-**Album:** Hallelujah & Songs from His Albums
-
-📅 2022-09-05 11:38:50
-
-
-# **You Want It Darker** / Leonard Cohen
-
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
-
-**Album:** You Want It Darker
-
-📅 2022-09-05 11:21:07
