@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Please Please Please** / Fiona Apple
+
+![Foto del album: Extraordinary Machine](https://i.scdn.co/image/ab67616d00001e0285acb5e0d6230859ff978b79)
+
+**Album:** Extraordinary Machine
+
+📅 2022-09-06 21:30:42
+
+
+# **Oh Well** / Fiona Apple
+
+![Foto del album: Extraordinary Machine](https://i.scdn.co/image/ab67616d00001e0285acb5e0d6230859ff978b79)
+
+**Album:** Extraordinary Machine
+
+📅 2022-09-06 21:27:08
+
+
+# **Window** / Fiona Apple
+
+![Foto del album: Extraordinary Machine](https://i.scdn.co/image/ab67616d00001e0285acb5e0d6230859ff978b79)
+
+**Album:** Extraordinary Machine
+
+📅 2022-09-06 21:23:28
+
+
+# **Cómo Sé** / Julieta Venegas
+
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+
+**Album:** Aqui
+
+📅 2022-09-06 21:15:54
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-09-06 21:12:43
+
+
+# **I Want To Make People Happy - Live at iTunes Originals** / Fiona Apple
+
+![Foto del album: iTunes Originals](https://i.scdn.co/image/ab67616d00001e02477d248dbf1e444166140504)
+
+**Album:** iTunes Originals
+
+📅 2022-09-06 21:08:34
+
+
+# **Tymps (The Sick in the Head Song)** / Fiona Apple
+
+![Foto del album: iTunes Originals](https://i.scdn.co/image/ab67616d00001e02477d248dbf1e444166140504)
+
+**Album:** iTunes Originals
+
+📅 2022-09-06 21:04:29
+
+
+# **iTunes Originals - Live at iTunes Originals** / Fiona Apple
+
+![Foto del album: iTunes Originals](https://i.scdn.co/image/ab67616d00001e02477d248dbf1e444166140504)
+
+**Album:** iTunes Originals
+
+📅 2022-09-06 21:00:25
+
+
+# **Largo** / Fiona Apple
+
+![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
+
+**Album:** The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)
+
+📅 2022-09-06 21:00:21
+
+
 # **Hot Knife** / Fiona Apple
 
 ![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Place Is Home
 
 📅 2022-09-05 20:38:41
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-09-05 20:34:36
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02ad46d68a05aba0576c1a0fcc)
-
-**Album:** <I°_°I>
-
-📅 2022-09-05 20:31:23
-
-
-# **Kamikazee** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-05 20:26:23
-
-
-# **Bottom Of The Deep Blue Sea** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-05 20:22:42
-
-
-# **I Don't Even Care About You** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-05 20:18:50
-
-
-# **Animal** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-05 20:14:49
-
-
-# **Wicked Ways - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-05 19:08:27
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-05 19:04:15
-
-
-# **Fall** / The Bug|Inga Copeland
-
-![Foto del album: Angels & Devils](https://i.scdn.co/image/ab67616d00001e024529bbfce5089708287aac76)
-
-**Album:** Angels & Devils
-
-📅 2022-09-05 15:39:37
