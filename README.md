@@ -13,175 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Please Please Please** / Fiona Apple
+# **Old Town Road - Remix** / Lil Nas X|Billy Ray Cyrus
 
-![Foto del album: Extraordinary Machine](https://i.scdn.co/image/ab67616d00001e0285acb5e0d6230859ff978b79)
+![Foto del album: 7 EP](https://i.scdn.co/image/ab67616d00001e02c0e7bf5cdd630f314f20586a)
 
-**Album:** Extraordinary Machine
+**Album:** 7 EP
 
-📅 2022-09-06 21:30:42
+📅 2022-09-07 19:10:34
 
 
-# **Oh Well** / Fiona Apple
+# **Closing Time** / Leonard Cohen
 
-![Foto del album: Extraordinary Machine](https://i.scdn.co/image/ab67616d00001e0285acb5e0d6230859ff978b79)
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
 
-**Album:** Extraordinary Machine
+**Album:** The Future
 
-📅 2022-09-06 21:27:08
+📅 2022-09-07 19:07:56
 
 
-# **Window** / Fiona Apple
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Extraordinary Machine](https://i.scdn.co/image/ab67616d00001e0285acb5e0d6230859ff978b79)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Extraordinary Machine
+**Album:** Gran Turismo (Remastered)
 
-📅 2022-09-06 21:23:28
-
-
-# **Cómo Sé** / Julieta Venegas
-
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
-
-**Album:** Aqui
-
-📅 2022-09-06 21:15:54
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-09-06 21:12:43
-
-
-# **I Want To Make People Happy - Live at iTunes Originals** / Fiona Apple
-
-![Foto del album: iTunes Originals](https://i.scdn.co/image/ab67616d00001e02477d248dbf1e444166140504)
-
-**Album:** iTunes Originals
-
-📅 2022-09-06 21:08:34
-
-
-# **Tymps (The Sick in the Head Song)** / Fiona Apple
-
-![Foto del album: iTunes Originals](https://i.scdn.co/image/ab67616d00001e02477d248dbf1e444166140504)
-
-**Album:** iTunes Originals
-
-📅 2022-09-06 21:04:29
-
-
-# **iTunes Originals - Live at iTunes Originals** / Fiona Apple
-
-![Foto del album: iTunes Originals](https://i.scdn.co/image/ab67616d00001e02477d248dbf1e444166140504)
-
-**Album:** iTunes Originals
-
-📅 2022-09-06 21:00:25
-
-
-# **Largo** / Fiona Apple
-
-![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
-
-**Album:** The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)
-
-📅 2022-09-06 21:00:21
-
-
-# **Hot Knife** / Fiona Apple
-
-![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
-
-**Album:** The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)
-
-📅 2022-09-06 20:57:42
-
-
-# **I Do What I Want** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-06 18:50:47
-
-
-# **Paper Bag** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2022-09-06 13:18:25
-
-
-# **Francis Forever** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2022-09-06 10:53:45
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2022-09-06 10:43:31
-
-
-# **Running Up That Hill (A Deal With God)** / Kate Bush
-
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
-
-**Album:** Hounds Of Love
-
-📅 2022-09-06 10:40:06
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2022-09-05 21:29:21
-
-
-# **Nuclear** / Mike Oldfield
-
-![Foto del album: Man On The Rocks](https://i.scdn.co/image/ab67616d00001e0224d2d2abca78a7ce0e3e15b5)
-
-**Album:** Man On The Rocks
-
-📅 2022-09-05 20:53:19
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2022-09-05 20:46:21
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2022-09-05 20:42:47
+📅 2022-09-07 19:01:58
 
 
 # **Legendary** / Welshly Arms
@@ -190,4 +46,148 @@ Nombre: **lotario1999**
 
 **Album:** No Place Is Home
 
-📅 2022-09-05 20:38:41
+📅 2022-09-07 18:58:07
+
+
+# **Beetlebum - 2012 Remaster** / Blur
+
+![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
+
+**Album:** Blur (Special Edition)
+
+📅 2022-09-07 18:54:14
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2022-09-07 18:49:09
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2022-09-07 18:45:16
+
+
+# **Kamikazee** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-07 17:48:46
+
+
+# **Bottom Of The Deep Blue Sea** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-07 17:38:40
+
+
+# **I Don't Even Care About You** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-07 17:34:49
+
+
+# **Middle Fingers** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-07 17:31:13
+
+
+# **I Do What I Want** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-07 17:27:37
+
+
+# **Animal** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-07 17:23:59
+
+
+# **BoJack's Theme (Full Length)** / Patrick Carney|Ralph Carney
+
+![Foto del album: BoJack Horseman (Music from the Netflix Original Series)](https://i.scdn.co/image/ab67616d00001e028c71f034556adae8d540c46f)
+
+**Album:** BoJack Horseman (Music from the Netflix Original Series)
+
+📅 2022-09-07 16:49:54
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-07 16:49:26
+
+
+# **Millersdale** / William Doyle
+
+![Foto del album: Your Wilderness Revisited](https://i.scdn.co/image/ab67616d00001e020418a8ca7f5f1c6f46d91a85)
+
+**Album:** Your Wilderness Revisited
+
+📅 2022-09-07 16:45:19
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2022-09-07 16:40:23
+
+
+# **Spellbound** / Siouxsie and the Banshees
+
+![Foto del album: Juju](https://i.scdn.co/image/ab67616d00001e022cc7f91bdbd30dd7c408777a)
+
+**Album:** Juju
+
+📅 2022-09-07 16:21:25
+
+
+# **Running Up That Hill (A Deal With God)** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-07 16:18:09
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2022-09-07 16:13:12
