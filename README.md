@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **The Big Sky - Special Single Mix** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-08 10:43:47
+
+
+# **Hounds Of Love** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-08 10:39:10
+
+
+# **Spellbound** / Siouxsie and the Banshees
+
+![Foto del album: Juju](https://i.scdn.co/image/ab67616d00001e022cc7f91bdbd30dd7c408777a)
+
+**Album:** Juju
+
+📅 2022-09-08 09:16:38
+
+
+# **Running Up That Hill (A Deal With God)** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-08 09:01:33
+
+
+# **I Do What I Want** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2022-09-08 08:55:33
+
+
 # **Old Town Road - Remix** / Lil Nas X|Billy Ray Cyrus
 
 ![Foto del album: 7 EP](https://i.scdn.co/image/ab67616d00001e02c0e7bf5cdd630f314f20586a)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2022-09-07 16:49:26
-
-
-# **Millersdale** / William Doyle
-
-![Foto del album: Your Wilderness Revisited](https://i.scdn.co/image/ab67616d00001e020418a8ca7f5f1c6f46d91a85)
-
-**Album:** Your Wilderness Revisited
-
-📅 2022-09-07 16:45:19
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2022-09-07 16:40:23
-
-
-# **Spellbound** / Siouxsie and the Banshees
-
-![Foto del album: Juju](https://i.scdn.co/image/ab67616d00001e022cc7f91bdbd30dd7c408777a)
-
-**Album:** Juju
-
-📅 2022-09-07 16:21:25
-
-
-# **Running Up That Hill (A Deal With God)** / Kate Bush
-
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
-
-**Album:** Hounds Of Love
-
-📅 2022-09-07 16:18:09
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2022-09-07 16:13:12
