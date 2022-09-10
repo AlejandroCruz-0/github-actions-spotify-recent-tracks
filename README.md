@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Running Up That Hill (A Deal With God)** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-09 10:39:28
+
+
+# **Time Will Come (1967)** / Tol-Puddle Martyrs
+
+![Foto del album: Tol-Puddle Martyrs](https://i.scdn.co/image/ab67616d00001e028c02fc74c1eaf739f4a68836)
+
+**Album:** Tol-Puddle Martyrs
+
+📅 2022-09-09 09:59:43
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-09 09:59:41
+
+
 # **Time Will Come (1967)** / Tol-Puddle Martyrs
 
 ![Foto del album: Tol-Puddle Martyrs](https://i.scdn.co/image/ab67616d00001e028c02fc74c1eaf739f4a68836)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Loner
 
 📅 2022-09-07 17:31:13
-
-
-# **I Do What I Want** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-07 17:27:37
-
-
-# **Animal** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-07 17:23:59
-
-
-# **BoJack's Theme (Full Length)** / Patrick Carney|Ralph Carney
-
-![Foto del album: BoJack Horseman (Music from the Netflix Original Series)](https://i.scdn.co/image/ab67616d00001e028c71f034556adae8d540c46f)
-
-**Album:** BoJack Horseman (Music from the Netflix Original Series)
-
-📅 2022-09-07 16:49:54
