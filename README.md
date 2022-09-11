@@ -13,22 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **Running Up That Hill (A Deal With God)** / Kate Bush
+# **Fever** / The Black Keys
 
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Hounds Of Love
+**Album:** Turn Blue
 
-📅 2022-09-09 10:39:28
+📅 2022-09-10 19:32:59
 
 
-# **Time Will Come (1967)** / Tol-Puddle Martyrs
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Tol-Puddle Martyrs](https://i.scdn.co/image/ab67616d00001e028c02fc74c1eaf739f4a68836)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Tol-Puddle Martyrs
+**Album:** Panic
 
-📅 2022-09-09 09:59:43
+📅 2022-09-10 19:28:56
+
+
+# **Special - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-10 19:24:42
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-09-10 19:20:57
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-09-10 19:15:35
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-10 19:11:04
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-09-10 18:58:03
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-09-10 18:46:33
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-09-10 18:40:59
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-10 18:36:28
 
 
 # **Congregation** / Low
@@ -37,157 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-09-09 09:59:41
+📅 2022-09-10 18:32:01
 
 
-# **Time Will Come (1967)** / Tol-Puddle Martyrs
+# **Libertango** / Grace Jones
 
-![Foto del album: Tol-Puddle Martyrs](https://i.scdn.co/image/ab67616d00001e028c02fc74c1eaf739f4a68836)
+![Foto del album: Hôtel Costes](https://i.scdn.co/image/ab67616d00001e02d92cab266ee9b56df8550fbc)
 
-**Album:** Tol-Puddle Martyrs
+**Album:** Hôtel Costes
 
-📅 2022-09-08 11:17:02
+📅 2022-09-10 17:22:14
 
 
-# **The Big Sky - Special Single Mix** / Kate Bush
+# **Skyfall** / Adele
 
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+![Foto del album: Skyfall](https://i.scdn.co/image/ab67616d00001e022737be35cc5245eef495be90)
 
-**Album:** Hounds Of Love
+**Album:** Skyfall
 
-📅 2022-09-08 10:43:47
+📅 2022-09-10 17:20:49
 
 
-# **Hounds Of Love** / Kate Bush
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Hounds Of Love
+**Album:** The Magnificent Tree
 
-📅 2022-09-08 10:39:10
+📅 2022-09-10 17:15:42
 
 
-# **Spellbound** / Siouxsie and the Banshees
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Juju](https://i.scdn.co/image/ab67616d00001e022cc7f91bdbd30dd7c408777a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Juju
+**Album:** The Magnificent Tree
 
-📅 2022-09-08 09:16:38
+📅 2022-09-10 17:08:41
 
 
-# **Running Up That Hill (A Deal With God)** / Kate Bush
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Hounds Of Love
+**Album:** The Magnificent Tree
 
-📅 2022-09-08 09:01:33
+📅 2022-09-10 16:58:21
 
 
-# **I Do What I Want** / MISSIO
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Loner
+**Album:** The Magnificent Tree
 
-📅 2022-09-08 08:55:33
+📅 2022-09-10 16:54:20
 
 
-# **Old Town Road - Remix** / Lil Nas X|Billy Ray Cyrus
+# **Woman** / Neneh Cherry
 
-![Foto del album: 7 EP](https://i.scdn.co/image/ab67616d00001e02c0e7bf5cdd630f314f20586a)
+![Foto del album: Man](https://i.scdn.co/image/ab67616d00001e02a362c93bc0c3a4aa714aee58)
 
-**Album:** 7 EP
+**Album:** Man
 
-📅 2022-09-07 19:10:34
+📅 2022-09-10 14:13:27
 
 
-# **Closing Time** / Leonard Cohen
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The Future
+**Album:** The Magnificent Tree
 
-📅 2022-09-07 19:07:56
+📅 2022-09-10 13:52:54
 
 
-# **My Favourite Game** / The Cardigans
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** The Magnificent Tree
 
-📅 2022-09-07 19:01:58
-
-
-# **Legendary** / Welshly Arms
-
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
-
-**Album:** No Place Is Home
-
-📅 2022-09-07 18:58:07
-
-
-# **Beetlebum - 2012 Remaster** / Blur
-
-![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
-
-**Album:** Blur (Special Edition)
-
-📅 2022-09-07 18:54:14
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2022-09-07 18:49:09
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2022-09-07 18:45:16
-
-
-# **Kamikazee** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-07 17:48:46
-
-
-# **Bottom Of The Deep Blue Sea** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-07 17:38:40
-
-
-# **I Don't Even Care About You** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-07 17:34:49
-
-
-# **Middle Fingers** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-09-07 17:31:13
+📅 2022-09-10 13:48:36
