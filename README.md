@@ -13,31 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Running Up That Hill (A Deal With God)** / Kate Bush
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Hounds Of Love
+**Album:** Land Animal
 
-📅 2022-09-12 08:53:25
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-09-12 08:52:05
+📅 2022-09-12 13:33:28
 
 
-# **Mad About You** / Hooverphonic
+# **Fuel** / Metallica
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
 
-**Album:** The Magnificent Tree
+**Album:** Reload
 
-📅 2022-09-12 08:48:00
+📅 2022-09-12 13:27:54
 
 
 # **Oh I Wept** / Free
@@ -46,7 +37,88 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-09-12 08:44:02
+📅 2022-09-12 13:23:24
+
+
+# **These Hands** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-09-12 10:35:12
+
+
+# **In Time** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-12 10:35:08
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-12 10:30:24
+
+
+# **Time Deer** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-09-12 10:25:57
+
+
+# **The Passenger** / Iggy Pop
+
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+
+**Album:** Lust For Life
+
+📅 2022-09-12 10:21:36
+
+
+# **Ode to Odd** / 20syl
+
+![Foto del album: 36 (Beats & Types)](https://i.scdn.co/image/ab67616d00001e02872e9ffacf8b5e611710968a)
+
+**Album:** 36 (Beats & Types)
+
+📅 2022-09-12 10:16:52
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2022-09-12 10:14:58
+
+
+# **Relight My Fire - Single Version** / Dan Hartman
+
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+
+**Album:** 70s Gems
+
+📅 2022-09-12 10:10:54
+
+
+# **Special - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-12 10:06:51
 
 
 # **Mad About You** / Hooverphonic
@@ -55,115 +127,52 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-12 01:18:34
+📅 2022-09-12 10:03:03
 
 
-# **Stolen Car** / Beth Orton
+# **Running Up That Hill (A Deal With God)** / Kate Bush
 
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
 
-**Album:** Central Reservation
+**Album:** Hounds Of Love
 
-📅 2022-09-12 00:50:59
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-12 00:45:32
+📅 2022-09-12 09:41:37
 
 
-# **Sour Times** / Portishead
+# **Fever** / The Black Keys
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Dummy
+**Album:** Turn Blue
 
-📅 2022-09-11 20:49:58
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-11 20:49:55
+📅 2022-09-12 09:41:09
 
 
-# **All That Is Thirst** / Pati Yang
+# **Will Do** / TV On The Radio
 
-![Foto del album: Silent Treatment](https://i.scdn.co/image/ab67616d00001e02c9e8498c2917b9395d2afee8)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Silent Treatment
+**Album:** Nine Types of Light
 
-📅 2022-09-11 20:46:05
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2022-09-11 20:42:17
+📅 2022-09-12 09:37:02
 
 
-# **Misses** / Girls In Hawaii
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
-![Foto del album: Everest (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e020f8d16c34548be8eeb9ab610)
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
-**Album:** Everest (Deluxe Edition)
+**Album:** Ride The Lightning (Remastered)
 
-📅 2022-09-11 20:38:37
-
-
-# **Badaboum** / Hooverphonic
-
-![Foto del album: In Wonderland](https://i.scdn.co/image/ab67616d00001e029e99c13f72a625d32358f1c3)
-
-**Album:** In Wonderland
-
-📅 2022-09-11 20:35:01
+📅 2022-09-12 09:33:14
 
 
-# **Libertango** / Grace Jones
+# **Holding On** / Aloboi
 
-![Foto del album: Hôtel Costes](https://i.scdn.co/image/ab67616d00001e02d92cab266ee9b56df8550fbc)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** Hôtel Costes
+**Album:** Holding On
 
-📅 2022-09-11 20:31:43
-
-
-# **Woman** / Neneh Cherry
-
-![Foto del album: Man](https://i.scdn.co/image/ab67616d00001e02a362c93bc0c3a4aa714aee58)
-
-**Album:** Man
-
-📅 2022-09-11 20:27:18
-
-
-# **My Beauty - My Soul Edit 2018** / Beauty Freak|Malee
-
-![Foto del album: Mon amour](https://i.scdn.co/image/ab67616d00001e02132daa865fbc3f801681cbf4)
-
-**Album:** Mon amour
-
-📅 2022-09-11 20:22:47
-
-
-# **A Girl Like You** / Edwyn Collins
-
-![Foto del album: Gorgeous George](https://i.scdn.co/image/ab67616d00001e02583f1300f2b356b42dd231b4)
-
-**Album:** Gorgeous George
-
-📅 2022-09-11 20:19:39
+📅 2022-09-12 09:28:07
 
 
 # **Mad About You** / Hooverphonic
@@ -172,22 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-11 20:15:42
+📅 2022-09-12 09:24:02
 
 
-# **Mad About You** / Hooverphonic
+# **Running Up That Hill (A Deal With God)** / Kate Bush
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
 
-**Album:** The Magnificent Tree
+**Album:** Hounds Of Love
 
-📅 2022-09-11 20:11:01
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-11 20:06:42
+📅 2022-09-12 08:53:25
