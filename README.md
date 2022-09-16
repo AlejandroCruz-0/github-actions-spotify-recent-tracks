@@ -19,6 +19,42 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
+📅 2022-09-16 00:50:56
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-16 00:47:04
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-16 00:42:37
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-09-15 17:19:45
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
 📅 2022-09-15 17:05:29
 
 
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Pure... Alternative 80s
 
 📅 2022-09-15 10:22:15
-
-
-# **Enjoy the Silence** / Depeche Mode|Daniel Miller|Phil Legg
-
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
-
-**Album:** Violator | The 12" Singles
-
-📅 2022-09-15 10:04:35
-
-
-# **N.I.T.A.** / Young Marble Giants
-
-![Foto del album: Colossal Youth (40th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02a7086076d553ae2ea84f9bb3)
-
-**Album:** Colossal Youth (40th Anniversary Edition)
-
-📅 2022-09-15 09:34:51
-
-
-# **Modern Love - 2018 Remaster** / David Bowie
-
-![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
-
-**Album:** Let's Dance (2018 Remaster)
-
-📅 2022-09-15 09:19:35
-
-
-# **Hounds Of Love** / Kate Bush
-
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
-
-**Album:** Hounds Of Love
-
-📅 2022-09-15 09:11:04
