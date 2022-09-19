@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Wake Up - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-18 22:31:31
+
+
+# **Not the Doctor - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-18 22:26:35
+
+
+# **Wake Up - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-18 22:22:42
+
+
+# **Not the Doctor - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-18 22:17:46
+
+
+# **Ironic - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-18 22:13:59
+
+
+# **You Oughta Know - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-18 22:10:09
+
+
+# **Subterranean Homesick Blues** / Bob Dylan
+
+![Foto del album: Bringing It All Back Home](https://i.scdn.co/image/ab67616d00001e026960c5f4eb72f0c06aa92181)
+
+**Album:** Bringing It All Back Home
+
+📅 2022-09-18 22:05:58
+
+
 # **Closing Time** / Leonard Cohen
 
 ![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
@@ -29,6 +92,15 @@ Nombre: **lotario1999**
 **Album:** Still Crazy After All These Years
 
 📅 2022-09-18 20:44:24
+
+
+# **Remember** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-18 20:24:35
 
 
 # **Rock the Casbah - Remastered** / The Clash
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2022-09-18 19:44:04
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2022-09-18 19:39:57
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-09-18 19:35:53
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-18 19:31:23
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-18 19:27:31
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-18 19:23:04
-
-
-# **Caminar Sola** / Julieta Venegas
-
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
-
-**Album:** Caminar Sola
-
-📅 2022-09-18 14:01:59
-
-
-# **Relight My Fire - Single Version** / Dan Hartman
-
-![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
-
-**Album:** 70s Gems
-
-📅 2022-09-18 13:02:03
-
-
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
-
-![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
-
-**Album:** INDUSTRY BABY (feat. Jack Harlow)
-
-📅 2022-09-18 12:58:18
