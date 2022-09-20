@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Wake Up - 2015 Remaster** / Alanis Morissette
+# **Another Life** / Jadu Heart
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: Hyper Romance](https://i.scdn.co/image/ab67616d00001e0271ca4f635950b4f94568ac28)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** Hyper Romance
 
-📅 2022-09-18 22:31:31
+📅 2022-09-19 18:25:46
 
 
-# **Not the Doctor - 2015 Remaster** / Alanis Morissette
+# **House Of Cards** / Radiohead
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: In Rainbows](https://i.scdn.co/image/ab67616d00001e02de3c04b5fc750b68899b20a9)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** In Rainbows
 
-📅 2022-09-18 22:26:35
+📅 2022-09-19 18:21:53
 
 
-# **Wake Up - 2015 Remaster** / Alanis Morissette
+# **Stylo (feat. Mos Def and Bobby Womack)** / Gorillaz|Bobby Womack|Mos Def
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** Plastic Beach
 
-📅 2022-09-18 22:22:42
+📅 2022-09-19 18:16:24
 
 
-# **Not the Doctor - 2015 Remaster** / Alanis Morissette
+# **DLZ** / TV On The Radio
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** Dear Science
 
-📅 2022-09-18 22:17:46
+📅 2022-09-19 18:10:40
 
 
-# **Ironic - 2015 Remaster** / Alanis Morissette
+# **Royals** / Lorde
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: Pure Heroine](https://i.scdn.co/image/ab67616d00001e02187331e276c898d39764cc98)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** Pure Heroine
 
-📅 2022-09-18 22:13:59
+📅 2022-09-19 18:02:27
 
 
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
+# **High Atmosphere** / Ertam
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: High Atmosphere](https://i.scdn.co/image/ab67616d00001e0264f4dcf15efbe096b96013a8)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** High Atmosphere
 
-📅 2022-09-18 22:10:09
+📅 2022-09-19 17:58:58
 
 
-# **Subterranean Homesick Blues** / Bob Dylan
+# **here and there** / yanaginagi
 
-![Foto del album: Bringing It All Back Home](https://i.scdn.co/image/ab67616d00001e026960c5f4eb72f0c06aa92181)
+![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e0214baea007f85002691574977)
 
-**Album:** Bringing It All Back Home
+**Album:** ナッテ
 
-📅 2022-09-18 22:05:58
+📅 2022-09-19 17:47:32
 
 
-# **Closing Time** / Leonard Cohen
+# **I Love You** / Woodkid
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** The Future
+**Album:** The Golden Age
 
-📅 2022-09-18 20:50:37
+📅 2022-09-19 17:42:01
 
 
-# **50 Ways to Leave Your Lover** / Paul Simon
+# **I Love You - Acoustic** / Woodkid
 
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
 
-**Album:** Still Crazy After All These Years
+**Album:** Run Boy Run
 
-📅 2022-09-18 20:44:24
+📅 2022-09-19 17:37:12
 
 
-# **Remember** / Free
+# **I Love You** / Woodkid
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Fire And Water
+**Album:** The Golden Age
 
-📅 2022-09-18 20:24:35
+📅 2022-09-19 17:32:23
 
 
-# **Rock the Casbah - Remastered** / The Clash
+# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
 
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+![Foto del album: Guns for Hire (From the series Arcane League of Legends)](https://i.scdn.co/image/ab67616d00001e025e6ef970ec262844454c6067)
 
-**Album:** Combat Rock (Remastered)
+**Album:** Guns for Hire (From the series Arcane League of Legends)
 
-📅 2022-09-18 20:24:21
+📅 2022-09-19 17:28:32
 
 
-# **Legendary** / Welshly Arms
+# **I Love You - Acoustic** / Woodkid
 
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
 
-**Album:** No Place Is Home
+**Album:** Run Boy Run
 
-📅 2022-09-18 20:20:38
+📅 2022-09-19 15:43:04
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **I Love You** / Woodkid
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Stop Making Sense (Live)
+**Album:** The Golden Age
 
-📅 2022-09-18 20:16:44
+📅 2022-09-19 15:42:53
 
 
-# **Special - 2018 - Remaster** / Garbage
+# **Iron** / Woodkid
 
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+![Foto del album: Iron](https://i.scdn.co/image/ab67616d00001e02cb833e941e1ba35590da5c6b)
 
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+**Album:** Iron
 
-📅 2022-09-18 20:12:38
+📅 2022-09-19 14:44:37
 
 
-# **Rock It for Me** / Caravan Palace
+# **Run Boy Run** / Woodkid
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Panic
+**Album:** The Golden Age
 
-📅 2022-09-18 20:08:54
+📅 2022-09-19 14:29:27
 
 
-# **Running Up That Hill (A Deal With God)** / Kate Bush
+# **Goliath** / Woodkid
 
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
 
-**Album:** Hounds Of Love
+**Album:** Goliath
 
-📅 2022-09-18 20:05:42
+📅 2022-09-19 14:25:53
 
 
-# **Holy Ghost** / Bent Knee
+# **I Love You - Acoustic** / Woodkid
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
 
-**Album:** Land Animal
+**Album:** Run Boy Run
 
-📅 2022-09-18 19:58:34
+📅 2022-09-19 14:22:04
 
 
-# **For Whom The Bell Tolls - Remastered** / Metallica
+# **I Love You** / Woodkid
 
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Ride The Lightning (Remastered)
+**Album:** The Golden Age
 
-📅 2022-09-18 19:52:59
+📅 2022-09-19 14:17:15
 
 
-# **Will Do** / TV On The Radio
+# **I Love You - Acoustic** / Woodkid
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
 
-**Album:** Nine Types of Light
+**Album:** Run Boy Run
 
-📅 2022-09-18 19:47:49
+📅 2022-09-19 13:01:56
 
 
-# **Fever** / The Black Keys
+# **I Love You** / Woodkid
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Turn Blue
+**Album:** The Golden Age
 
-📅 2022-09-18 19:44:04
+📅 2022-09-19 12:51:38
