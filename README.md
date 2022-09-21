@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **I'm getting on the bus to the other world, see ya!** / TUYU
+
+![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
+
+**Album:** It's Raining After All
+
+📅 2022-09-20 20:20:23
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-20 17:48:35
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-20 17:44:07
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2022-09-20 11:52:06
+
+
+# **Slippery People - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2022-09-20 11:50:52
+
+
+# **This Must Be the Place (Naive Melody) - 2005 Remaster** / Talking Heads
+
+![Foto del album: Speaking in Tongues (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e35e2e2a4bfa8a30a78fc532)
+
+**Album:** Speaking in Tongues (Deluxe Version)
+
+📅 2022-09-20 11:44:07
+
+
+# **Psycho Killer - 2005 Remaster** / Talking Heads
+
+![Foto del album: Talking Heads '77 (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e71708b667804f6241dd1a59)
+
+**Album:** Talking Heads '77 (Deluxe Version)
+
+📅 2022-09-20 11:39:11
+
+
+# **Once in a Lifetime - 2005 Remaster** / Talking Heads
+
+![Foto del album: Remain in Light (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e56fa8c916dc6ce419dcf557)
+
+**Album:** Remain in Light (Deluxe Version)
+
+📅 2022-09-20 11:22:49
+
+
+# **Not the Doctor - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2022-09-20 11:15:19
+
+
+# **Goliath** / Woodkid
+
+![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+
+**Album:** Goliath
+
+📅 2022-09-20 10:45:26
+
+
+# **I Love You - Acoustic** / Woodkid
+
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+
+**Album:** Run Boy Run
+
+📅 2022-09-20 10:41:38
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-20 10:36:49
+
+
+# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
+
+![Foto del album: Guns for Hire (From the series Arcane League of Legends)](https://i.scdn.co/image/ab67616d00001e025e6ef970ec262844454c6067)
+
+**Album:** Guns for Hire (From the series Arcane League of Legends)
+
+📅 2022-09-20 10:32:58
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-20 10:28:20
+
+
+# **Goliath** / Woodkid
+
+![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+
+**Album:** Goliath
+
+📅 2022-09-20 09:01:12
+
+
 # **I Love You - Acoustic** / Woodkid
 
 ![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** Run Boy Run
 
 📅 2022-09-19 23:30:36
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-19 23:03:22
-
-
-# **Another Life** / Jadu Heart
-
-![Foto del album: Hyper Romance](https://i.scdn.co/image/ab67616d00001e0271ca4f635950b4f94568ac28)
-
-**Album:** Hyper Romance
-
-📅 2022-09-19 18:25:46
-
-
-# **House Of Cards** / Radiohead
-
-![Foto del album: In Rainbows](https://i.scdn.co/image/ab67616d00001e02de3c04b5fc750b68899b20a9)
-
-**Album:** In Rainbows
-
-📅 2022-09-19 18:21:53
-
-
-# **Stylo (feat. Mos Def and Bobby Womack)** / Gorillaz|Bobby Womack|Mos Def
-
-![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
-
-**Album:** Plastic Beach
-
-📅 2022-09-19 18:16:24
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2022-09-19 18:10:40
-
-
-# **Royals** / Lorde
-
-![Foto del album: Pure Heroine](https://i.scdn.co/image/ab67616d00001e02187331e276c898d39764cc98)
-
-**Album:** Pure Heroine
-
-📅 2022-09-19 18:02:27
-
-
-# **High Atmosphere** / Ertam
-
-![Foto del album: High Atmosphere](https://i.scdn.co/image/ab67616d00001e0264f4dcf15efbe096b96013a8)
-
-**Album:** High Atmosphere
-
-📅 2022-09-19 17:58:58
-
-
-# **here and there** / yanaginagi
-
-![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e0214baea007f85002691574977)
-
-**Album:** ナッテ
-
-📅 2022-09-19 17:47:32
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-19 17:42:01
-
-
-# **I Love You - Acoustic** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-09-19 17:37:12
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-19 17:32:23
-
-
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
-
-![Foto del album: Guns for Hire (From the series Arcane League of Legends)](https://i.scdn.co/image/ab67616d00001e025e6ef970ec262844454c6067)
-
-**Album:** Guns for Hire (From the series Arcane League of Legends)
-
-📅 2022-09-19 17:28:32
-
-
-# **I Love You - Acoustic** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-09-19 15:43:04
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-19 15:42:53
-
-
-# **Iron** / Woodkid
-
-![Foto del album: Iron](https://i.scdn.co/image/ab67616d00001e02cb833e941e1ba35590da5c6b)
-
-**Album:** Iron
-
-📅 2022-09-19 14:44:37
