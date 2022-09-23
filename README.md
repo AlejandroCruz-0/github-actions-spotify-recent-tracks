@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-22 20:18:32
+
+
+# **This Fire** / Franz Ferdinand
+
+![Foto del album: Franz Ferdinand](https://i.scdn.co/image/ab67616d00001e0209a90531b85be7899c3234c4)
+
+**Album:** Franz Ferdinand
+
+📅 2022-09-22 20:14:24
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-22 17:04:29
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-22 16:59:55
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-09-22 11:08:41
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-22 11:08:34
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-22 10:18:16
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-22 10:13:00
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-22 10:08:33
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-09-21 11:46:16
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Stop Making Sense (Live)
 
 📅 2022-09-20 11:52:06
-
-
-# **Slippery People - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2022-09-20 11:50:52
-
-
-# **This Must Be the Place (Naive Melody) - 2005 Remaster** / Talking Heads
-
-![Foto del album: Speaking in Tongues (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e35e2e2a4bfa8a30a78fc532)
-
-**Album:** Speaking in Tongues (Deluxe Version)
-
-📅 2022-09-20 11:44:07
-
-
-# **Psycho Killer - 2005 Remaster** / Talking Heads
-
-![Foto del album: Talking Heads '77 (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e71708b667804f6241dd1a59)
-
-**Album:** Talking Heads '77 (Deluxe Version)
-
-📅 2022-09-20 11:39:11
-
-
-# **Once in a Lifetime - 2005 Remaster** / Talking Heads
-
-![Foto del album: Remain in Light (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e56fa8c916dc6ce419dcf557)
-
-**Album:** Remain in Light (Deluxe Version)
-
-📅 2022-09-20 11:22:49
-
-
-# **Not the Doctor - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
-
-**Album:** Jagged Little Pill (2015 Remaster)
-
-📅 2022-09-20 11:15:19
-
-
-# **Goliath** / Woodkid
-
-![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
-
-**Album:** Goliath
-
-📅 2022-09-20 10:45:26
-
-
-# **I Love You - Acoustic** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-09-20 10:41:38
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-20 10:36:49
-
-
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
-
-![Foto del album: Guns for Hire (From the series Arcane League of Legends)](https://i.scdn.co/image/ab67616d00001e025e6ef970ec262844454c6067)
-
-**Album:** Guns for Hire (From the series Arcane League of Legends)
-
-📅 2022-09-20 10:32:58
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-20 10:28:20
