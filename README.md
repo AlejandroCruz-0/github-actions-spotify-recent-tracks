@@ -13,148 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **I Love You** / Woodkid
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The Golden Age
+**Album:** The Magnificent Tree
 
-📅 2022-09-24 00:49:06
-
-
-# **Run Boy Run - Instrumental** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-09-24 00:01:36
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-23 23:27:16
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-23 21:42:52
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-23 15:54:18
-
-
-# **Legendary** / Welshly Arms
-
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
-
-**Album:** No Place Is Home
-
-📅 2022-09-23 15:44:12
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2022-09-23 15:40:20
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-09-23 15:36:13
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-09-23 15:33:01
-
-
-# **Remember** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-23 15:29:35
-
-
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
-
-![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
-
-**Album:** INDUSTRY BABY (feat. Jack Harlow)
-
-📅 2022-09-23 15:25:10
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-09-23 15:21:37
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2022-09-23 15:17:52
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-09-23 15:12:41
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-09-23 15:08:34
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-23 15:03:00
+📅 2022-09-24 20:31:48
 
 
 # **Fuel** / Metallica
@@ -163,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Reload
 
-📅 2022-09-23 14:59:10
+📅 2022-09-24 20:24:22
 
 
 # **Mad About You** / Hooverphonic
@@ -172,22 +37,157 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-23 14:54:40
+📅 2022-09-24 20:09:11
 
 
-# **Time is Running Out** / Muse
+# **I Love You** / Woodkid
 
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Absolution
+**Album:** The Golden Age
 
-📅 2022-09-23 13:15:46
+📅 2022-09-24 20:04:40
 
 
-# **I'll Keep Coming** / Low Roar
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** 0
+**Album:** iii
 
-📅 2022-09-23 13:11:48
+📅 2022-09-24 16:18:58
+
+
+# **Old Town Road** / Lil Nas X
+
+![Foto del album: 7 EP](https://i.scdn.co/image/ab67616d00001e02c0e7bf5cdd630f314f20586a)
+
+**Album:** 7 EP
+
+📅 2022-09-24 16:15:25
+
+
+# **I Didn't Understand** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-24 16:13:24
+
+
+# **Hells Bells** / AC/DC
+
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+
+**Album:** Back In Black
+
+📅 2022-09-24 16:11:06
+
+
+# **HOLIDAY** / Lil Nas X
+
+![Foto del album: HOLIDAY](https://i.scdn.co/image/ab67616d00001e026771a05f34d77e5fc2bde64c)
+
+**Album:** HOLIDAY
+
+📅 2022-09-24 16:05:52
+
+
+# **Points of Authority** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2022-09-24 16:03:17
+
+
+# **Waltz #1** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-24 15:59:56
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2022-09-24 15:56:33
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2022-09-24 15:52:49
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-09-24 12:27:44
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-09-24 12:24:51
+
+
+# **Run Boy Run - Instrumental** / Woodkid
+
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+
+**Album:** Run Boy Run
+
+📅 2022-09-24 12:20:10
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-24 12:16:35
+
+
+# **Remember** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-24 12:00:01
+
+
+# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
+
+![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
+
+**Album:** INDUSTRY BABY (feat. Jack Harlow)
+
+📅 2022-09-24 11:59:52
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-09-24 11:56:21
