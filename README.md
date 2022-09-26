@@ -13,13 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You** / Hooverphonic
+# **I Love You** / Woodkid
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** The Magnificent Tree
+**Album:** The Golden Age
 
-📅 2022-09-24 20:31:48
+📅 2022-09-25 20:04:32
 
 
 # **Fuel** / Metallica
@@ -28,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Reload
 
-📅 2022-09-24 20:24:22
+📅 2022-09-25 20:00:41
 
 
 # **Mad About You** / Hooverphonic
@@ -37,7 +37,43 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-24 20:09:11
+📅 2022-09-25 19:56:11
+
+
+# **Under The Pressure** / The War On Drugs
+
+![Foto del album: Lost In The Dream](https://i.scdn.co/image/ab67616d00001e02f34338e9270f9c0561cf4c7e)
+
+**Album:** Lost In The Dream
+
+📅 2022-09-25 12:35:10
+
+
+# **My Body Is a Cage** / Arcade Fire
+
+![Foto del album: Neon Bible](https://i.scdn.co/image/ab67616d00001e029e0e42aa866e5fa167b19608)
+
+**Album:** Neon Bible
+
+📅 2022-09-25 12:33:23
+
+
+# **Limp** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2022-09-25 12:28:35
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2022-09-25 12:23:33
 
 
 # **I Love You** / Woodkid
@@ -46,106 +82,106 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-09-24 20:04:40
+📅 2022-09-25 12:20:08
 
 
-# **Genghis Khan** / Miike Snow
+# **The Trick Is to Keep Breathing - 2018 - Remaster** / Garbage
 
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
 
-**Album:** iii
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
 
-📅 2022-09-24 16:18:58
-
-
-# **Old Town Road** / Lil Nas X
-
-![Foto del album: 7 EP](https://i.scdn.co/image/ab67616d00001e02c0e7bf5cdd630f314f20586a)
-
-**Album:** 7 EP
-
-📅 2022-09-24 16:15:25
+📅 2022-09-25 12:10:49
 
 
-# **I Didn't Understand** / Elliott Smith
+# **Stolen Car** / Beth Orton
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
 
-**Album:** XO
+**Album:** Central Reservation
 
-📅 2022-09-24 16:13:24
-
-
-# **Hells Bells** / AC/DC
-
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
-
-**Album:** Back In Black
-
-📅 2022-09-24 16:11:06
+📅 2022-09-25 12:00:38
 
 
-# **HOLIDAY** / Lil Nas X
+# **The Sensual Woman** / The Herbaliser
 
-![Foto del album: HOLIDAY](https://i.scdn.co/image/ab67616d00001e026771a05f34d77e5fc2bde64c)
+![Foto del album: Very Mercenary](https://i.scdn.co/image/ab67616d00001e0246d6181c9bd591a937d32e67)
 
-**Album:** HOLIDAY
+**Album:** Very Mercenary
 
-📅 2022-09-24 16:05:52
-
-
-# **Points of Authority** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2022-09-24 16:03:17
+📅 2022-09-25 11:55:07
 
 
-# **Waltz #1** / Elliott Smith
+# **Breathe** / Télépopmusik|Angela McCluskey
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Genetic World](https://i.scdn.co/image/ab67616d00001e02c65b1f9d6ca322de8b85c505)
 
-**Album:** XO
+**Album:** Genetic World
 
-📅 2022-09-24 15:59:56
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2022-09-24 15:56:33
+📅 2022-09-25 11:51:15
 
 
-# **Plug in Baby** / Muse
+# **Treasures** / Thievery Corporation
 
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+![Foto del album: The Mirror Conspiracy](https://i.scdn.co/image/ab67616d00001e02d4771f009b9adee000068518)
 
-**Album:** Origin of Symmetry
+**Album:** The Mirror Conspiracy
 
-📅 2022-09-24 15:52:49
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-24 12:27:44
+📅 2022-09-25 11:46:31
 
 
-# **Will Do** / TV On The Radio
+# **Glory Box** / Portishead
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Nine Types of Light
+**Album:** Dummy
 
-📅 2022-09-24 12:24:51
+📅 2022-09-25 11:44:05
+
+
+# **Teardrop** / Massive Attack
+
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+
+**Album:** Mezzanine
+
+📅 2022-09-25 11:38:55
+
+
+# **Hot Knife** / Fiona Apple
+
+![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
+
+**Album:** The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)
+
+📅 2022-09-25 11:32:42
+
+
+# **Don't Wanna Fight** / Alabama Shakes
+
+![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
+
+**Album:** Sound & Color (Deluxe Edition)
+
+📅 2022-09-25 11:28:40
+
+
+# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2022-09-25 11:24:37
+
+
+# **Goliath** / Woodkid
+
+![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+
+**Album:** Goliath
+
+📅 2022-09-25 11:20:49
 
 
 # **Run Boy Run - Instrumental** / Woodkid
@@ -154,40 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Run Boy Run
 
-📅 2022-09-24 12:20:10
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-24 12:16:35
-
-
-# **Remember** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-24 12:00:01
-
-
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
-
-![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
-
-**Album:** INDUSTRY BABY (feat. Jack Harlow)
-
-📅 2022-09-24 11:59:52
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-09-24 11:56:21
+📅 2022-09-25 11:17:00
