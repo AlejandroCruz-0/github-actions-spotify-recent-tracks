@@ -13,22 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **I Love You** / Woodkid
+# **Bottle Up And Explode!** / Elliott Smith
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** The Golden Age
+**Album:** XO
 
-📅 2022-09-25 20:04:32
+📅 2022-09-26 17:58:17
 
 
-# **Fuel** / Metallica
+# **Caminar Sola** / Julieta Venegas
 
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
 
-**Album:** Reload
+**Album:** Caminar Sola
 
-📅 2022-09-25 20:00:41
+📅 2022-09-26 17:55:28
+
+
+# **Rock the Casbah - Remastered** / The Clash
+
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+
+**Album:** Combat Rock (Remastered)
+
+📅 2022-09-26 17:52:08
+
+
+# **Special - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-09-26 17:48:26
+
+
+# **Running Up That Hill (A Deal With God)** / Kate Bush
+
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
+
+**Album:** Hounds Of Love
+
+📅 2022-09-26 17:44:42
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2022-09-26 17:39:36
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-09-26 17:34:59
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-09-26 17:31:48
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-26 17:25:41
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-26 17:21:22
 
 
 # **Mad About You** / Hooverphonic
@@ -37,157 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-25 19:56:11
+📅 2022-09-26 17:17:19
 
 
-# **Under The Pressure** / The War On Drugs
+# **Autoharp** / Hooverphonic
 
-![Foto del album: Lost In The Dream](https://i.scdn.co/image/ab67616d00001e02f34338e9270f9c0561cf4c7e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Lost In The Dream
+**Album:** The Magnificent Tree
 
-📅 2022-09-25 12:35:10
+📅 2022-09-26 17:13:34
 
 
-# **My Body Is a Cage** / Arcade Fire
+# **Will Do** / TV On The Radio
 
-![Foto del album: Neon Bible](https://i.scdn.co/image/ab67616d00001e029e0e42aa866e5fa167b19608)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Neon Bible
+**Album:** Nine Types of Light
 
-📅 2022-09-25 12:33:23
+📅 2022-09-26 17:08:44
 
 
-# **Limp** / Fiona Apple
+# **Fever** / The Black Keys
 
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** When The Pawn...
+**Album:** Turn Blue
 
-📅 2022-09-25 12:28:35
+📅 2022-09-26 17:04:59
 
 
-# **Duvet** / bôa
+# **Oh I Wept** / Free
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Twilight
+**Album:** Fire And Water
 
-📅 2022-09-25 12:23:33
+📅 2022-09-26 17:00:52
 
 
-# **I Love You** / Woodkid
+# **Congregation** / Low
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** The Golden Age
+**Album:** Ones and Sixes
 
-📅 2022-09-25 12:20:08
+📅 2022-09-26 16:56:24
 
 
-# **The Trick Is to Keep Breathing - 2018 - Remaster** / Garbage
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+**Album:** The Magnificent Tree
 
-📅 2022-09-25 12:10:49
+📅 2022-09-26 16:52:32
 
 
-# **Stolen Car** / Beth Orton
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Central Reservation
+**Album:** The Magnificent Tree
 
-📅 2022-09-25 12:00:38
+📅 2022-09-26 16:46:55
 
 
-# **The Sensual Woman** / The Herbaliser
+# **Oh I Wept** / Free
 
-![Foto del album: Very Mercenary](https://i.scdn.co/image/ab67616d00001e0246d6181c9bd591a937d32e67)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Very Mercenary
+**Album:** Fire And Water
 
-📅 2022-09-25 11:55:07
+📅 2022-09-26 11:04:38
 
 
-# **Breathe** / Télépopmusik|Angela McCluskey
+# **Congregation** / Low
 
-![Foto del album: Genetic World](https://i.scdn.co/image/ab67616d00001e02c65b1f9d6ca322de8b85c505)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Genetic World
+**Album:** Ones and Sixes
 
-📅 2022-09-25 11:51:15
-
-
-# **Treasures** / Thievery Corporation
-
-![Foto del album: The Mirror Conspiracy](https://i.scdn.co/image/ab67616d00001e02d4771f009b9adee000068518)
-
-**Album:** The Mirror Conspiracy
-
-📅 2022-09-25 11:46:31
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2022-09-25 11:44:05
-
-
-# **Teardrop** / Massive Attack
-
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
-
-**Album:** Mezzanine
-
-📅 2022-09-25 11:38:55
-
-
-# **Hot Knife** / Fiona Apple
-
-![Foto del album: The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e021443bd487a471868735f050b)
-
-**Album:** The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do (Expanded Edition)
-
-📅 2022-09-25 11:32:42
-
-
-# **Don't Wanna Fight** / Alabama Shakes
-
-![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
-
-**Album:** Sound & Color (Deluxe Edition)
-
-📅 2022-09-25 11:28:40
-
-
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
-
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
-
-📅 2022-09-25 11:24:37
-
-
-# **Goliath** / Woodkid
-
-![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
-
-**Album:** Goliath
-
-📅 2022-09-25 11:20:49
-
-
-# **Run Boy Run - Instrumental** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-09-25 11:17:00
+📅 2022-09-26 11:04:33
