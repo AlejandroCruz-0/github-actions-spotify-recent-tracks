@@ -13,6 +13,159 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-28 01:58:59
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-28 01:54:32
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-28 01:50:40
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-28 01:45:01
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-09-28 01:40:21
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-09-28 01:34:47
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-09-28 01:30:43
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-09-28 01:26:13
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-28 01:22:28
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-28 01:18:20
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-28 01:13:53
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-28 01:10:01
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-28 00:54:01
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-28 00:49:54
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-09-28 00:45:26
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-28 00:41:35
+
+
+# **Goliath** / Woodkid
+
+![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+
+**Album:** Goliath
+
+📅 2022-09-27 15:44:24
+
+
 # **Run Boy Run - Instrumental** / Woodkid
 
 ![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
@@ -38,156 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fire And Water
 
 📅 2022-09-27 10:16:40
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-27 10:16:32
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-27 10:12:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-27 10:08:54
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-26 22:07:06
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-09-26 22:03:29
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-09-26 17:58:17
-
-
-# **Caminar Sola** / Julieta Venegas
-
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
-
-**Album:** Caminar Sola
-
-📅 2022-09-26 17:55:28
-
-
-# **Rock the Casbah - Remastered** / The Clash
-
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
-
-**Album:** Combat Rock (Remastered)
-
-📅 2022-09-26 17:52:08
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-09-26 17:48:26
-
-
-# **Running Up That Hill (A Deal With God)** / Kate Bush
-
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
-
-**Album:** Hounds Of Love
-
-📅 2022-09-26 17:44:42
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2022-09-26 17:39:36
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-09-26 17:34:59
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-09-26 17:31:48
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-26 17:25:41
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-26 17:21:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-26 17:17:19
-
-
-# **Autoharp** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-26 17:13:34
