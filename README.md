@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-28 01:58:59
-
-
 # **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
 **Album:** Ones and Sixes
 
-📅 2022-09-28 01:54:32
+📅 2022-09-28 20:39:56
 
 
 # **Mad About You** / Hooverphonic
@@ -37,142 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-28 01:50:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-28 01:45:01
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-09-28 01:40:21
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2022-09-28 01:34:47
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-09-28 01:30:43
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-09-28 01:26:13
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-09-28 01:22:28
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-28 01:18:20
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-28 01:13:53
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-28 01:10:01
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-09-28 00:54:01
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-28 00:49:54
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-09-28 00:45:26
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-28 00:41:35
-
-
-# **Goliath** / Woodkid
-
-![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
-
-**Album:** Goliath
-
-📅 2022-09-27 15:44:24
-
-
-# **Run Boy Run - Instrumental** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-09-27 15:43:24
+📅 2022-09-28 20:36:04
 
 
 # **I Love You** / Woodkid
@@ -181,13 +37,157 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-09-27 15:39:49
+📅 2022-09-28 20:32:20
 
 
-# **Oh I Wept** / Free
+# **I'm getting on the bus to the other world, see ya!** / TUYU
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
 
-**Album:** Fire And Water
+**Album:** It's Raining After All
 
-📅 2022-09-27 10:16:40
+📅 2022-09-28 16:49:54
+
+
+# **Compared Child** / TUYU
+
+![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
+
+**Album:** It's Raining After All
+
+📅 2022-09-28 16:44:44
+
+
+# **Chippin' In** / Damian Ukeje|P.T. Adamczyk|Kerry Eurodyne
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e021dbbe25807996493bc175633)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)
+
+📅 2022-09-28 16:18:31
+
+
+# **Hate?** / BAND-MAID
+
+![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
+
+**Album:** Unleash
+
+📅 2022-09-28 16:18:06
+
+
+# **Trust In Me** / SENSE|No ExpressioN
+
+![Foto del album: Trust In Me](https://i.scdn.co/image/ab67616d00001e024136e20c7fd636c820b85c47)
+
+**Album:** Trust In Me
+
+📅 2022-09-28 16:14:02
+
+
+# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
+
+📅 2022-09-28 16:11:53
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-09-28 16:07:46
+
+
+# **Wrench and Numbers** / Jeff Russo
+
+![Foto del album: Fargo (An Original MGM / FXP Television Series)](https://i.scdn.co/image/ab67616d00001e026ee140527ba71d5687114b5d)
+
+**Album:** Fargo (An Original MGM / FXP Television Series)
+
+📅 2022-09-28 11:13:43
+
+
+# **You're Not Here** / Akira Yamaoka
+
+![Foto del album: SILENT HILL3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02832b77dc1cfccecad346457f)
+
+**Album:** SILENT HILL3 (Original Soundtrack)
+
+📅 2022-09-28 11:13:37
+
+
+# **I'll Keep Coming** / Low Roar
+
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+
+**Album:** 0
+
+📅 2022-09-28 11:09:50
+
+
+# **Home** / Gustavo Santaolalla
+
+![Foto del album: The Last of Us](https://i.scdn.co/image/ab67616d00001e0268e5e7cc9256ca8c0917a9dd)
+
+**Album:** The Last of Us
+
+📅 2022-09-28 11:03:57
+
+
+# **Cosmo Canyon** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02012c8e26756d42328f4ec683)
+
+**Album:** FINAL FANTASY VII Original Soundtrack
+
+📅 2022-09-28 11:00:49
+
+
+# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
+
+📅 2022-09-28 10:54:43
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-09-28 10:50:35
+
+
+# **Chippin' In** / Damian Ukeje|P.T. Adamczyk|Kerry Eurodyne
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e021dbbe25807996493bc175633)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)
+
+📅 2022-09-28 10:45:50
+
+
+# **Hate?** / BAND-MAID
+
+![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
+
+**Album:** Unleash
+
+📅 2022-09-28 10:42:14
+
+
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+
+**Album:** iv
+
+📅 2022-09-28 10:38:36
