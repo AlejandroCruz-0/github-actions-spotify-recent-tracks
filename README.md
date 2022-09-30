@@ -13,22 +13,94 @@ Nombre: **lotario1999**
 
 
 
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2022-09-29 20:29:38
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-09-29 20:25:31
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-09-29 20:20:21
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-09-29 20:17:09
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-09-29 20:11:35
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-09-29 20:07:31
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-09-29 20:03:00
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-09-29 19:59:15
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-09-29 19:55:08
+
+
 # **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
 **Album:** Ones and Sixes
 
-📅 2022-09-28 20:39:56
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-09-28 20:36:04
+📅 2022-09-29 19:50:41
 
 
 # **I Love You** / Woodkid
@@ -37,157 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-09-28 20:32:20
+📅 2022-09-29 19:46:48
 
 
-# **I'm getting on the bus to the other world, see ya!** / TUYU
+# **Mad About You** / Hooverphonic
 
-![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** It's Raining After All
+**Album:** The Magnificent Tree
 
-📅 2022-09-28 16:49:54
+📅 2022-09-29 19:42:58
 
 
-# **Compared Child** / TUYU
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** It's Raining After All
+**Album:** Stop Making Sense (Live)
 
-📅 2022-09-28 16:44:44
+📅 2022-09-29 18:47:44
 
 
-# **Chippin' In** / Damian Ukeje|P.T. Adamczyk|Kerry Eurodyne
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
-![Foto del album: Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e021dbbe25807996493bc175633)
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
-**Album:** Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)
+**Album:** Ride The Lightning (Remastered)
 
-📅 2022-09-28 16:18:31
+📅 2022-09-29 18:37:37
 
 
-# **Hate?** / BAND-MAID
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Unleash
+**Album:** Panic
 
-📅 2022-09-28 16:18:06
+📅 2022-09-29 18:32:27
 
 
-# **Trust In Me** / SENSE|No ExpressioN
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Trust In Me](https://i.scdn.co/image/ab67616d00001e024136e20c7fd636c820b85c47)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Trust In Me
+**Album:** Land Animal
 
-📅 2022-09-28 16:14:02
+📅 2022-09-29 18:29:15
 
 
-# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
+# **Holding On** / Aloboi
 
-![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
+**Album:** Holding On
 
-📅 2022-09-28 16:11:53
+📅 2022-09-29 18:23:40
 
 
-# **Let You Down** / Dawid Podsiadło
+# **Fuel** / Metallica
 
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
 
-**Album:** Let You Down
+**Album:** Reload
 
-📅 2022-09-28 16:07:46
+📅 2022-09-29 18:19:37
 
 
-# **Wrench and Numbers** / Jeff Russo
+# **Will Do** / TV On The Radio
 
-![Foto del album: Fargo (An Original MGM / FXP Television Series)](https://i.scdn.co/image/ab67616d00001e026ee140527ba71d5687114b5d)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Fargo (An Original MGM / FXP Television Series)
+**Album:** Nine Types of Light
 
-📅 2022-09-28 11:13:43
+📅 2022-09-29 18:15:06
 
 
-# **You're Not Here** / Akira Yamaoka
+# **Fever** / The Black Keys
 
-![Foto del album: SILENT HILL3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02832b77dc1cfccecad346457f)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** SILENT HILL3 (Original Soundtrack)
+**Album:** Turn Blue
 
-📅 2022-09-28 11:13:37
-
-
-# **I'll Keep Coming** / Low Roar
-
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
-
-**Album:** 0
-
-📅 2022-09-28 11:09:50
-
-
-# **Home** / Gustavo Santaolalla
-
-![Foto del album: The Last of Us](https://i.scdn.co/image/ab67616d00001e0268e5e7cc9256ca8c0917a9dd)
-
-**Album:** The Last of Us
-
-📅 2022-09-28 11:03:57
-
-
-# **Cosmo Canyon** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02012c8e26756d42328f4ec683)
-
-**Album:** FINAL FANTASY VII Original Soundtrack
-
-📅 2022-09-28 11:00:49
-
-
-# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
-
-![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
-
-**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
-
-📅 2022-09-28 10:54:43
-
-
-# **Let You Down** / Dawid Podsiadło
-
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
-
-**Album:** Let You Down
-
-📅 2022-09-28 10:50:35
-
-
-# **Chippin' In** / Damian Ukeje|P.T. Adamczyk|Kerry Eurodyne
-
-![Foto del album: Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e021dbbe25807996493bc175633)
-
-**Album:** Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)
-
-📅 2022-09-28 10:45:50
-
-
-# **Hate?** / BAND-MAID
-
-![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
-
-**Album:** Unleash
-
-📅 2022-09-28 10:42:14
-
-
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
-
-**Album:** iv
-
-📅 2022-09-28 10:38:36
+📅 2022-09-29 18:11:22
