@@ -19,7 +19,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-09-30 00:07:01
+📅 2022-09-30 15:51:32
 
 
 # **I Love You** / Woodkid
@@ -28,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-09-30 00:03:08
+📅 2022-09-30 15:51:29
 
 
 # **Mad About You** / Hooverphonic
@@ -37,97 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-29 23:59:18
-
-
-# **Legendary** / Welshly Arms
-
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
-
-**Album:** No Place Is Home
-
-📅 2022-09-29 20:41:47
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2022-09-29 20:29:38
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2022-09-29 20:25:31
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-09-29 20:20:21
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-09-29 20:17:09
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2022-09-29 20:11:35
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-09-29 20:07:31
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-09-29 20:03:00
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-09-29 19:59:15
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-09-29 19:55:08
+📅 2022-09-30 15:47:38
 
 
 # **Congregation** / Low
@@ -136,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-09-29 19:50:41
+📅 2022-09-30 14:52:56
 
 
 # **I Love You** / Woodkid
@@ -145,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-09-29 19:46:48
+📅 2022-09-30 14:52:53
 
 
 # **Mad About You** / Hooverphonic
@@ -154,40 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-09-29 19:42:58
+📅 2022-09-30 14:49:02
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Stop Making Sense (Live)
+**Album:** The Magnificent Tree
 
-📅 2022-09-29 18:47:44
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2022-09-29 18:37:37
+📅 2022-09-30 13:51:50
 
 
-# **Rock It for Me** / Caravan Palace
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
 
-**Album:** Panic
+**Album:** iv
 
-📅 2022-09-29 18:32:27
+📅 2022-09-30 12:54:01
 
 
-# **Holy Ghost** / Bent Knee
+# **Hate?** / BAND-MAID
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
 
-**Album:** Land Animal
+**Album:** Unleash
 
-📅 2022-09-29 18:29:15
+📅 2022-09-30 12:08:19
+
+
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+
+**Album:** iv
+
+📅 2022-09-30 12:04:41
+
+
+# **Friday Night Fire Fight** / Aligns|Rubicones
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 1 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02199527ea98e780e65a9afc65)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 1 (Original Soundtrack)
+
+📅 2022-09-30 12:00:52
+
+
+# **This fffire - New Version** / Franz Ferdinand
+
+![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
+
+**Album:** This fffire
+
+📅 2022-09-30 11:57:17
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-09-30 11:27:10
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-09-30 11:23:21
+
+
+# **Clockwork** / Northlane
+
+![Foto del album: Obsidian](https://i.scdn.co/image/ab67616d00001e02950b8ca9bd496084339acc57)
+
+**Album:** Obsidian
+
+📅 2022-09-30 11:14:38
+
+
+# **Stopping You** / Jetique|Boy Apocalypse
+
+![Foto del album: Stopping You](https://i.scdn.co/image/ab67616d00001e029d44a094987c64d05c336e71)
+
+**Album:** Stopping You
+
+📅 2022-09-30 11:11:32
+
+
+# **Trust In Me** / SENSE|No ExpressioN
+
+![Foto del album: Trust In Me](https://i.scdn.co/image/ab67616d00001e024136e20c7fd636c820b85c47)
+
+**Album:** Trust In Me
+
+📅 2022-09-30 11:08:36
+
+
+# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
+
+📅 2022-09-30 11:06:28
+
+
+# **Escape** / KEYMAK|HYPE.
+
+![Foto del album: Escape](https://i.scdn.co/image/ab67616d00001e0279ac6a24dcee899c52783b84)
+
+**Album:** Escape
+
+📅 2022-09-30 11:02:21
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-09-30 10:59:01
