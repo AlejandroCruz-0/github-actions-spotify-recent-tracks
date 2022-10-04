@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Eden** / Hooverphonic
+
+![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+
+**Album:** Blue Wonder Power Milk
+
+📅 2022-10-04 00:05:54
+
+
+# **Mysterious - Single Edit** / Hooverphonic
+
+![Foto del album: Mysterious](https://i.scdn.co/image/ab67616d00001e025963a991a3430be5cefb057e)
+
+**Album:** Mysterious
+
+📅 2022-10-04 00:02:19
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2022-10-03 17:16:40
+
+
 # **For Whom The Bell Tolls - Remastered** / Metallica
 
 ![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Golden Age
 
 📅 2022-10-03 10:17:23
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-10-03 10:13:32
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-03 10:09:41
-
-
-# **Rompecabezas** / Aterciopelados
-
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
-
-**Album:** Gozo Poderoso
-
-📅 2022-10-02 17:02:39
