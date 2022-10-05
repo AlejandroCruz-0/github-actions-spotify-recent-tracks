@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-04 15:57:31
+
+
+# **The Cyberpunk Runner** / Yuri Petrovski
+
+![Foto del album: The Cyberpunk](https://i.scdn.co/image/ab67616d00001e02cb91b5b8f9640caf6602e4f3)
+
+**Album:** The Cyberpunk
+
+📅 2022-10-04 14:31:49
+
+
+# **Droid Rage** / OGRE Sound
+
+![Foto del album: 195](https://i.scdn.co/image/ab67616d00001e021ae1f9dc8ac35dfe373bb080)
+
+**Album:** 195
+
+📅 2022-10-04 14:31:04
+
+
+# **The Rebel Path** / P.T. Adamczyk
+
+![Foto del album: Cyberpunk 2077 - Original Score](https://i.scdn.co/image/ab67616d00001e02ca593ba6b61b7a164ae408b9)
+
+**Album:** Cyberpunk 2077 - Original Score
+
+📅 2022-10-04 14:29:05
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-04 11:13:08
+
+
+# **Makes Me Feel Good** / R Plus|Faithless|Amelia Fox
+
+![Foto del album: Makes Me Feel Good](https://i.scdn.co/image/ab67616d00001e025e8c7d7c5f834f55e8236034)
+
+**Album:** Makes Me Feel Good
+
+📅 2022-10-04 00:05:56
+
+
 # **Eden** / Hooverphonic
 
 ![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2022-10-03 16:28:54
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-03 14:08:02
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-03 14:00:07
-
-
-# **Hate?** / BAND-MAID
-
-![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
-
-**Album:** Unleash
-
-📅 2022-10-03 11:12:13
-
-
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
-
-**Album:** iv
-
-📅 2022-10-03 11:12:09
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-10-03 10:18:35
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-10-03 10:17:23
