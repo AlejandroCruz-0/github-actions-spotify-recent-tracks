@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-10-06 00:11:30
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-06 00:05:54
+
+
+# **Relight My Fire - Single Version** / Dan Hartman
+
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+
+**Album:** 70s Gems
+
+📅 2022-10-06 00:02:10
+
+
+# **Relight My Fire - Single Version** / Dan Hartman
+
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+
+**Album:** 70s Gems
+
+📅 2022-10-05 23:43:43
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-10-05 23:39:58
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Unleash
 
 📅 2022-10-05 13:22:03
-
-
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
-
-**Album:** iv
-
-📅 2022-10-05 13:11:37
-
-
-# **Friday Night Fire Fight** / Aligns|Rubicones
-
-![Foto del album: Cyberpunk 2077: Radio, Vol. 1 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02199527ea98e780e65a9afc65)
-
-**Album:** Cyberpunk 2077: Radio, Vol. 1 (Original Soundtrack)
-
-📅 2022-10-05 13:07:48
-
-
-# **This fffire - New Version** / Franz Ferdinand
-
-![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
-
-**Album:** This fffire
-
-📅 2022-10-05 13:04:13
-
-
-# **Let You Down** / Dawid Podsiadło
-
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
-
-**Album:** Let You Down
-
-📅 2022-10-05 12:59:18
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-10-05 12:31:33
