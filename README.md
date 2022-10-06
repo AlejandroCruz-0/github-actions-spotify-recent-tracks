@@ -13,103 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You** / Hooverphonic
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2022-10-04 15:57:31
-
-
-# **The Cyberpunk Runner** / Yuri Petrovski
-
-![Foto del album: The Cyberpunk](https://i.scdn.co/image/ab67616d00001e02cb91b5b8f9640caf6602e4f3)
-
-**Album:** The Cyberpunk
-
-📅 2022-10-04 14:31:49
-
-
-# **Droid Rage** / OGRE Sound
-
-![Foto del album: 195](https://i.scdn.co/image/ab67616d00001e021ae1f9dc8ac35dfe373bb080)
-
-**Album:** 195
-
-📅 2022-10-04 14:31:04
-
-
-# **The Rebel Path** / P.T. Adamczyk
-
-![Foto del album: Cyberpunk 2077 - Original Score](https://i.scdn.co/image/ab67616d00001e02ca593ba6b61b7a164ae408b9)
-
-**Album:** Cyberpunk 2077 - Original Score
-
-📅 2022-10-04 14:29:05
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-04 11:13:08
-
-
-# **Makes Me Feel Good** / R Plus|Faithless|Amelia Fox
-
-![Foto del album: Makes Me Feel Good](https://i.scdn.co/image/ab67616d00001e025e8c7d7c5f834f55e8236034)
-
-**Album:** Makes Me Feel Good
-
-📅 2022-10-04 00:05:56
-
-
-# **Eden** / Hooverphonic
-
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
-
-**Album:** Blue Wonder Power Milk
-
-📅 2022-10-04 00:05:54
-
-
-# **Mysterious - Single Edit** / Hooverphonic
-
-![Foto del album: Mysterious](https://i.scdn.co/image/ab67616d00001e025963a991a3430be5cefb057e)
-
-**Album:** Mysterious
-
-📅 2022-10-04 00:02:19
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2022-10-03 17:16:40
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2022-10-03 17:14:24
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-10-03 17:09:14
+📅 2022-10-05 20:33:34
 
 
 # **Holding On** / Aloboi
@@ -118,25 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Holding On
 
-📅 2022-10-03 17:06:01
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-10-03 17:01:58
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-10-03 16:53:27
+📅 2022-10-05 20:28:00
 
 
 # **Will Do** / TV On The Radio
@@ -145,7 +37,16 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2022-10-03 16:48:56
+📅 2022-10-05 20:23:56
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-10-05 20:20:11
 
 
 # **Fever** / The Black Keys
@@ -154,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2022-10-03 16:45:11
+📅 2022-10-05 20:15:41
 
 
 # **Oh I Wept** / Free
@@ -163,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-10-03 16:41:05
+📅 2022-10-05 20:11:34
 
 
 # **I Love You** / Woodkid
@@ -172,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-10-03 16:36:37
+📅 2022-10-05 20:07:06
 
 
 # **Congregation** / Low
@@ -181,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-10-03 16:32:46
+📅 2022-10-05 20:03:16
 
 
 # **Mad About You** / Hooverphonic
@@ -190,4 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-03 16:28:54
+📅 2022-10-05 19:59:24
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-10-05 19:09:41
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-05 19:09:05
+
+
+# **Chippin' In** / Damian Ukeje|P.T. Adamczyk|Kerry Eurodyne
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e021dbbe25807996493bc175633)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 3 (Original Soundtrack)
+
+📅 2022-10-05 14:23:31
+
+
+# **Hate?** / BAND-MAID
+
+![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
+
+**Album:** Unleash
+
+📅 2022-10-05 14:23:27
+
+
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+
+**Album:** iv
+
+📅 2022-10-05 14:19:50
+
+
+# **Hate?** / BAND-MAID
+
+![Foto del album: Unleash](https://i.scdn.co/image/ab67616d00001e02dec63f5821f2d39ab1f7d601)
+
+**Album:** Unleash
+
+📅 2022-10-05 13:22:03
+
+
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+
+**Album:** iv
+
+📅 2022-10-05 13:11:37
+
+
+# **Friday Night Fire Fight** / Aligns|Rubicones
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 1 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02199527ea98e780e65a9afc65)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 1 (Original Soundtrack)
+
+📅 2022-10-05 13:07:48
+
+
+# **This fffire - New Version** / Franz Ferdinand
+
+![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
+
+**Album:** This fffire
+
+📅 2022-10-05 13:04:13
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-10-05 12:59:18
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-10-05 12:31:33
