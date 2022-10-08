@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Save Me** / Aimee Mann
+
+![Foto del album: Magnolia (Music from the Motion Picture)](https://i.scdn.co/image/ab67616d00001e0273655b413287069edbbfc412)
+
+**Album:** Magnolia (Music from the Motion Picture)
+
+📅 2022-10-07 10:40:33
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-10-07 10:30:11
+
+
+# **Good Things Don't Always Come To You** / Skunk Anansie
+
+![Foto del album: Post Orgasmic Chill](https://i.scdn.co/image/ab67616d00001e02fc7dc3553f8c182c5cc1e00a)
+
+**Album:** Post Orgasmic Chill
+
+📅 2022-10-07 09:56:25
+
+
+# **Secretly** / Skunk Anansie
+
+![Foto del album: Post Orgasmic Chill](https://i.scdn.co/image/ab67616d00001e02fc7dc3553f8c182c5cc1e00a)
+
+**Album:** Post Orgasmic Chill
+
+📅 2022-10-07 09:54:30
+
+
+# **September Fields** / Frazey Ford
+
+![Foto del album: Indian Ocean](https://i.scdn.co/image/ab67616d00001e023ddd4bb596b436920330a048)
+
+**Album:** Indian Ocean
+
+📅 2022-10-07 09:39:19
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-10-07 09:35:55
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-10-06 23:47:23
+
+
 # **Fever** / The Black Keys
 
 ![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** 70s Gems
 
 📅 2022-10-06 19:19:58
-
-
-# **This fffire - New Version** / Franz Ferdinand
-
-![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
-
-**Album:** This fffire
-
-📅 2022-10-06 19:16:13
-
-
-# **For How Long** / Tycho|Saint Sinner
-
-![Foto del album: Weather](https://i.scdn.co/image/ab67616d00001e028f38659c97d873d794e2c6dd)
-
-**Album:** Weather
-
-📅 2022-10-06 19:12:34
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2022-10-06 19:09:33
-
-
-# **Caminar Sola** / Julieta Venegas
-
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
-
-**Album:** Caminar Sola
-
-📅 2022-10-06 19:05:55
-
-
-# **Running Up That Hill (A Deal With God)** / Kate Bush
-
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
-
-**Album:** Hounds Of Love
-
-📅 2022-10-06 19:02:36
-
-
-# **Let You Down** / Dawid Podsiadło
-
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
-
-**Album:** Let You Down
-
-📅 2022-10-06 18:53:10
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-10-06 18:44:59
