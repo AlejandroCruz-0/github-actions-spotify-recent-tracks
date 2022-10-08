@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Goliath** / Woodkid
+
+![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+
+**Album:** Goliath
+
+📅 2022-10-08 01:06:16
+
+
+# **Run Boy Run - Instrumental** / Woodkid
+
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+
+**Album:** Run Boy Run
+
+📅 2022-10-08 01:02:28
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-10-08 00:58:53
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-10-08 00:53:30
+
+
+# **Teardrop** / Massive Attack
+
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+
+**Album:** Mezzanine
+
+📅 2022-10-08 00:35:44
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-10-08 00:02:19
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-10-07 12:20:05
+
+
 # **Save Me** / Aimee Mann
 
 ![Foto del album: Magnolia (Music from the Motion Picture)](https://i.scdn.co/image/ab67616d00001e0273655b413287069edbbfc412)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Reload
 
 📅 2022-10-06 22:25:07
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-10-06 22:01:51
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-06 21:56:37
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-10-06 19:31:30
-
-
-# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
-
-![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
-
-**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
-
-📅 2022-10-06 19:28:04
-
-
-# **Ode to Odd** / 20syl
-
-![Foto del album: 36 (Beats & Types)](https://i.scdn.co/image/ab67616d00001e02872e9ffacf8b5e611710968a)
-
-**Album:** 36 (Beats & Types)
-
-📅 2022-10-06 19:23:57
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-10-06 19:22:56
-
-
-# **Relight My Fire - Single Version** / Dan Hartman
-
-![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
-
-**Album:** 70s Gems
-
-📅 2022-10-06 19:19:58
