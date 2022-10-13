@@ -13,139 +13,166 @@ Nombre: **lotario1999**
 
 
 
-# **I Love You** / Woodkid
+# **Puntos Cardinales** / Café Tacvba
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Cuatro Caminos](https://i.scdn.co/image/ab67616d00001e02624927252564ef4625307897)
 
-**Album:** The Golden Age
+**Album:** Cuatro Caminos
 
-📅 2022-10-12 21:58:09
+📅 2022-10-13 01:05:51
 
 
-# **Mad About You** / Hooverphonic
+# **Peligro** / Ely Guerra
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Pa´Morirse De Amor](https://i.scdn.co/image/ab67616d00001e0237640fbe723ff8043bdc4b48)
 
-**Album:** The Magnificent Tree
+**Album:** Pa´Morirse De Amor
 
-📅 2022-10-12 21:54:13
+📅 2022-10-13 01:01:07
 
 
-# **Holy Ghost** / Bent Knee
+# **Bolero Falaz** / Aterciopelados
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
 
-**Album:** Land Animal
+**Album:** Originales - 20 Exitos
 
-📅 2022-10-12 19:15:02
+📅 2022-10-13 00:57:25
 
 
-# **Fever** / The Black Keys
+# **Cómo Sé** / Julieta Venegas
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
 
-**Album:** Turn Blue
+**Album:** Aqui
 
-📅 2022-10-12 19:09:31
+📅 2022-10-13 00:53:39
 
 
-# **Oh I Wept** / Free
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Fire And Water
+**Album:** Bueninvento
 
-📅 2022-10-12 19:05:25
+📅 2022-10-13 00:50:27
 
 
-# **I Love You** / Woodkid
+# **Rompecabezas** / Aterciopelados
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
 
-**Album:** The Golden Age
+**Album:** Gozo Poderoso
 
-📅 2022-10-12 19:00:58
+📅 2022-10-13 00:47:01
 
 
-# **Congregation** / Low
+# **Te Llevo para Que Me Lleves** / Gustavo Cerati
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Amor Amarillo](https://i.scdn.co/image/ab67616d00001e0279b9b65561857c72bf2863ef)
 
-**Album:** Ones and Sixes
+**Album:** Amor Amarillo
 
-📅 2022-10-12 18:57:07
+📅 2022-10-13 00:42:49
 
 
-# **Mad About You** / Hooverphonic
+# **De Mis Pasos** / Julieta Venegas
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
 
-**Album:** The Magnificent Tree
+**Album:** Aqui
 
-📅 2022-10-12 18:53:15
+📅 2022-10-13 00:39:04
 
 
-# **Everything Now** / Arcade Fire
+# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
 
-![Foto del album: Everything Now](https://i.scdn.co/image/ab67616d00001e02a36d123f9906888d0af2aed8)
+![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
 
-**Album:** Everything Now
+**Album:** Reluciente, Rechinante y Aterciopelado
 
-📅 2022-10-12 11:11:50
+📅 2022-10-13 00:35:45
 
 
-# **Frank Sinatra** / CAKE
+# **Me Van a Matar** / Julieta Venegas
 
-![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0200df6727e2cfe905baa75c1e)
+![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
 
-**Album:** Fashion Nugget
+**Album:** Escena Alterlatina
 
-📅 2022-10-12 11:10:20
+📅 2022-10-13 00:30:53
 
 
-# **Happy Idiot** / TV On The Radio
+# **Rapto** / Gustavo Cerati
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
 
-**Album:** Seeds
+**Album:** Fuerza Natural
 
-📅 2022-10-12 11:06:20
+📅 2022-10-13 00:26:49
 
 
-# **This fffire - New Version** / Franz Ferdinand
+# **ERROR404** / DreamReaper
 
-![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
+![Foto del album: ERROR404](https://i.scdn.co/image/ab67616d00001e020033030c5fa470ca1c2b4ef1)
 
-**Album:** This fffire
+**Album:** ERROR404
 
-📅 2022-10-12 11:03:16
+📅 2022-10-13 00:21:22
 
 
-# **Independence Day** / Elliott Smith
+# **Kill the Messenger** / Rezodrone|The Cartesian Duelists
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Cyberpunk 2077: More Music from Night City Radio (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02247bf1341aea44ca29427f44)
 
-**Album:** XO
+**Album:** Cyberpunk 2077: More Music from Night City Radio (Original Soundtrack)
 
-📅 2022-10-12 10:59:38
+📅 2022-10-13 00:17:31
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **Trust In Me** / SENSE|No ExpressioN
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: Trust In Me](https://i.scdn.co/image/ab67616d00001e024136e20c7fd636c820b85c47)
 
-**Album:** Stop Making Sense (Live)
+**Album:** Trust In Me
 
-📅 2022-10-11 20:48:50
+📅 2022-10-13 00:14:02
 
 
-# **Relight My Fire - Single Version** / Dan Hartman
+# **Stopping You** / Jetique|Boy Apocalypse
 
-![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+![Foto del album: Stopping You](https://i.scdn.co/image/ab67616d00001e029d44a094987c64d05c336e71)
 
-**Album:** 70s Gems
+**Album:** Stopping You
 
-📅 2022-10-11 20:32:30
+📅 2022-10-13 00:11:54
+
+
+# **SHADOW** / Lexie Liu
+
+![Foto del album: 上线了 GONE GOLD](https://i.scdn.co/image/ab67616d00001e0246c0210d81ce5f162a2cca46)
+
+**Album:** 上线了 GONE GOLD
+
+📅 2022-10-13 00:08:57
+
+
+# **Eye In The Sky (Danko Edit)** / SRNDE|Danko
+
+![Foto del album: Eye In The Sky (Danko Edit)](https://i.scdn.co/image/ab67616d00001e02d8c2305eab34fe502afe56ae)
+
+**Album:** Eye In The Sky (Danko Edit)
+
+📅 2022-10-13 00:05:00
+
+
+# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
+
+📅 2022-10-13 00:02:17
 
 
 # **Let You Down** / Dawid Podsiadło
@@ -154,40 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Let You Down
 
-📅 2022-10-11 20:28:44
+📅 2022-10-12 23:58:10
 
 
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+# **Technology** / DON BROCO
 
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+![Foto del album: Technology](https://i.scdn.co/image/ab67616d00001e02c2df2decc310aadf6e401647)
 
-**Album:** iv
+**Album:** Technology
 
-📅 2022-10-11 20:24:57
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2022-10-11 20:21:08
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-10-11 20:15:58
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2022-10-11 20:12:46
+📅 2022-10-12 23:50:07
