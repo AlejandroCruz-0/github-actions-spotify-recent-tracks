@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-10-13 23:44:24
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-10-13 23:39:57
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-10-13 23:36:06
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-13 23:32:15
+
+
+# **Stopping You** / Jetique|Boy Apocalypse
+
+![Foto del album: Stopping You](https://i.scdn.co/image/ab67616d00001e02ecd7c4e2eecd2182dcdbf510)
+
+**Album:** Stopping You
+
+📅 2022-10-13 22:53:53
+
+
+# **SHADOW** / Lexie Liu
+
+![Foto del album: 上线了 GONE GOLD](https://i.scdn.co/image/ab67616d00001e0246c0210d81ce5f162a2cca46)
+
+**Album:** 上线了 GONE GOLD
+
+📅 2022-10-13 22:51:44
+
+
+# **Eye In The Sky (Danko Edit)** / SRNDE|Danko
+
+![Foto del album: Eye In The Sky (Danko Edit)](https://i.scdn.co/image/ab67616d00001e02d8c2305eab34fe502afe56ae)
+
+**Album:** Eye In The Sky (Danko Edit)
+
+📅 2022-10-13 22:47:47
+
+
+# **I Really Want to Stay at Your House** / Rosa Walton|Hallie Coggins
+
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
+
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
+
+📅 2022-10-13 22:45:04
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-10-13 22:40:57
+
+
+# **Turn me on** / BAND-MAID
+
+![Foto del album: WORLD DOMINATION](https://i.scdn.co/image/ab67616d00001e0215fb8bbb558441a045fbc281)
+
+**Album:** WORLD DOMINATION
+
+📅 2022-10-13 11:44:27
+
+
 # **This fffire - New Version** / Franz Ferdinand
 
 ![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Golden Age
 
 📅 2022-10-13 11:02:47
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-13 10:22:17
-
-
-# **Afroman** / Plastilina Mosh
-
-![Foto del album: Aquamosh](https://i.scdn.co/image/ab67616d00001e02ef93f4ddf5a296281f88dbb8)
-
-**Album:** Aquamosh
-
-📅 2022-10-13 01:07:29
-
-
-# **Puntos Cardinales** / Café Tacvba
-
-![Foto del album: Cuatro Caminos](https://i.scdn.co/image/ab67616d00001e02624927252564ef4625307897)
-
-**Album:** Cuatro Caminos
-
-📅 2022-10-13 01:05:51
-
-
-# **Peligro** / Ely Guerra
-
-![Foto del album: Pa´Morirse De Amor](https://i.scdn.co/image/ab67616d00001e0237640fbe723ff8043bdc4b48)
-
-**Album:** Pa´Morirse De Amor
-
-📅 2022-10-13 01:01:07
-
-
-# **Bolero Falaz** / Aterciopelados
-
-![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
-
-**Album:** Originales - 20 Exitos
-
-📅 2022-10-13 00:57:25
-
-
-# **Cómo Sé** / Julieta Venegas
-
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
-
-**Album:** Aqui
-
-📅 2022-10-13 00:53:39
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-10-13 00:50:27
-
-
-# **Rompecabezas** / Aterciopelados
-
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
-
-**Album:** Gozo Poderoso
-
-📅 2022-10-13 00:47:01
-
-
-# **Te Llevo para Que Me Lleves** / Gustavo Cerati
-
-![Foto del album: Amor Amarillo](https://i.scdn.co/image/ab67616d00001e0279b9b65561857c72bf2863ef)
-
-**Album:** Amor Amarillo
-
-📅 2022-10-13 00:42:49
-
-
-# **De Mis Pasos** / Julieta Venegas
-
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
-
-**Album:** Aqui
-
-📅 2022-10-13 00:39:04
