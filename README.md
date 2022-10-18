@@ -13,58 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Hello** / Adele
+# **Running Up That Hill (A Deal With God)** / Kate Bush
 
-![Foto del album: 25](https://i.scdn.co/image/ab67616d00001e022e88d7f65e6bea2a05202c14)
+![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
 
-**Album:** 25
+**Album:** Hounds Of Love
 
-📅 2022-10-16 19:51:01
-
-
-# **Tongo Barra** / Vieux Farka Touré|Khruangbin
-
-![Foto del album: Tongo Barra](https://i.scdn.co/image/ab67616d00001e0247e11170e07a97fce94d262c)
-
-**Album:** Tongo Barra
-
-📅 2022-10-16 19:45:26
+📅 2022-10-17 20:59:51
 
 
-# **Go Back** / Tony Allen|Damon Albarn
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: Nova Tunes 3.1](https://i.scdn.co/image/ab67616d00001e02bcd5dd11808a4a14cdf6f08b)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** Nova Tunes 3.1
+**Album:** Stop Making Sense (Live)
 
-📅 2022-10-16 18:35:16
-
-
-# **Goliath** / Woodkid
-
-![Foto del album: S16](https://i.scdn.co/image/ab67616d00001e029693fc6279d5c77d467c3c3b)
-
-**Album:** S16
-
-📅 2022-10-16 18:30:25
-
-
-# **I Love You - Acoustic** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-10-16 18:26:34
-
-
-# **The Golden Age** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-10-16 18:21:45
+📅 2022-10-17 20:54:51
 
 
 # **Run Boy Run - Instrumental** / Woodkid
@@ -73,79 +37,16 @@ Nombre: **lotario1999**
 
 **Album:** Run Boy Run
 
-📅 2022-10-16 18:18:00
+📅 2022-10-17 20:50:44
 
 
-# **I Love You** / Woodkid
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
 
-**Album:** The Golden Age
+**Album:** iv
 
-📅 2022-10-16 18:14:26
-
-
-# **Paper Bag** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2022-10-16 16:52:28
-
-
-# **Tom The Model** / Beth Gibbons|Rustin Man
-
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
-
-**Album:** Out Of Season
-
-📅 2022-10-16 16:48:48
-
-
-# **Pastime** / Samantha Crain
-
-![Foto del album: A Small Death](https://i.scdn.co/image/ab67616d00001e025329cae1e649fd699f35539a)
-
-**Album:** A Small Death
-
-📅 2022-10-16 16:45:07
-
-
-# **Done** / Frazey Ford
-
-![Foto del album: Indian Ocean](https://i.scdn.co/image/ab67616d00001e023ddd4bb596b436920330a048)
-
-**Album:** Indian Ocean
-
-📅 2022-10-16 16:41:39
-
-
-# **Human Behaviour** / Björk
-
-![Foto del album: Debut](https://i.scdn.co/image/ab67616d00001e02768d171a47a3adae90c7c48a)
-
-**Album:** Debut
-
-📅 2022-10-16 16:36:57
-
-
-# **Teardrop** / Massive Attack
-
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
-
-**Album:** Mezzanine
-
-📅 2022-10-16 16:32:44
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2022-10-16 16:27:13
+📅 2022-10-17 20:47:10
 
 
 # **Stolen Car** / Beth Orton
@@ -154,16 +55,79 @@ Nombre: **lotario1999**
 
 **Album:** Central Reservation
 
-📅 2022-10-16 16:21:31
+📅 2022-10-17 20:43:21
 
 
-# **Run Boy Run - Instrumental** / Woodkid
+# **This fffire - New Version** / Franz Ferdinand
 
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
 
-**Album:** Run Boy Run
+**Album:** This fffire
 
-📅 2022-10-16 16:10:07
+📅 2022-10-17 20:37:55
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-10-17 20:34:17
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-10-17 20:29:06
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-10-17 20:25:53
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-10-17 20:20:07
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-10-17 20:14:33
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-10-17 20:10:26
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-10-17 20:05:59
 
 
 # **I Love You** / Woodkid
@@ -172,22 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-10-16 16:06:32
+📅 2022-10-17 20:02:07
 
 
-# **Goliath** / Woodkid
+# **Stolen Car** / Beth Orton
 
-![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
 
-**Album:** Goliath
+**Album:** Central Reservation
 
-📅 2022-10-16 13:21:31
+📅 2022-10-17 18:07:46
 
 
-# **Run Boy Run - Instrumental** / Woodkid
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Run Boy Run
+**Album:** The Magnificent Tree
 
-📅 2022-10-16 13:21:14
+📅 2022-10-17 18:02:18
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-10-17 13:29:05
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-10-17 13:27:44
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-10-17 13:23:40
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-10-17 13:18:07
