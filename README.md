@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Carmín** / León Larregui
+
+![Foto del album: Solstis - De León Larregui](https://i.scdn.co/image/ab67616d00001e025be353af3e7d01599fbbda14)
+
+**Album:** Solstis - De León Larregui
+
+📅 2022-10-21 00:13:31
+
+
+# **Caminar Sola** / Julieta Venegas
+
+![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
+
+**Album:** Caminar Sola
+
+📅 2022-10-21 00:09:40
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-20 16:46:12
+
+
 # **Fever** / The Black Keys
 
 ![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Golden Age
 
 📅 2022-10-19 09:37:02
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-19 09:33:11
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-10-19 09:28:54
-
-
-# **Let You Down** / Dawid Podsiadło
-
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
-
-**Album:** Let You Down
-
-📅 2022-10-18 21:19:48
