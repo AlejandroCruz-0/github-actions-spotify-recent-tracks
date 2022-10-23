@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **The Kenari War Cry** / Nicholas Britell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2022-10-21 16:41:30
+📅 2022-10-22 22:01:21
 
 
-# **Luthen Rael** / Nicholas Britell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2022-10-21 16:39:58
+📅 2022-10-22 21:52:19
 
 
-# **Who Else Knows?** / Nicholas Britell
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Land Animal
 
-📅 2022-10-21 16:38:33
+📅 2022-10-22 20:38:30
 
 
-# **End of Day** / Nicholas Britell
+# **Fever** / The Black Keys
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Turn Blue
 
-📅 2022-10-21 16:36:47
+📅 2022-10-22 20:33:17
 
 
-# **Andor (Main Title Theme) - Episode 2** / Nicholas Britell
+# **Oh I Wept** / Free
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Fire And Water
 
-📅 2022-10-21 16:35:25
+📅 2022-10-22 20:29:11
 
 
-# **The Cassian Way** / Nicholas Britell
+# **Congregation** / Low
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Ones and Sixes
 
-📅 2022-10-21 16:34:33
+📅 2022-10-22 20:24:43
 
 
-# **Kenari Male Wanted for Questioning** / Nicholas Britell
+# **I Love You** / Woodkid
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Golden Age
 
-📅 2022-10-21 16:32:52
+📅 2022-10-22 20:20:51
 
 
-# **Bix Has a Secret** / Nicholas Britell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2022-10-21 16:31:52
+📅 2022-10-22 20:17:01
 
 
-# **Kenari Council** / Nicholas Britell
+# **Fever** / The Black Keys
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Turn Blue
 
-📅 2022-10-21 16:30:45
+📅 2022-10-22 20:00:05
 
 
-# **Bix Caleen** / Nicholas Britell
+# **Oh I Wept** / Free
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Fire And Water
 
-📅 2022-10-21 16:28:57
+📅 2022-10-22 19:48:45
 
 
-# **Rix Road** / Nicholas Britell
+# **Congregation** / Low
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Ones and Sixes
 
-📅 2022-10-21 16:28:07
+📅 2022-10-22 19:44:18
 
 
-# **B2** / Nicholas Britell
+# **I Love You** / Woodkid
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Golden Age
 
-📅 2022-10-21 16:26:16
+📅 2022-10-22 19:40:27
 
 
-# **Pre-Mor Shakedown** / Nicholas Britell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2022-10-21 16:24:59
+📅 2022-10-22 19:36:36
 
 
-# **Morlana Drop** / Nicholas Britell
+# **Oh I Wept** / Free
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Fire And Water
 
-📅 2022-10-21 16:24:02
+📅 2022-10-22 12:41:05
 
 
-# **Niamos! (Morlana Club Mix)** / Nicholas Britell
+# **Congregation** / Low
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Ones and Sixes
 
-📅 2022-10-21 16:22:17
+📅 2022-10-22 12:28:06
 
 
-# **End of Day** / Nicholas Britell
+# **I Love You** / Woodkid
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Golden Age
 
-📅 2022-10-21 16:20:07
+📅 2022-10-22 12:24:14
 
 
-# **Andor (Main Title Theme) - Episode 2** / Nicholas Britell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2022-10-21 16:18:46
+📅 2022-10-22 12:20:24
 
 
-# **The Cassian Way** / Nicholas Britell
+# **Congregation** / Low
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Ones and Sixes
 
-📅 2022-10-21 16:17:54
+📅 2022-10-22 11:16:49
 
 
-# **Kenari Male Wanted for Questioning** / Nicholas Britell
+# **I Love You** / Woodkid
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Golden Age
 
-📅 2022-10-21 16:16:13
+📅 2022-10-22 11:16:25
 
 
-# **Bix Has a Secret** / Nicholas Britell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2022-10-21 16:15:13
+📅 2022-10-22 11:12:35
