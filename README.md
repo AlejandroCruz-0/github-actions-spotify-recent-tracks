@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **I Love You** / Woodkid
+# **I Didn't Understand** / Elliott Smith
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** The Golden Age
+**Album:** XO
 
-📅 2022-10-23 01:34:42
+📅 2022-10-23 19:33:21
 
 
-# **Mad About You** / Hooverphonic
+# **Everybody Cares, Everybody Understands** / Elliott Smith
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** The Magnificent Tree
+**Album:** XO
 
-📅 2022-10-23 01:30:51
+📅 2022-10-23 19:31:04
 
 
-# **Never Let You Down - From The "Insurgent" Soundtrack** / Woodkid|Lykke Li
+# **A Question Mark** / Elliott Smith
 
-![Foto del album: Uncharted Territory](https://i.scdn.co/image/ab67616d00001e02f6eaa3be559108fda6ac70bf)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Uncharted Territory
+**Album:** XO
 
-📅 2022-10-22 23:23:20
+📅 2022-10-23 19:26:38
 
 
-# **Land Of All** / Woodkid
+# **Bottle Up And Explode!** / Elliott Smith
 
-![Foto del album: Desierto (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e02107c92e6629573c0d7524e25)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Desierto (Original Motion Picture Score)
+**Album:** XO
 
-📅 2022-10-22 23:18:46
+📅 2022-10-23 19:23:57
 
 
-# **Horizons Into Battlegrounds** / Woodkid
+# **Oh Well, OK** / Elliott Smith
 
-![Foto del album: S16](https://i.scdn.co/image/ab67616d00001e029693fc6279d5c77d467c3c3b)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** S16
+**Album:** XO
 
-📅 2022-10-22 23:13:29
+📅 2022-10-23 19:20:59
 
 
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
+# **Amity** / Elliott Smith
 
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+**Album:** XO
 
-📅 2022-10-22 23:09:47
+📅 2022-10-23 19:18:25
 
 
-# **Goliath** / Woodkid
+# **Waltz #1** / Elliott Smith
 
-![Foto del album: Goliath](https://i.scdn.co/image/ab67616d00001e02ba134b964a5818f3f84b7274)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Goliath
+**Album:** XO
 
-📅 2022-10-22 23:06:00
+📅 2022-10-23 19:16:06
 
 
-# **Run Boy Run - Instrumental** / Woodkid
+# **Bled White** / Elliott Smith
 
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Run Boy Run
+**Album:** XO
 
-📅 2022-10-22 23:02:11
+📅 2022-10-23 19:12:43
 
 
-# **I Love You** / Woodkid
+# **Independence Day** / Elliott Smith
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** The Golden Age
+**Album:** XO
 
-📅 2022-10-22 22:58:36
+📅 2022-10-23 19:09:20
 
 
-# **Congregation** / Low
+# **Pitseleh** / Elliott Smith
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Ones and Sixes
+**Album:** XO
 
-📅 2022-10-22 22:54:26
+📅 2022-10-23 19:06:16
 
 
-# **I Love You** / Woodkid
+# **Baby Britain** / Elliott Smith
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** The Golden Age
+**Album:** XO
 
-📅 2022-10-22 22:05:11
+📅 2022-10-23 19:02:53
 
 
-# **Mad About You** / Hooverphonic
+# **Waltz #2 (XO)** / Elliott Smith
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** The Magnificent Tree
+**Album:** XO
 
-📅 2022-10-22 22:01:21
+📅 2022-10-23 18:59:39
 
 
-# **Mad About You** / Hooverphonic
+# **dying breath** / updog
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: balloon boy](https://i.scdn.co/image/ab67616d00001e02f46fc5c6b3d6698edacf9c5d)
 
-**Album:** The Magnificent Tree
+**Album:** balloon boy
 
-📅 2022-10-22 21:52:19
+📅 2022-10-23 18:47:37
 
 
-# **Holy Ghost** / Bent Knee
+# **DWI** / MISSIO
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Land Animal
+**Album:** Loner
 
-📅 2022-10-22 20:38:30
+📅 2022-10-23 18:37:06
 
 
-# **Fever** / The Black Keys
+# **I Don't Give A... (feat. Zeale)** / MISSIO|Zeale
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Turn Blue
+**Album:** Loner
 
-📅 2022-10-22 20:33:17
+📅 2022-10-23 18:33:21
 
 
-# **Oh I Wept** / Free
+# **Everybody Gets High** / MISSIO
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Fire And Water
+**Album:** Loner
 
-📅 2022-10-22 20:29:11
+📅 2022-10-23 18:29:50
 
 
-# **Congregation** / Low
+# **Twisted** / MISSIO
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Ones and Sixes
+**Album:** Loner
 
-📅 2022-10-22 20:24:43
+📅 2022-10-23 18:26:18
 
 
-# **I Love You** / Woodkid
+# **KDV (feat. SHUG)** / MISSIO|Shug
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** The Golden Age
+**Album:** Loner
 
-📅 2022-10-22 20:20:51
+📅 2022-10-23 18:21:47
 
 
-# **Mad About You** / Hooverphonic
+# **Kamikazee** / MISSIO
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** The Magnificent Tree
+**Album:** Loner
 
-📅 2022-10-22 20:17:01
+📅 2022-10-23 18:17:58
 
 
-# **Fever** / The Black Keys
+# **Bottom Of The Deep Blue Sea** / MISSIO
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Turn Blue
+**Album:** Loner
 
-📅 2022-10-22 20:00:05
+📅 2022-10-23 18:14:16
