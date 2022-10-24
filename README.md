@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Secretly** / Skunk Anansie
+
+![Foto del album: Post Orgasmic Chill](https://i.scdn.co/image/ab67616d00001e02fc7dc3553f8c182c5cc1e00a)
+
+**Album:** Post Orgasmic Chill
+
+📅 2022-10-24 08:54:46
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-10-24 08:49:22
+
+
+# **Waltz #2 (XO)** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-10-24 08:37:51
+
+
 # **I Didn't Understand** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Loner
 
 📅 2022-10-23 18:26:18
-
-
-# **KDV (feat. SHUG)** / MISSIO|Shug
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-10-23 18:21:47
-
-
-# **Kamikazee** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-10-23 18:17:58
-
-
-# **Bottom Of The Deep Blue Sea** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2022-10-23 18:14:16
