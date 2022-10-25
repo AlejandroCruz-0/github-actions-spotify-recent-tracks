@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Secretly** / Skunk Anansie
+# **打ち寄せられた忘却の残響に** / Technoboys Pulcraft Green-Fund|Yuki Otake
 
-![Foto del album: Post Orgasmic Chill](https://i.scdn.co/image/ab67616d00001e02fc7dc3553f8c182c5cc1e00a)
+![Foto del album: MUSIC FOR ANIMATIONS (Lantis Edition)](https://i.scdn.co/image/ab67616d00001e029076752a0295e1ea7de6b694)
 
-**Album:** Post Orgasmic Chill
+**Album:** MUSIC FOR ANIMATIONS (Lantis Edition)
 
-📅 2022-10-24 08:54:46
+📅 2022-10-24 21:23:02
 
 
-# **Bottle Up And Explode!** / Elliott Smith
+# **ME & CREED <nZkv>** / SawanoHiroyuki[nZk]|Sayuri
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: R∃/MEMBER](https://i.scdn.co/image/ab67616d00001e02479313307f6c3b116041711d)
 
-**Album:** XO
+**Album:** R∃/MEMBER
 
-📅 2022-10-24 08:49:22
+📅 2022-10-24 21:17:25
 
 
-# **Waltz #2 (XO)** / Elliott Smith
+# **砂糖玉の月** / yanaginagi
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: here and there/砂糖玉の月](https://i.scdn.co/image/ab67616d00001e02f3ca40d8557edf1e345f0623)
 
-**Album:** XO
+**Album:** here and there/砂糖玉の月
 
-📅 2022-10-24 08:37:51
+📅 2022-10-24 21:13:57
 
 
-# **I Didn't Understand** / Elliott Smith
+# **here and there** / yanaginagi
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e0214baea007f85002691574977)
 
-**Album:** XO
+**Album:** ナッテ
 
-📅 2022-10-23 19:33:21
+📅 2022-10-24 21:09:18
 
 
-# **Everybody Cares, Everybody Understands** / Elliott Smith
+# **Dead Alive** / Stonefield
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: BENT](https://i.scdn.co/image/ab67616d00001e0270162774ec958dc047559e9d)
 
-**Album:** XO
+**Album:** BENT
 
-📅 2022-10-23 19:31:04
+📅 2022-10-24 21:02:45
 
 
-# **A Question Mark** / Elliott Smith
+# **Give Me an Answer** / Low Roar
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Once in a Long, Long While...](https://i.scdn.co/image/ab67616d00001e020a5bc6cd17930648973e9c65)
 
-**Album:** XO
+**Album:** Once in a Long, Long While...
 
-📅 2022-10-23 19:26:38
+📅 2022-10-24 20:59:24
 
 
-# **Bottle Up And Explode!** / Elliott Smith
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** XO
+**Album:** Land Animal
 
-📅 2022-10-23 19:23:57
+📅 2022-10-24 20:55:39
 
 
-# **Oh Well, OK** / Elliott Smith
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** XO
+**Album:** Land Animal
 
-📅 2022-10-23 19:20:59
+📅 2022-10-24 20:50:13
 
 
-# **Amity** / Elliott Smith
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** XO
+**Album:** Panic
 
-📅 2022-10-23 19:18:25
+📅 2022-10-24 20:49:00
 
 
-# **Waltz #1** / Elliott Smith
+# **Stolen Car** / Beth Orton
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
 
-**Album:** XO
+**Album:** Central Reservation
 
-📅 2022-10-23 19:16:06
+📅 2022-10-24 20:45:47
 
 
-# **Bled White** / Elliott Smith
+# **Mad About You** / Hooverphonic
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** XO
+**Album:** The Magnificent Tree
 
-📅 2022-10-23 19:12:43
+📅 2022-10-24 20:39:29
 
 
-# **Independence Day** / Elliott Smith
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** XO
+**Album:** Land Animal
 
-📅 2022-10-23 19:09:20
+📅 2022-10-24 20:35:47
 
 
-# **Pitseleh** / Elliott Smith
+# **Subterranean Homesick Blues** / Bob Dylan
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Bringing It All Back Home](https://i.scdn.co/image/ab67616d00001e026960c5f4eb72f0c06aa92181)
 
-**Album:** XO
+**Album:** Bringing It All Back Home
 
-📅 2022-10-23 19:06:16
+📅 2022-10-24 19:56:53
 
 
-# **Baby Britain** / Elliott Smith
+# **Closing Time** / Leonard Cohen
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
 
-**Album:** XO
+**Album:** The Future
 
-📅 2022-10-23 19:02:53
+📅 2022-10-24 19:54:31
 
 
-# **Waltz #2 (XO)** / Elliott Smith
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** XO
+**Album:** Still Crazy After All These Years
 
-📅 2022-10-23 18:59:39
+📅 2022-10-24 19:17:35
 
 
-# **dying breath** / updog
+# **Holding On** / Aloboi
 
-![Foto del album: balloon boy](https://i.scdn.co/image/ab67616d00001e02f46fc5c6b3d6698edacf9c5d)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** balloon boy
+**Album:** Holding On
 
-📅 2022-10-23 18:47:37
+📅 2022-10-24 19:05:46
 
 
-# **DWI** / MISSIO
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Loner
+**Album:** Land Animal
 
-📅 2022-10-23 18:37:06
+📅 2022-10-24 19:05:15
 
 
-# **I Don't Give A... (feat. Zeale)** / MISSIO|Zeale
+# **Fever** / The Black Keys
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Loner
+**Album:** Turn Blue
 
-📅 2022-10-23 18:33:21
+📅 2022-10-24 18:56:02
 
 
-# **Everybody Gets High** / MISSIO
+# **Oh I Wept** / Free
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Loner
+**Album:** Fire And Water
 
-📅 2022-10-23 18:29:50
+📅 2022-10-24 18:51:54
 
 
-# **Twisted** / MISSIO
+# **Congregation** / Low
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Loner
+**Album:** Ones and Sixes
 
-📅 2022-10-23 18:26:18
+📅 2022-10-24 18:47:27
