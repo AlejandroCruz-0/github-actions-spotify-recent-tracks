@@ -13,76 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **打ち寄せられた忘却の残響に** / Technoboys Pulcraft Green-Fund|Yuki Otake
+# **Relight My Fire - Single Version** / Dan Hartman
 
-![Foto del album: MUSIC FOR ANIMATIONS (Lantis Edition)](https://i.scdn.co/image/ab67616d00001e029076752a0295e1ea7de6b694)
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
 
-**Album:** MUSIC FOR ANIMATIONS (Lantis Edition)
+**Album:** 70s Gems
 
-📅 2022-10-24 21:23:02
-
-
-# **ME & CREED <nZkv>** / SawanoHiroyuki[nZk]|Sayuri
-
-![Foto del album: R∃/MEMBER](https://i.scdn.co/image/ab67616d00001e02479313307f6c3b116041711d)
-
-**Album:** R∃/MEMBER
-
-📅 2022-10-24 21:17:25
+📅 2022-10-25 21:08:46
 
 
-# **砂糖玉の月** / yanaginagi
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
 
-![Foto del album: here and there/砂糖玉の月](https://i.scdn.co/image/ab67616d00001e02f3ca40d8557edf1e345f0623)
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
 
-**Album:** here and there/砂糖玉の月
+**Album:** iv
 
-📅 2022-10-24 21:13:57
-
-
-# **here and there** / yanaginagi
-
-![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e0214baea007f85002691574977)
-
-**Album:** ナッテ
-
-📅 2022-10-24 21:09:18
+📅 2022-10-25 21:05:00
 
 
-# **Dead Alive** / Stonefield
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: BENT](https://i.scdn.co/image/ab67616d00001e0270162774ec958dc047559e9d)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** BENT
+**Album:** Stop Making Sense (Live)
 
-📅 2022-10-24 21:02:45
-
-
-# **Give Me an Answer** / Low Roar
-
-![Foto del album: Once in a Long, Long While...](https://i.scdn.co/image/ab67616d00001e020a5bc6cd17930648973e9c65)
-
-**Album:** Once in a Long, Long While...
-
-📅 2022-10-24 20:59:24
+📅 2022-10-25 21:01:12
 
 
-# **Holy Ghost** / Bent Knee
+# **This fffire - New Version** / Franz Ferdinand
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
 
-**Album:** Land Animal
+**Album:** This fffire
 
-📅 2022-10-24 20:55:39
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-10-24 20:50:13
+📅 2022-10-25 20:57:06
 
 
 # **Rock It for Me** / Caravan Palace
@@ -91,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Panic
 
-📅 2022-10-24 20:49:00
+📅 2022-10-25 20:53:24
 
 
 # **Stolen Car** / Beth Orton
@@ -100,52 +64,52 @@ Nombre: **lotario1999**
 
 **Album:** Central Reservation
 
-📅 2022-10-24 20:45:47
+📅 2022-10-25 20:50:12
 
 
-# **Mad About You** / Hooverphonic
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
-**Album:** The Magnificent Tree
+**Album:** Ride The Lightning (Remastered)
 
-📅 2022-10-24 20:39:29
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-10-24 20:35:47
+📅 2022-10-25 20:44:46
 
 
-# **Subterranean Homesick Blues** / Bob Dylan
+# **Let You Down** / Dawid Podsiadło
 
-![Foto del album: Bringing It All Back Home](https://i.scdn.co/image/ab67616d00001e026960c5f4eb72f0c06aa92181)
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
 
-**Album:** Bringing It All Back Home
+**Album:** Let You Down
 
-📅 2022-10-24 19:56:53
-
-
-# **Closing Time** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
-
-**Album:** The Future
-
-📅 2022-10-24 19:54:31
+📅 2022-10-25 20:39:36
 
 
-# **50 Ways to Leave Your Lover** / Paul Simon
+# **Run Boy Run - Instrumental** / Woodkid
 
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
 
-**Album:** Still Crazy After All These Years
+**Album:** Run Boy Run
 
-📅 2022-10-24 19:17:35
+📅 2022-10-25 20:35:48
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-10-25 20:32:13
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-10-25 20:28:28
 
 
 # **Holding On** / Aloboi
@@ -154,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Holding On
 
-📅 2022-10-24 19:05:46
+📅 2022-10-25 20:23:57
 
 
 # **Holy Ghost** / Bent Knee
@@ -163,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-10-24 19:05:15
+📅 2022-10-25 20:19:54
 
 
 # **Fever** / The Black Keys
@@ -172,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2022-10-24 18:56:02
+📅 2022-10-25 20:14:20
 
 
 # **Oh I Wept** / Free
@@ -181,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-10-24 18:51:54
+📅 2022-10-25 20:10:13
 
 
 # **Congregation** / Low
@@ -190,4 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-10-24 18:47:27
+📅 2022-10-25 20:05:46
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-10-25 20:01:54
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-25 19:58:03
+
+
+# **ODEKA ke Chocobo** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2022-10-25 18:08:51
+
+
+# **Fisherman's Horizon** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2022-10-25 18:08:40
