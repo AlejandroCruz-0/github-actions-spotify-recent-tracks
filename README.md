@@ -19,61 +19,79 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-28 09:16:07
+📅 2022-10-28 21:19:13
 
 
-# **Bled White** / Elliott Smith
+# **Bix Has a Secret** / Nicholas Britell
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** XO
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2022-10-27 12:27:49
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-10-27 12:17:21
+📅 2022-10-28 12:32:02
 
 
-# **Pitseleh** / Elliott Smith
+# **Kenari Council** / Nicholas Britell
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** XO
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2022-10-27 12:14:16
-
-
-# **Baby Britain** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-10-27 12:10:48
+📅 2022-10-28 12:31:41
 
 
-# **Waltz #2 (XO)** / Elliott Smith
+# **Bix Caleen** / Nicholas Britell
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** XO
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2022-10-27 12:07:34
+📅 2022-10-28 12:29:53
 
 
-# **Holding On** / Aloboi
+# **Rix Road** / Nicholas Britell
 
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** Holding On
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2022-10-26 17:10:56
+📅 2022-10-28 12:29:03
+
+
+# **B2** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2022-10-28 12:27:12
+
+
+# **Pre-Mor Shakedown** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2022-10-28 12:25:55
+
+
+# **Morlana Drop** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2022-10-28 12:24:58
+
+
+# **Niamos! (Morlana Club Mix)** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2022-10-28 12:23:13
 
 
 # **Holy Ghost** / Bent Knee
@@ -82,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-10-26 17:00:13
+📅 2022-10-28 11:25:45
 
 
 # **Fever** / The Black Keys
@@ -91,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2022-10-26 16:54:39
+📅 2022-10-28 11:24:34
 
 
 # **Congregation** / Low
@@ -100,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-10-26 16:50:32
+📅 2022-10-28 11:20:27
 
 
 # **Oh I Wept** / Free
@@ -109,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-10-26 16:46:39
+📅 2022-10-28 11:16:34
 
 
 # **I Love You** / Woodkid
@@ -118,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-10-26 16:42:13
+📅 2022-10-28 11:12:07
 
 
 # **Mad About You** / Hooverphonic
@@ -127,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-26 16:38:22
+📅 2022-10-28 11:08:18
 
 
 # **Mad About You** / Hooverphonic
@@ -136,7 +154,16 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-26 16:29:23
+📅 2022-10-28 10:24:02
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-10-28 10:03:10
 
 
 # **I Love You** / Woodkid
@@ -145,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-10-26 16:24:21
+📅 2022-10-28 10:00:49
 
 
 # **Mad About You** / Hooverphonic
@@ -154,16 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-26 16:20:30
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2022-10-26 12:19:06
+📅 2022-10-28 09:56:58
 
 
 # **Holy Ghost** / Bent Knee
@@ -172,22 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-10-26 12:01:23
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-10-26 11:55:49
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-10-26 11:51:42
+📅 2022-10-28 09:47:41
