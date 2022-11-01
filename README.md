@@ -13,85 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-10-31 09:17:34
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-10-31 09:13:27
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-31 09:07:44
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-10-31 00:38:16
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-10-31 00:38:06
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-31 00:34:15
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-10-30 21:57:36
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2022-10-30 20:38:14
-
-
 # **Fuel** / Metallica
 
 ![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
 
 **Album:** Reload
 
-📅 2022-10-30 20:34:41
+📅 2022-10-31 19:05:09
 
 
 # **Holding On** / Aloboi
@@ -100,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Holding On
 
-📅 2022-10-30 20:30:11
+📅 2022-10-31 19:00:20
 
 
 # **Fever** / The Black Keys
@@ -109,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2022-10-30 20:26:07
+📅 2022-10-31 18:56:17
 
 
 # **Holy Ghost** / Bent Knee
@@ -118,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-10-30 20:22:00
+📅 2022-10-31 18:52:10
 
 
 # **Oh I Wept** / Free
@@ -127,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-10-30 20:16:26
+📅 2022-10-31 18:46:35
 
 
 # **Congregation** / Low
@@ -136,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-10-30 20:11:59
+📅 2022-10-31 18:42:08
 
 
 # **I Love You** / Woodkid
@@ -145,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-10-30 20:08:07
+📅 2022-10-31 18:38:16
 
 
 # **Mad About You** / Hooverphonic
@@ -154,7 +82,34 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-30 20:04:17
+📅 2022-10-31 18:34:26
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-10-31 18:05:58
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-10-31 18:05:19
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-10-31 18:01:12
 
 
 # **Oh I Wept** / Free
@@ -163,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-10-30 19:55:43
+📅 2022-10-31 17:55:37
 
 
 # **Congregation** / Low
@@ -172,7 +127,16 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-10-30 19:41:31
+📅 2022-10-31 17:51:10
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-10-31 17:47:18
 
 
 # **Mad About You** / Hooverphonic
@@ -181,13 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-10-30 19:37:21
+📅 2022-10-31 17:43:28
 
 
-# **The Curse** / Agnes Obel
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Aventine
+**Album:** Land Animal
 
-📅 2022-10-30 10:41:55
+📅 2022-10-31 17:20:19
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-10-31 17:19:22
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-10-31 17:14:54
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-10-31 17:11:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-10-31 17:07:12
