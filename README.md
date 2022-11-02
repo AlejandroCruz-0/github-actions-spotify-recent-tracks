@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-02 08:31:00
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-02 08:27:09
+
+
+# **Bled White** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-11-01 16:56:45
+
+
 # **Independence Day** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** RAVE
 
 📅 2022-11-01 11:53:12
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2022-10-31 19:10:13
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-10-31 19:05:09
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2022-10-31 19:00:20
