@@ -19,6 +19,69 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
+📅 2022-11-03 12:52:31
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-03 12:52:24
+
+
+# **Smoke & Mirrors** / Agnes Obel
+
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+
+**Album:** Aventine
+
+📅 2022-11-03 11:58:46
+
+
+# **Fivefold** / Agnes Obel
+
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+
+**Album:** Aventine
+
+📅 2022-11-03 11:57:53
+
+
+# **Words Are Dead** / Agnes Obel
+
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+
+**Album:** Aventine
+
+📅 2022-11-03 11:55:54
+
+
+# **Pass Them By** / Agnes Obel
+
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+
+**Album:** Aventine
+
+📅 2022-11-03 11:52:07
+
+
+# **The Curse** / Agnes Obel
+
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+
+**Album:** Aventine
+
+📅 2022-11-03 11:48:36
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
 📅 2022-11-02 21:36:39
 
 
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Mezzanine
 
 📅 2022-11-02 10:46:05
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2022-11-02 10:45:58
-
-
-# **6 Underground** / Sneaker Pimps
-
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
-
-**Album:** Becoming X
-
-📅 2022-11-02 10:40:31
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-02 08:33:25
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-02 08:31:00
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-02 08:27:09
-
-
-# **Bled White** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-11-01 16:56:45
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-11-01 16:56:30
