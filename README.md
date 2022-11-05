@@ -13,13 +13,76 @@ Nombre: **lotario1999**
 
 
 
+# **Perihelion** / Sungazer|Joshua de la Victoria
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:58:05
+
+
+# **Days into Nights** / Sungazer|JAE SOTO
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:57:59
+
+
+# **Lunar** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:54:19
+
+
+# **The Dark** / Sungazer|Hannah Sumner
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:49:53
+
+
+# **All These People** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:46:13
+
+
+# **Macchina** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:42:22
+
+
+# **Threshold** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-04 16:38:37
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
 **Album:** The Golden Age
 
-📅 2022-11-03 12:52:31
+📅 2022-11-04 16:34:05
 
 
 # **Mad About You** / Hooverphonic
@@ -28,70 +91,34 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-11-03 12:52:24
+📅 2022-11-04 16:30:14
 
 
-# **Smoke & Mirrors** / Agnes Obel
+# **Egg Replacer** / Bent Knee
 
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Aventine
+**Album:** You Know What They Mean
 
-📅 2022-11-03 11:58:46
-
-
-# **Fivefold** / Agnes Obel
-
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
-
-**Album:** Aventine
-
-📅 2022-11-03 11:57:53
+📅 2022-11-04 16:24:57
 
 
-# **Words Are Dead** / Agnes Obel
+# **Hold Me In** / Bent Knee
 
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Aventine
+**Album:** You Know What They Mean
 
-📅 2022-11-03 11:55:54
-
-
-# **Pass Them By** / Agnes Obel
-
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
-
-**Album:** Aventine
-
-📅 2022-11-03 11:52:07
+📅 2022-11-04 16:21:47
 
 
-# **The Curse** / Agnes Obel
+# **Fever** / The Black Keys
 
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Aventine
+**Album:** Turn Blue
 
-📅 2022-11-03 11:48:36
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-02 21:36:39
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-02 21:32:48
+📅 2022-11-04 16:14:06
 
 
 # **Holy Ghost** / Bent Knee
@@ -100,25 +127,16 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-11-02 21:29:00
+📅 2022-11-04 16:10:00
 
 
-# **Rompecabezas** / Aterciopelados
+# **Congregation** / Low
 
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Gozo Poderoso
+**Album:** Ones and Sixes
 
-📅 2022-11-02 19:07:49
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-11-02 19:03:37
+📅 2022-11-04 16:04:26
 
 
 # **Oh I Wept** / Free
@@ -127,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-11-02 15:51:25
+📅 2022-11-04 16:00:34
 
 
 # **I Love You** / Woodkid
@@ -136,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-11-02 15:51:10
+📅 2022-11-04 15:56:07
 
 
 # **Mad About You** / Hooverphonic
@@ -145,49 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-11-02 15:47:19
+📅 2022-11-04 15:52:16
 
 
-# **Human Behaviour** / Björk
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Debut](https://i.scdn.co/image/ab67616d00001e02768d171a47a3adae90c7c48a)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Debut
+**Album:** Land Animal
 
-📅 2022-11-02 15:21:58
-
-
-# **Pastime** / Samantha Crain
-
-![Foto del album: A Small Death](https://i.scdn.co/image/ab67616d00001e025329cae1e649fd699f35539a)
-
-**Album:** A Small Death
-
-📅 2022-11-02 15:18:21
+📅 2022-11-04 15:44:12
 
 
-# **September Fields** / Frazey Ford
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Indian Ocean](https://i.scdn.co/image/ab67616d00001e023ddd4bb596b436920330a048)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Indian Ocean
+**Album:** Land Animal
 
-📅 2022-11-02 15:14:53
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2022-11-02 15:11:25
+📅 2022-11-04 15:42:56
 
 
-# **Teardrop** / Massive Attack
+# **I Love You** / Woodkid
 
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Mezzanine
+**Album:** The Golden Age
 
-📅 2022-11-02 10:46:05
+📅 2022-11-04 14:44:49
