@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **Legend Has It** / Run The Jewels|El-P|Killer Mike
+
+![Foto del album: Run The Jewels 3](https://i.scdn.co/image/ab67616d00001e02708b420d0de80525f3d63206)
+
+**Album:** Run The Jewels 3
+
+📅 2022-11-05 23:18:47
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2022-11-05 22:58:17
+
+
+# **Fancy Clown** / Madvillain|Madlib|MF DOOM|Viktor Vaughn
+
+![Foto del album: Madvillainy](https://i.scdn.co/image/ab67616d00001e0274dc897ea75402db37ef239a)
+
+**Album:** Madvillainy
+
+📅 2022-11-05 22:55:00
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-11-05 22:53:04
+
+
+# **Legend Has It** / Run The Jewels|El-P|Killer Mike
+
+![Foto del album: Run The Jewels 3](https://i.scdn.co/image/ab67616d00001e02708b420d0de80525f3d63206)
+
+**Album:** Run The Jewels 3
+
+📅 2022-11-05 22:49:19
+
+
+# **A Mistake** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2022-11-05 22:20:13
+
+
+# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2022-11-05 22:15:16
+
+
+# **Sound & Color** / Alabama Shakes
+
+![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
+
+**Album:** Sound & Color (Deluxe Edition)
+
+📅 2022-11-05 22:11:29
+
+
+# **Bird Song** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 22:00:56
+
+
+# **Lovemenot** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 22:00:34
+
+
+# **Lovell** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 21:55:23
+
+
+# **Cradle of Rocks** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 21:53:57
+
+
 # **Egg Replacer** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-11-05 18:44:56
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
-
-**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
-
-📅 2022-11-05 09:27:35
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-11-05 09:23:48
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-05 08:58:13
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-05 08:54:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-04 22:29:13
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-04 21:33:58
-
-
-# **Perihelion** / Sungazer|Joshua de la Victoria
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:58:05
-
-
-# **Days into Nights** / Sungazer|JAE SOTO
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:57:59
-
-
-# **Lunar** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:54:19
-
-
-# **The Dark** / Sungazer|Hannah Sumner
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:49:53
-
-
-# **All These People** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:46:13
-
-
-# **Macchina** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:42:22
