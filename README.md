@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Egg Replacer** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 21:49:56
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 21:46:46
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-05 21:02:11
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-11-05 20:59:11
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-05 20:55:19
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-05 20:50:52
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-05 20:47:01
+
+
+# **Give Us the Gold** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-05 18:44:56
+
+
+# **Special - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Edition) [2018 - Remaster]](https://i.scdn.co/image/ab67616d00001e020f8bbcdfd6f38a37c1b3f72d)
+
+**Album:** Version 2.0 (20th Anniversary Edition) [2018 - Remaster]
+
+📅 2022-11-05 09:27:35
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-11-05 09:23:48
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Perihelion
 
 📅 2022-11-04 16:42:22
-
-
-# **Threshold** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-04 16:38:37
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-04 16:34:05
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-04 16:30:14
-
-
-# **Egg Replacer** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-04 16:24:57
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-04 16:21:47
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-11-04 16:14:06
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-04 16:10:00
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-11-04 16:04:26
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-04 16:00:34
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-04 15:56:07
