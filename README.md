@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-11-06 21:00:30
+
+
+# **Perihelion** / Sungazer|Joshua de la Victoria
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 15:24:29
+
+
+# **Days into Nights** / Sungazer|JAE SOTO
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 15:24:10
+
+
+# **Lunar** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 15:19:28
+
+
+# **The Dark** / Sungazer|Hannah Sumner
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 15:15:02
+
+
+# **The Dark** / Sungazer|Hannah Sumner
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 14:35:09
+
+
+# **All These People** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 12:39:54
+
+
+# **All These People** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 12:25:18
+
+
+# **Macchina** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 12:22:37
+
+
+# **Threshold** / Sungazer
+
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+
+**Album:** Perihelion
+
+📅 2022-11-06 12:18:52
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-05 23:59:24
+
+
 # **Legend Has It** / Run The Jewels|El-P|Killer Mike
 
 ![Foto del album: Run The Jewels 3](https://i.scdn.co/image/ab67616d00001e02708b420d0de80525f3d63206)
@@ -58,6 +157,15 @@ Nombre: **lotario1999**
 📅 2022-11-05 22:49:19
 
 
+# **I Ain’t Quite Where I Think I Am** / Arctic Monkeys
+
+![Foto del album: The Car](https://i.scdn.co/image/ab67616d00001e0207823ee6237208c835802663)
+
+**Album:** The Car
+
+📅 2022-11-05 22:20:43
+
+
 # **A Mistake** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Sound & Color (Deluxe Edition)
 
 📅 2022-11-05 22:11:29
-
-
-# **Bird Song** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 22:00:56
-
-
-# **Lovemenot** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 22:00:34
-
-
-# **Lovell** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 21:55:23
-
-
-# **Cradle of Rocks** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 21:53:57
-
-
-# **Egg Replacer** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 21:49:56
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 21:46:46
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-05 21:02:11
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-11-05 20:59:11
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-05 20:55:19
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-05 20:50:52
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-05 20:47:01
-
-
-# **Give Us the Gold** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-11-05 18:44:56
