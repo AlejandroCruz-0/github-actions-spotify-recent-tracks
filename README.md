@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Being Human** / Bent Knee
+
+![Foto del album: Shiny Eyed Babies](https://i.scdn.co/image/ab67616d00001e02c201f2419e571857323854b1)
+
+**Album:** Shiny Eyed Babies
+
+📅 2022-11-06 23:28:05
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-06 23:21:36
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-06 23:16:57
+
+
+# **These Hands** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-06 23:12:06
+
+
+# **Land Animal** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-06 23:06:29
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-06 23:01:14
+
+
 # **Sería Feliz** / Julieta Venegas
 
 ![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Madvillainy
 
 📅 2022-11-05 22:55:00
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-11-05 22:53:04
-
-
-# **Legend Has It** / Run The Jewels|El-P|Killer Mike
-
-![Foto del album: Run The Jewels 3](https://i.scdn.co/image/ab67616d00001e02708b420d0de80525f3d63206)
-
-**Album:** Run The Jewels 3
-
-📅 2022-11-05 22:49:19
-
-
-# **I Ain’t Quite Where I Think I Am** / Arctic Monkeys
-
-![Foto del album: The Car](https://i.scdn.co/image/ab67616d00001e0207823ee6237208c835802663)
-
-**Album:** The Car
-
-📅 2022-11-05 22:20:43
-
-
-# **A Mistake** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2022-11-05 22:20:13
-
-
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
-
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
-
-📅 2022-11-05 22:15:16
-
-
-# **Sound & Color** / Alabama Shakes
-
-![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
-
-**Album:** Sound & Color (Deluxe Edition)
-
-📅 2022-11-05 22:11:29
