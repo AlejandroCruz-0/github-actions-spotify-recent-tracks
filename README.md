@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **Land Animal** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-07 19:07:26
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-07 19:02:12
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-07 18:56:38
+
+
+# **Bone Rage** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-07 18:52:28
+
+
+# **Hole** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-07 18:48:14
+
+
+# **Belly Side Up** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-07 18:44:53
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-07 13:04:32
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-07 13:02:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-07 12:58:46
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-07 09:54:22
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-11-07 09:39:10
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-07 09:35:18
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-07 09:30:50
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-07 09:27:00
+
+
+# **Invest in Breakfast** / Bent Knee
+
+![Foto del album: Frosting](https://i.scdn.co/image/ab67616d00001e02e184dca0c352c6454e0777ae)
+
+**Album:** Frosting
+
+📅 2022-11-07 00:10:06
+
+
 # **Being Human** / Bent Knee
 
 ![Foto del album: Shiny Eyed Babies](https://i.scdn.co/image/ab67616d00001e02c201f2419e571857323854b1)
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2022-11-06 23:06:29
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-06 23:01:14
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-11-06 21:00:30
-
-
-# **Perihelion** / Sungazer|Joshua de la Victoria
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 15:24:29
-
-
-# **Days into Nights** / Sungazer|JAE SOTO
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 15:24:10
-
-
-# **Lunar** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 15:19:28
-
-
-# **The Dark** / Sungazer|Hannah Sumner
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 15:15:02
-
-
-# **The Dark** / Sungazer|Hannah Sumner
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 14:35:09
-
-
-# **All These People** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 12:39:54
-
-
-# **All These People** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 12:25:18
-
-
-# **Macchina** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 12:22:37
-
-
-# **Threshold** / Sungazer
-
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
-
-**Album:** Perihelion
-
-📅 2022-11-06 12:18:52
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-05 23:59:24
-
-
-# **Legend Has It** / Run The Jewels|El-P|Killer Mike
-
-![Foto del album: Run The Jewels 3](https://i.scdn.co/image/ab67616d00001e02708b420d0de80525f3d63206)
-
-**Album:** Run The Jewels 3
-
-📅 2022-11-05 23:18:47
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2022-11-05 22:58:17
-
-
-# **Fancy Clown** / Madvillain|Madlib|MF DOOM|Viktor Vaughn
-
-![Foto del album: Madvillainy](https://i.scdn.co/image/ab67616d00001e0274dc897ea75402db37ef239a)
-
-**Album:** Madvillainy
-
-📅 2022-11-05 22:55:00
