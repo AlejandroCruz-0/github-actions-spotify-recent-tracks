@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-11-13 08:45:35
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-11-13 08:41:32
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-11-13 08:37:25
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-11-13 08:31:50
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-13 08:27:59
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-13 08:24:08
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-13 08:19:41
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-12 17:20:06
+
+
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2022-11-11 20:00:41
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-11 19:56:50
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-11 19:52:59
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-11 19:48:31
-
-
-# **Land Animal** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-11 16:42:22
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-11 16:41:40
-
-
-# **Peligro** / Ely Guerra
-
-![Foto del album: Pa´Morirse De Amor](https://i.scdn.co/image/ab67616d00001e0237640fbe723ff8043bdc4b48)
-
-**Album:** Pa´Morirse De Amor
-
-📅 2022-11-11 16:27:46
-
-
-# **Caminar Sola** / Julieta Venegas
-
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
-
-**Album:** Caminar Sola
-
-📅 2022-11-11 16:25:06
-
-
-# **Hasta la Raíz** / Natalia Lafourcade
-
-![Foto del album: Hasta la Raíz (Edición Especial)](https://i.scdn.co/image/ab67616d00001e02bd4c237c04735257dd64c510)
-
-**Album:** Hasta la Raíz (Edición Especial)
-
-📅 2022-11-11 16:21:47
