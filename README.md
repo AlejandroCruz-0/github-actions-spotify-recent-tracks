@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Fisherman's Horizon** / Nobuo Uematsu
+# **Star Guardian 2022 - Official Orchestral Theme** / League of Legends
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Star Guardian 2022 (Official Orchestral Theme)](https://i.scdn.co/image/ab67616d00001e02f9bebf17ef1b0d79e1a7bfbd)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Star Guardian 2022 (Official Orchestral Theme)
 
-📅 2022-11-14 08:05:50
+📅 2022-11-14 14:47:53
 
 
-# **Mysterious - Shades Of Green Remix** / Hooverphonic
+# **Fall 'N' Roll** / Jukio Kallio|Daniel Hagström
 
-![Foto del album: Mysterious](https://i.scdn.co/image/ab67616d00001e02e4b8761db2ec468d38fc89cb)
+![Foto del album: Fall Guys (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02291c0a3a6c9eb4ff73d6ec70)
 
-**Album:** Mysterious
+**Album:** Fall Guys (Original Soundtrack)
 
-📅 2022-11-14 08:01:43
+📅 2022-11-14 14:42:44
 
 
-# **Julia** / Nobuo Uematsu
+# **The Last of Us Part II** / Gustavo Santaolalla
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: The Last of Us Part II (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e026582b0de8c4acde5f02f4f51)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** The Last of Us Part II (Original Soundtrack)
 
-📅 2022-11-13 23:20:59
+📅 2022-11-14 14:39:30
 
 
-# **The Man with the Machine Gun** / Nobuo Uematsu
+# **New York's Only Spider-Man** / John Paesano
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Marvel’s Spider-Man: Miles Morales (Original Video Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e026094c28a79dc47837fd269d9)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Marvel’s Spider-Man: Miles Morales (Original Video Game Soundtrack)
 
-📅 2022-11-13 23:19:56
+📅 2022-11-14 14:36:37
 
 
-# **Fear** / Nobuo Uematsu
+# **Assassin's Creed IV Black Flag Main Theme** / Brian Tyler|Assassin's Creed
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Assassin's Creed 4: Black Flag (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c6d155c7dc4f59e7d61f5859)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Assassin's Creed 4: Black Flag (Original Game Soundtrack)
 
-📅 2022-11-13 23:17:07
+📅 2022-11-14 14:33:43
 
 
-# **Tell Me** / Nobuo Uematsu
+# **Geralt Of Rivia** / Marcin Przybyłowicz
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: The Witcher 3: Wild Hunt (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02df756f52b91b4dcd656760b0)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** The Witcher 3: Wild Hunt (Original Game Soundtrack)
 
-📅 2022-11-13 23:14:42
+📅 2022-11-14 14:31:28
 
 
-# **Waltz for the Moon** / Nobuo Uematsu
+# **The Rebel Path** / P.T. Adamczyk
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Cyberpunk 2077 - Original Score](https://i.scdn.co/image/ab67616d00001e02ca593ba6b61b7a164ae408b9)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Cyberpunk 2077 - Original Score
 
-📅 2022-11-13 23:11:17
+📅 2022-11-14 14:29:06
 
 
-# **Shuffle or Boogie** / Nobuo Uematsu
+# **Elden Ring** / Tsukasa Saitoh
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Elden Ring (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a35cb6ace81ff193b8f6d088)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Elden Ring (Original Soundtrack)
 
-📅 2022-11-13 23:08:17
+📅 2022-11-14 14:24:55
 
 
-# **Breezy** / Nobuo Uematsu
+# **Oh I Wept** / Free
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Fire And Water
 
-📅 2022-11-13 23:06:12
+📅 2022-11-14 14:15:13
 
 
-# **Dead End** / Nobuo Uematsu
+# **Pre-Mor Shakedown** / Nicholas Britell
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2022-11-13 23:03:28
+📅 2022-11-14 14:15:07
 
 
-# **Never Look Back** / Nobuo Uematsu
+# **Waltz #2 (XO)** / Elliott Smith
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** XO
 
-📅 2022-11-13 23:02:17
+📅 2022-11-14 14:14:09
 
 
-# **The Loser** / Nobuo Uematsu
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Still Crazy After All These Years
 
-📅 2022-11-13 22:58:40
+📅 2022-11-14 14:09:29
 
 
-# **Force Your Way** / Nobuo Uematsu
+# **Holding On** / Aloboi
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Holding On
 
-📅 2022-11-13 22:57:12
+📅 2022-11-14 11:48:21
 
 
-# **Starting Up** / Nobuo Uematsu
+# **Fever** / The Black Keys
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Turn Blue
 
-📅 2022-11-13 22:53:19
+📅 2022-11-14 11:48:15
 
 
-# **The Landing** / Nobuo Uematsu
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Land Animal
 
-📅 2022-11-13 22:51:59
+📅 2022-11-14 11:44:09
 
 
-# **SeeD** / Nobuo Uematsu
+# **Congregation** / Low
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Ones and Sixes
 
-📅 2022-11-13 22:47:23
+📅 2022-11-14 11:38:35
 
 
-# **Find Your Way** / Nobuo Uematsu
+# **I Love You** / Woodkid
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** The Golden Age
 
-📅 2022-11-13 22:43:06
+📅 2022-11-14 11:34:43
 
 
-# **The Winner** / Nobuo Uematsu
+# **Oh I Wept** / Free
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Fire And Water
 
-📅 2022-11-13 22:39:18
+📅 2022-11-14 11:30:52
 
 
-# **Don't be Afraid** / Nobuo Uematsu
+# **Mad About You** / Hooverphonic
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** The Magnificent Tree
 
-📅 2022-11-13 22:38:11
+📅 2022-11-14 11:26:25
 
 
-# **Blue Fields** / Nobuo Uematsu
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
-**Album:** FINAL FANTASY VIII Original Soundtrack
+**Album:** Ride The Lightning (Remastered)
 
-📅 2022-11-13 22:35:20
+📅 2022-11-14 09:59:51
