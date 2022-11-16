@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Timber Owls** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2022-11-16 08:21:10
+
+
+# **Junction** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2022-11-16 08:18:17
+
+
+# **Roses and Wine** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2022-11-16 08:16:39
+
+
+# **Julia** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2022-11-16 08:14:21
+
+
+# **Run Boy Run - Instrumental** / Woodkid
+
+![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
+
+**Album:** Run Boy Run
+
+📅 2022-11-16 08:12:24
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-16 08:08:49
+
+
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+
+**Album:** iv
+
+📅 2022-11-15 17:27:16
+
+
 # **This fffire - New Version** / Franz Ferdinand
 
 ![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2022-11-15 08:39:31
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-15 08:35:39
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-15 08:31:49
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-15 08:27:21
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-14 23:35:52
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-14 22:48:57
-
-
-# **(Theme From) Red Dead Redemption** / Bill Elm & Woody Jackson
-
-![Foto del album: Red Dead Redemption Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02060a023ee956d769a86a433b)
-
-**Album:** Red Dead Redemption Original Soundtrack
-
-📅 2022-11-14 14:49:40
-
-
-# **Star Guardian 2022 - Official Orchestral Theme** / League of Legends
-
-![Foto del album: Star Guardian 2022 (Official Orchestral Theme)](https://i.scdn.co/image/ab67616d00001e02f9bebf17ef1b0d79e1a7bfbd)
-
-**Album:** Star Guardian 2022 (Official Orchestral Theme)
-
-📅 2022-11-14 14:47:53
