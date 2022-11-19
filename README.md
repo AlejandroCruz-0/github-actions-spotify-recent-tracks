@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **No Turning Back** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 23:30:39
+
+
+# **Get Down!** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 23:29:26
+
+
+# **Andor (Main Title Theme) - Episode 6** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 23:26:49
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-11-18 17:14:23
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
 
 📅 2022-11-18 09:30:47
-
-
-# **If I Was Them** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-18 09:28:38
-
-
-# **Andor (Main Title Theme) - Episode 5** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-18 09:27:04
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-11-17 11:05:18
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-11-17 11:02:25
