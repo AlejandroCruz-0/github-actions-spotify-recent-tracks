@@ -13,31 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-11-17 11:02:25
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-11-17 10:58:40
-
-
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
 **Album:** The Golden Age
 
-📅 2022-11-17 10:23:38
+📅 2022-11-18 17:12:33
 
 
 # **Oh I Wept** / Free
@@ -46,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-11-17 10:20:34
+📅 2022-11-18 17:08:41
 
 
 # **Mad About You** / Hooverphonic
@@ -55,43 +37,151 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-11-17 10:16:07
+📅 2022-11-18 17:04:14
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
 
-**Album:** Stop Making Sense (Live)
+**Album:** Reluciente, Rechinante y Aterciopelado
 
-📅 2022-11-17 09:53:59
+📅 2022-11-18 10:30:31
 
 
 # **Caminar Sola** / Julieta Venegas
 
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
+![Foto del album: Tu Historia](https://i.scdn.co/image/ab67616d00001e02124cd40ece134e31def71125)
 
-**Album:** Caminar Sola
+**Album:** Tu Historia
 
-📅 2022-11-17 09:52:42
-
-
-# **This fffire - New Version** / Franz Ferdinand
-
-![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
-
-**Album:** This fffire
-
-📅 2022-11-17 09:49:23
+📅 2022-11-18 10:15:41
 
 
-# **For Whom The Bell Tolls - Remastered** / Metallica
+# **Ni Tú Ni Nadie** / Mœnia
 
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+![Foto del album: Stereo Hits](https://i.scdn.co/image/ab67616d00001e020cc7c67845778447805c156c)
 
-**Album:** Ride The Lightning (Remastered)
+**Album:** Stereo Hits
 
-📅 2022-11-17 09:45:45
+📅 2022-11-18 10:12:22
+
+
+# **Peligro** / Ely Guerra
+
+![Foto del album: Pa´Morirse De Amor](https://i.scdn.co/image/ab67616d00001e0237640fbe723ff8043bdc4b48)
+
+**Album:** Pa´Morirse De Amor
+
+📅 2022-11-18 10:08:42
+
+
+# **LAS 12** / Ana Mena|Belinda
+
+![Foto del album: LAS 12](https://i.scdn.co/image/ab67616d00001e0292fef0ebd4b1d76c729a1918)
+
+**Album:** LAS 12
+
+📅 2022-11-18 10:03:34
+
+
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2022-11-18 10:00:48
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-11-18 09:56:36
+
+
+# **The Vault - Parts 1 and 2** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:50:00
+
+
+# **No Turning Back** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:39:17
+
+
+# **Get Down!** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:38:07
+
+
+# **Andor (Main Title Theme) - Episode 6** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:35:28
+
+
+# **Tomorrow** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:34:39
+
+
+# **The Valley** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:30:47
+
+
+# **If I Was Them** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:28:38
+
+
+# **Andor (Main Title Theme) - Episode 5** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-18 09:27:04
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-11-17 11:05:18
 
 
 # **Will Do** / TV On The Radio
@@ -100,94 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2022-11-17 09:40:34
-
-
-# **Let You Down** / Dawid Podsiadło
-
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
-
-**Album:** Let You Down
-
-📅 2022-11-17 09:36:49
-
-
-# **My Mind** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2022-11-16 08:21:50
-
-
-# **Timber Owls** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2022-11-16 08:21:10
-
-
-# **Junction** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2022-11-16 08:18:17
-
-
-# **Roses and Wine** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2022-11-16 08:16:39
-
-
-# **Julia** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2022-11-16 08:14:21
-
-
-# **Run Boy Run - Instrumental** / Woodkid
-
-![Foto del album: Run Boy Run](https://i.scdn.co/image/ab67616d00001e0292a47aa8ff0e14d2ebc2b74d)
-
-**Album:** Run Boy Run
-
-📅 2022-11-16 08:12:24
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-16 08:08:49
-
-
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
-
-**Album:** iv
-
-📅 2022-11-15 17:27:16
-
-
-# **This fffire - New Version** / Franz Ferdinand
-
-![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
-
-**Album:** This fffire
-
-📅 2022-11-15 17:26:54
+📅 2022-11-17 11:02:25
