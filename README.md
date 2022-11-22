@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-11-21 21:34:24
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-21 21:30:32
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-21 21:26:38
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-21 21:22:10
+
+
+# **Appie Foothills** / Trevor Alan Gomes|Lena Raine
+
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+
+**Album:** Chicory Piano Collections
+
+📅 2022-11-21 20:32:23
+
+
+# **Teatime Meadows** / Trevor Alan Gomes|Lena Raine
+
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+
+**Album:** Chicory Piano Collections
+
+📅 2022-11-21 20:29:36
+
+
+# **Dinners, the Big City** / Trevor Alan Gomes|Lena Raine
+
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+
+**Album:** Chicory Piano Collections
+
+📅 2022-11-21 20:24:30
+
+
+# **Chicory's Theme** / Trevor Alan Gomes|Lena Raine
+
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+
+**Album:** Chicory Piano Collections
+
+📅 2022-11-21 20:20:32
+
+
+# **Supper Woods** / Trevor Alan Gomes|Lena Raine
+
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+
+**Album:** Chicory Piano Collections
+
+📅 2022-11-21 20:16:40
+
+
+# **Town of Luncheon** / Trevor Alan Gomes|Lena Raine
+
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+
+**Album:** Chicory Piano Collections
+
+📅 2022-11-21 20:12:44
+
+
+# **Shut It Down** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-21 07:58:44
+
+
 # **Thirty Shifts Later** / Nicholas Britell
 
 ![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Surrealistic Pillow
 
 📅 2022-11-20 23:23:49
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-20 23:21:29
-
-
-# **White Rabbit** / Jefferson Airplane
-
-![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
-
-**Album:** Surrealistic Pillow
-
-📅 2022-11-20 23:17:02
-
-
-# **Running Up That Hill (A Deal With God)** / Kate Bush
-
-![Foto del album: Hounds Of Love](https://i.scdn.co/image/ab67616d00001e0296ab64f52273635308b6bf27)
-
-**Album:** Hounds Of Love
-
-📅 2022-11-19 19:34:54
-
-
-# **(Theme From) Red Dead Redemption** / Bill Elm & Woody Jackson
-
-![Foto del album: Red Dead Redemption Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02060a023ee956d769a86a433b)
-
-**Album:** Red Dead Redemption Original Soundtrack
-
-📅 2022-11-19 11:38:45
-
-
-# **Watchtower** / Michael McCann
-
-![Foto del album: 4 [EP]](https://i.scdn.co/image/ab67616d00001e028905a4957e27ff22c5bec6df)
-
-**Album:** 4 [EP]
-
-📅 2022-11-19 11:33:53
-
-
-# **Dear Daughter** / Roque Baños
-
-![Foto del album: Oldboy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c4cf78fa348d34cbe2b29437)
-
-**Album:** Oldboy (Original Motion Picture Soundtrack)
-
-📅 2022-11-19 11:29:12
-
-
-# **Vanishing Grace** / Gustavo Santaolalla
-
-![Foto del album: The Last of Us](https://i.scdn.co/image/ab67616d00001e0268e5e7cc9256ca8c0917a9dd)
-
-**Album:** The Last of Us
-
-📅 2022-11-19 11:26:43
-
-
-# **The Vault - Parts 1 and 2** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-18 23:31:54
-
-
-# **No Turning Back** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-18 23:30:39
-
-
-# **Get Down!** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-18 23:29:26
-
-
-# **Andor (Main Title Theme) - Episode 6** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-18 23:26:49
