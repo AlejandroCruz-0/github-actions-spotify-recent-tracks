@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-11-24 08:08:09
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-11-24 08:04:18
+
+
 # **Morena mía** / Miguel Bosé
 
 ![Foto del album: Sereno](https://i.scdn.co/image/ab67616d00001e02af4730f82764b86ac7f7db8a)
@@ -139,6 +157,15 @@ Nombre: **lotario1999**
 📅 2022-11-23 18:33:53
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-23 18:15:45
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2022-11-23 17:11:09
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-23 17:11:02
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-11-23 17:05:27
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-23 17:01:35
