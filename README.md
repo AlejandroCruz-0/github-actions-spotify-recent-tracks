@@ -13,13 +13,130 @@ Nombre: **lotario1999**
 
 
 
-# **Oh I Wept** / Free
+# **Morena mía** / Miguel Bosé
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Sereno](https://i.scdn.co/image/ab67616d00001e02af4730f82764b86ac7f7db8a)
 
-**Album:** Fire And Water
+**Album:** Sereno
 
-📅 2022-11-22 18:22:10
+📅 2022-11-23 19:13:21
+
+
+# **El Ultimo Adiós - Varios Artistas Version** / Ricky Martin|Alejandro Sanz|Thalia|Juan Luis Guerra 4.40|Gloria Estefan|Celia Cruz|Olga Tañón|Ricardo Montaner|Ana Gabriel|Jorge Hernández|Los Tigres Del Norte|Alicia Villarreal|Alejandro Fernández|Carlos Vives|Jaci Velasquez|Marco Antonio Solís|José José|Lucía Méndez|Jennifer Lopez|Emmanuele|Chayanne|Gilberto Santa Rosa|Paulina Rubio|Alberto "Beto" Zapata|La Ley|Ana Bárbara|Carlos Ponce|Jon Secada|Shakira|Gian Marco|Luis Fonsi|Yuri|Miguel Bosé|Wilkins|Giselle|Melina Leon|Limi-T 21|Christina Aguilera|José Feliciano|José Luis Rodríguez
+
+![Foto del album: El Ultimo Adiós](https://i.scdn.co/image/ab67616d00001e024e19f670ace532c6c2202094)
+
+**Album:** El Ultimo Adiós
+
+📅 2022-11-23 19:06:03
+
+
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2022-11-23 19:02:06
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-11-23 18:57:54
+
+
+# **Armstrong Cabin** / Justin Hurwitz
+
+![Foto del album: First Man (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02dad5b3c492bd9358e718f6dc)
+
+**Album:** First Man (Original Motion Picture Soundtrack)
+
+📅 2022-11-23 18:52:06
+
+
+# **The Ocean** / Clinton Shorter
+
+![Foto del album: The Expanse Season 2 (Original Television Soundtrack)](https://i.scdn.co/image/ab67616d00001e021add0100bc1153cf6b839181)
+
+**Album:** The Expanse Season 2 (Original Television Soundtrack)
+
+📅 2022-11-23 18:50:50
+
+
+# **Pre-Mor Shakedown** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2022-11-23 18:48:30
+
+
+# **Dear Daughter** / Roque Baños
+
+![Foto del album: Oldboy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c4cf78fa348d34cbe2b29437)
+
+**Album:** Oldboy (Original Motion Picture Soundtrack)
+
+📅 2022-11-23 18:47:33
+
+
+# **Shut It Down** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-23 18:45:02
+
+
+# **Thirty Shifts Later** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-23 18:42:39
+
+
+# **Unit 5-2-D** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-23 18:40:02
+
+
+# **Narkina 5** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-23 18:35:42
+
+
+# **Move!** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-23 18:34:40
+
+
+# **Andor (Main Title Theme) - Episode 8** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-23 18:33:53
 
 
 # **I Love You** / Woodkid
@@ -28,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-11-22 18:17:43
+📅 2022-11-23 18:13:54
 
 
 # **Mad About You** / Hooverphonic
@@ -37,7 +154,16 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-11-22 18:13:52
+📅 2022-11-23 18:10:04
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-11-23 17:11:09
 
 
 # **Holy Ghost** / Bent Knee
@@ -46,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-11-22 09:58:29
+📅 2022-11-23 17:11:02
 
 
 # **Congregation** / Low
@@ -55,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-11-22 09:56:43
+📅 2022-11-23 17:05:27
 
 
 # **Oh I Wept** / Free
@@ -64,130 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-11-22 09:52:50
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-22 09:48:23
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-22 09:44:33
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-22 08:52:42
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-11-21 21:45:09
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-11-21 21:34:24
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-21 21:30:32
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-21 21:26:38
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-11-21 21:22:10
-
-
-# **Appie Foothills** / Trevor Alan Gomes|Lena Raine
-
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
-
-**Album:** Chicory Piano Collections
-
-📅 2022-11-21 20:32:23
-
-
-# **Teatime Meadows** / Trevor Alan Gomes|Lena Raine
-
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
-
-**Album:** Chicory Piano Collections
-
-📅 2022-11-21 20:29:36
-
-
-# **Dinners, the Big City** / Trevor Alan Gomes|Lena Raine
-
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
-
-**Album:** Chicory Piano Collections
-
-📅 2022-11-21 20:24:30
-
-
-# **Chicory's Theme** / Trevor Alan Gomes|Lena Raine
-
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
-
-**Album:** Chicory Piano Collections
-
-📅 2022-11-21 20:20:32
-
-
-# **Supper Woods** / Trevor Alan Gomes|Lena Raine
-
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
-
-**Album:** Chicory Piano Collections
-
-📅 2022-11-21 20:16:40
-
-
-# **Town of Luncheon** / Trevor Alan Gomes|Lena Raine
-
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
-
-**Album:** Chicory Piano Collections
-
-📅 2022-11-21 20:12:44
+📅 2022-11-23 17:01:35
