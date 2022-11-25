@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You** / Hooverphonic
+# **Dances with Lizards** / 光田 康典
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Magnificent Tree
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-24 21:31:48
+📅 2022-11-25 09:16:58
 
 
-# **Appie Foothills** / Trevor Alan Gomes|Lena Raine
+# **Plains of Time (Home World)** / 光田 康典
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Chicory Piano Collections
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-24 18:22:26
+📅 2022-11-25 09:14:16
 
 
-# **Great Fairy's Fountain (Ocarina of Time) [The Legend of Zelda]** / Isac Saleh
+# **Arni (Home World)** / 光田 康典
 
-![Foto del album: The Legend of Zelda Series on Guitar](https://i.scdn.co/image/ab67616d00001e02f90138394ec224fa697e7744)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Legend of Zelda Series on Guitar
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-24 18:11:41
+📅 2022-11-25 09:10:49
 
 
-# **The Outskirts of Luncheon** / Lena Raine
+# **Arni (Home World)** / 光田 康典
 
-![Foto del album: Chicory: The Sounds of Picnic Province](https://i.scdn.co/image/ab67616d00001e023272fdec4110cbc8a0722411)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Chicory: The Sounds of Picnic Province
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-24 18:10:34
+📅 2022-11-25 08:23:29
 
 
-# **Inside the Houses (From "Link's Awakening")** / Lucas Cooper
+# **The Brink of Death** / 光田 康典
 
-![Foto del album: Zelda - A Storm of Songs](https://i.scdn.co/image/ab67616d00001e02320d12a58e2833b3e38b3f03)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Zelda - A Storm of Songs
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-24 18:08:21
+📅 2022-11-25 08:20:30
 
 
-# **Chill** / Toby Fox|David Peacock|Augustine Mayuga Gonzales
+# **Chrono Cross -Scars of Time-** / 光田 康典
 
-![Foto del album: Undertale Piano Collections 2](https://i.scdn.co/image/ab67616d00001e0227cc9205aabd6c5b03b934bb)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Undertale Piano Collections 2
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-24 18:07:07
+📅 2022-11-25 08:17:51
 
 
-# **The Mountain Top** / Trevor Alan Gomes|Lena Raine
+# **Catch Light** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 18:05:50
+📅 2022-11-25 00:31:12
 
 
-# **Do the Impossible** / Trevor Alan Gomes|Lena Raine
+# **Bird Song** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 18:01:47
+📅 2022-11-25 00:26:33
 
 
-# **Dessert Mountain** / Trevor Alan Gomes|Lena Raine
+# **Lovemenot** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 17:56:45
+📅 2022-11-25 00:23:37
 
 
-# **Simmer Springs** / Trevor Alan Gomes|Lena Raine
+# **Lovell** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 17:52:45
+📅 2022-11-25 00:18:27
 
 
-# **Banquet Rainforest** / Trevor Alan Gomes|Lena Raine
+# **Cradle of Rocks** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 17:48:19
+📅 2022-11-25 00:17:00
 
 
-# **Appie Foothills** / Trevor Alan Gomes|Lena Raine
+# **Egg Replacer** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 17:44:08
+📅 2022-11-25 00:13:00
 
 
-# **Teatime Meadows** / Trevor Alan Gomes|Lena Raine
+# **Hold Me In** / Bent Knee
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chicory Piano Collections
+**Album:** You Know What They Mean
 
-📅 2022-11-24 17:41:05
+📅 2022-11-25 00:09:50
 
 
-# **Dinners, the Big City** / Trevor Alan Gomes|Lena Raine
+# **Twilight Night** / NEO JAPONISM
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: JAPONISM](https://i.scdn.co/image/ab67616d00001e02eec927bf7517a5521e3b521b)
 
-**Album:** Chicory Piano Collections
+**Album:** JAPONISM
 
-📅 2022-11-24 17:35:58
+📅 2022-11-24 22:41:56
 
 
-# **Chicory's Theme** / Trevor Alan Gomes|Lena Raine
+# **Major Crimes** / HEALTH|Window Weather
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
 
-**Album:** Chicory Piano Collections
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
 
-📅 2022-11-24 17:32:00
+📅 2022-11-24 22:38:02
 
 
-# **Supper Woods** / Trevor Alan Gomes|Lena Raine
+# **Escape** / KEYMAK|HYPE.
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: Escape](https://i.scdn.co/image/ab67616d00001e02045e06c8c097d979674c2e39)
 
-**Album:** Chicory Piano Collections
+**Album:** Escape
 
-📅 2022-11-24 17:28:07
+📅 2022-11-24 22:34:28
 
 
-# **Town of Luncheon** / Trevor Alan Gomes|Lena Raine
+# **Like A Psycho - Roanin Remix** / MKJ|YOTO|Aurila|Roanin
 
-![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
+![Foto del album: Like A Psycho (Remixes)](https://i.scdn.co/image/ab67616d00001e0264d3f6527b7c3c446d2651fe)
 
-**Album:** Chicory Piano Collections
+**Album:** Like A Psycho (Remixes)
 
-📅 2022-11-24 17:24:11
+📅 2022-11-24 22:31:09
 
 
-# **RAVE** / Dxrk ダーク
+# **Delicate Weapon** / Grimes|Lizzy Wizzy
 
-![Foto del album: RAVE](https://i.scdn.co/image/ab67616d00001e02144fcad8ffb348edefb9e851)
+![Foto del album: Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a91a5b301baac1f46e6f30eb)
 
-**Album:** RAVE
+**Album:** Cyberpunk 2077: Radio, Vol. 2 (Original Soundtrack)
 
-📅 2022-11-24 16:50:28
+📅 2022-11-24 22:28:20
 
 
-# **RAVE** / Dxrk ダーク
+# **Rotoscope** / Spiritbox
 
-![Foto del album: RAVE](https://i.scdn.co/image/ab67616d00001e02144fcad8ffb348edefb9e851)
+![Foto del album: Rotoscope](https://i.scdn.co/image/ab67616d00001e0252d93357bfd6ab2f36fcb696)
 
-**Album:** RAVE
+**Album:** Rotoscope
 
-📅 2022-11-24 16:45:47
+📅 2022-11-24 22:24:30
 
 
-# **FIGHT CLUB** / MoonDeity|EL$E
+# **Scavenger Hunt** / P.T. Adamczyk
 
-![Foto del album: PHONK CLUB](https://i.scdn.co/image/ab67616d00001e02261df87819abc15ebea919b3)
+![Foto del album: Cyberpunk 2077 - Original Score](https://i.scdn.co/image/ab67616d00001e02ca593ba6b61b7a164ae408b9)
 
-**Album:** PHONK CLUB
+**Album:** Cyberpunk 2077 - Original Score
 
-📅 2022-11-24 16:42:57
+📅 2022-11-24 22:20:54
