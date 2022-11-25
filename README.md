@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-11-24 08:08:09
-
-
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2022-11-24 08:04:18
+📅 2022-11-24 21:31:48
 
 
-# **Morena mía** / Miguel Bosé
+# **Appie Foothills** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Sereno](https://i.scdn.co/image/ab67616d00001e02af4730f82764b86ac7f7db8a)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Sereno
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 19:13:21
+📅 2022-11-24 18:22:26
 
 
-# **El Ultimo Adiós - Varios Artistas Version** / Ricky Martin|Alejandro Sanz|Thalia|Juan Luis Guerra 4.40|Gloria Estefan|Celia Cruz|Olga Tañón|Ricardo Montaner|Ana Gabriel|Jorge Hernández|Los Tigres Del Norte|Alicia Villarreal|Alejandro Fernández|Carlos Vives|Jaci Velasquez|Marco Antonio Solís|José José|Lucía Méndez|Jennifer Lopez|Emmanuele|Chayanne|Gilberto Santa Rosa|Paulina Rubio|Alberto "Beto" Zapata|La Ley|Ana Bárbara|Carlos Ponce|Jon Secada|Shakira|Gian Marco|Luis Fonsi|Yuri|Miguel Bosé|Wilkins|Giselle|Melina Leon|Limi-T 21|Christina Aguilera|José Feliciano|José Luis Rodríguez
+# **Great Fairy's Fountain (Ocarina of Time) [The Legend of Zelda]** / Isac Saleh
 
-![Foto del album: El Ultimo Adiós](https://i.scdn.co/image/ab67616d00001e024e19f670ace532c6c2202094)
+![Foto del album: The Legend of Zelda Series on Guitar](https://i.scdn.co/image/ab67616d00001e02f90138394ec224fa697e7744)
 
-**Album:** El Ultimo Adiós
+**Album:** The Legend of Zelda Series on Guitar
 
-📅 2022-11-23 19:06:03
+📅 2022-11-24 18:11:41
 
 
-# **Rompecabezas** / Aterciopelados
+# **The Outskirts of Luncheon** / Lena Raine
 
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+![Foto del album: Chicory: The Sounds of Picnic Province](https://i.scdn.co/image/ab67616d00001e023272fdec4110cbc8a0722411)
 
-**Album:** Gozo Poderoso
+**Album:** Chicory: The Sounds of Picnic Province
 
-📅 2022-11-23 19:02:06
+📅 2022-11-24 18:10:34
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Inside the Houses (From "Link's Awakening")** / Lucas Cooper
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Zelda - A Storm of Songs](https://i.scdn.co/image/ab67616d00001e02320d12a58e2833b3e38b3f03)
 
-**Album:** Bueninvento
+**Album:** Zelda - A Storm of Songs
 
-📅 2022-11-23 18:57:54
+📅 2022-11-24 18:08:21
 
 
-# **Armstrong Cabin** / Justin Hurwitz
+# **Chill** / Toby Fox|David Peacock|Augustine Mayuga Gonzales
 
-![Foto del album: First Man (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02dad5b3c492bd9358e718f6dc)
+![Foto del album: Undertale Piano Collections 2](https://i.scdn.co/image/ab67616d00001e0227cc9205aabd6c5b03b934bb)
 
-**Album:** First Man (Original Motion Picture Soundtrack)
+**Album:** Undertale Piano Collections 2
 
-📅 2022-11-23 18:52:06
+📅 2022-11-24 18:07:07
 
 
-# **The Ocean** / Clinton Shorter
+# **The Mountain Top** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: The Expanse Season 2 (Original Television Soundtrack)](https://i.scdn.co/image/ab67616d00001e021add0100bc1153cf6b839181)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** The Expanse Season 2 (Original Television Soundtrack)
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:50:50
+📅 2022-11-24 18:05:50
 
 
-# **Pre-Mor Shakedown** / Nicholas Britell
+# **Do the Impossible** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:48:30
+📅 2022-11-24 18:01:47
 
 
-# **Dear Daughter** / Roque Baños
+# **Dessert Mountain** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Oldboy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c4cf78fa348d34cbe2b29437)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Oldboy (Original Motion Picture Soundtrack)
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:47:33
+📅 2022-11-24 17:56:45
 
 
-# **Shut It Down** / Nicholas Britell
+# **Simmer Springs** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:45:02
+📅 2022-11-24 17:52:45
 
 
-# **Thirty Shifts Later** / Nicholas Britell
+# **Banquet Rainforest** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:42:39
+📅 2022-11-24 17:48:19
 
 
-# **Unit 5-2-D** / Nicholas Britell
+# **Appie Foothills** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:40:02
+📅 2022-11-24 17:44:08
 
 
-# **Narkina 5** / Nicholas Britell
+# **Teatime Meadows** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:35:42
+📅 2022-11-24 17:41:05
 
 
-# **Move!** / Nicholas Britell
+# **Dinners, the Big City** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:34:40
+📅 2022-11-24 17:35:58
 
 
-# **Andor (Main Title Theme) - Episode 8** / Nicholas Britell
+# **Chicory's Theme** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:33:53
+📅 2022-11-24 17:32:00
 
 
-# **Oh I Wept** / Free
+# **Supper Woods** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** Fire And Water
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:15:45
+📅 2022-11-24 17:28:07
 
 
-# **I Love You** / Woodkid
+# **Town of Luncheon** / Trevor Alan Gomes|Lena Raine
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Chicory Piano Collections](https://i.scdn.co/image/ab67616d00001e022109aa29304adf41ccd79b1c)
 
-**Album:** The Golden Age
+**Album:** Chicory Piano Collections
 
-📅 2022-11-23 18:13:54
+📅 2022-11-24 17:24:11
 
 
-# **Mad About You** / Hooverphonic
+# **RAVE** / Dxrk ダーク
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: RAVE](https://i.scdn.co/image/ab67616d00001e02144fcad8ffb348edefb9e851)
 
-**Album:** The Magnificent Tree
+**Album:** RAVE
 
-📅 2022-11-23 18:10:04
+📅 2022-11-24 16:50:28
 
 
-# **Fever** / The Black Keys
+# **RAVE** / Dxrk ダーク
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: RAVE](https://i.scdn.co/image/ab67616d00001e02144fcad8ffb348edefb9e851)
 
-**Album:** Turn Blue
+**Album:** RAVE
 
-📅 2022-11-23 17:11:09
+📅 2022-11-24 16:45:47
+
+
+# **FIGHT CLUB** / MoonDeity|EL$E
+
+![Foto del album: PHONK CLUB](https://i.scdn.co/image/ab67616d00001e02261df87819abc15ebea919b3)
+
+**Album:** PHONK CLUB
+
+📅 2022-11-24 16:42:57
