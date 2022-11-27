@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **6 Underground** / Sneaker Pimps
+
+![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+
+**Album:** Becoming X
+
+📅 2022-11-27 08:38:24
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-11-27 08:34:26
+
+
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Chrono Cross Original Soundtrack
 
 📅 2022-11-25 08:23:29
-
-
-# **The Brink of Death** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-11-25 08:20:30
-
-
-# **Chrono Cross -Scars of Time-** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-11-25 08:17:51
