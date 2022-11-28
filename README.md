@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **White Rabbit** / Jefferson Airplane
+
+![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
+
+**Album:** Surrealistic Pillow
+
+📅 2022-11-28 07:55:58
+
+
+# **Waltz #2 (XO)** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-11-27 20:36:11
+
+
 # **Let You Down** / Dawid Podsiadło
 
 ![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Mezzanine
 
 📅 2022-11-27 08:40:05
-
-
-# **6 Underground** / Sneaker Pimps
-
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
-
-**Album:** Becoming X
-
-📅 2022-11-27 08:38:24
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-11-27 08:34:26
