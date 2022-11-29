@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Hasta la Raíz** / Natalia Lafourcade
+
+![Foto del album: Hasta la Raíz (Edición Especial)](https://i.scdn.co/image/ab67616d00001e02bd4c237c04735257dd64c510)
+
+**Album:** Hasta la Raíz (Edición Especial)
+
+📅 2022-11-28 17:39:21
+
+
 # **Perfecta - Versión con Julieta Venegas** / Miranda!|Julieta Venegas
 
 ![Foto del album: El Disco de Tu Corazón](https://i.scdn.co/image/ab67616d00001e025195219d777c551f280d95d5)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Satie: Avant-dernières pensées (Bonus Track Version)
 
 📅 2022-11-28 13:16:01
-
-
-# **Over the Mountains High (arr. J. Lloyd Webber for cello and piano)** / Frederick Delius|Julian Lloyd Webber|John Lenehan
-
-![Foto del album: Delius & Ireland: Evening Songs](https://i.scdn.co/image/ab67616d00001e026cda8154e9cf56b39cdd57e8)
-
-**Album:** Delius & Ireland: Evening Songs
-
-📅 2022-11-28 13:14:29
