@@ -13,31 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **White Rabbit** / Jefferson Airplane
+# **Perfecta - Versión con Julieta Venegas** / Miranda!|Julieta Venegas
 
-![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
+![Foto del album: El Disco de Tu Corazón](https://i.scdn.co/image/ab67616d00001e025195219d777c551f280d95d5)
 
-**Album:** Surrealistic Pillow
+**Album:** El Disco de Tu Corazón
 
-📅 2022-11-28 07:55:58
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-11-27 20:36:11
+📅 2022-11-28 17:38:20
 
 
-# **Let You Down** / Dawid Podsiadło
+# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
 
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
 
-**Album:** Let You Down
+**Album:** Reluciente, Rechinante y Aterciopelado
 
-📅 2022-11-27 20:34:36
+📅 2022-11-28 17:34:34
 
 
 # **Caminar Sola** / Julieta Venegas
@@ -46,148 +37,157 @@ Nombre: **lotario1999**
 
 **Album:** Tu Historia
 
-📅 2022-11-27 20:30:48
+📅 2022-11-28 17:29:42
 
 
-# **Hold Me In** / Bent Knee
+# **Rompecabezas** / Aterciopelados
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
 
-**Album:** You Know What They Mean
+**Album:** Gozo Poderoso
 
-📅 2022-11-27 20:27:30
+📅 2022-11-28 17:26:01
 
 
-# **For Whom The Bell Tolls - Remastered** / Metallica
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Ride The Lightning (Remastered)
+**Album:** Bueninvento
 
-📅 2022-11-27 20:22:39
+📅 2022-11-28 17:21:50
 
 
-# **Rock It for Me** / Caravan Palace
+# **Fossil Valley** / 光田 康典
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Panic
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 20:17:28
+📅 2022-11-28 16:44:04
 
 
-# **Will Do** / TV On The Radio
+# **Missing Piece** / 光田 康典
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Nine Types of Light
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 20:14:16
+📅 2022-11-28 16:43:03
 
 
-# **Stolen Car** / Beth Orton
+# **Fleeting Thoughts** / 光田 康典
 
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Central Reservation
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 20:10:31
+📅 2022-11-28 16:39:50
 
 
-# **Fuel** / Metallica
+# **Arni (Another World)** / 光田 康典
 
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Reload
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 20:05:04
+📅 2022-11-28 16:36:57
 
 
-# **Holding On** / Aloboi
+# **Shore of Dreams (Another World)** / 光田 康典
 
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Holding On
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 20:00:34
+📅 2022-11-28 16:33:25
 
 
-# **Fever** / The Black Keys
+# **Reminisce -Enduring Thoughts-** / 光田 康典
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Turn Blue
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 19:56:21
+📅 2022-11-28 16:31:02
 
 
-# **Holy Ghost** / Bent Knee
+# **Dances with Lizards** / 光田 康典
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Land Animal
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 19:52:15
+📅 2022-11-28 16:27:36
 
 
-# **Congregation** / Low
+# **Plains of Time (Home World)** / 光田 康典
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Ones and Sixes
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 19:46:41
+📅 2022-11-28 16:24:53
 
 
-# **Oh I Wept** / Free
+# **Arni (Home World)** / 光田 康典
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Fire And Water
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 19:42:49
+📅 2022-11-28 15:31:57
 
 
-# **I Love You** / Woodkid
+# **The Brink of Death** / 光田 康典
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Golden Age
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 19:38:21
+📅 2022-11-28 15:31:41
 
 
-# **Mad About You** / Hooverphonic
+# **Chrono Cross -Scars of Time-** / 光田 康典
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Magnificent Tree
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2022-11-27 19:34:31
+📅 2022-11-28 15:29:01
 
 
-# **I Love You** / Woodkid
+# **24 Caprices, Op. 1: No. 5 in A Minor: Agitato** / Niccolò Paganini|Leonidas Kavakos
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Paganini: 24 Caprices](https://i.scdn.co/image/ab67616d00001e029e04cda776a6738b24543b8a)
 
-**Album:** The Golden Age
+**Album:** Paganini: 24 Caprices
 
-📅 2022-11-27 11:43:51
+📅 2022-11-28 13:18:48
 
 
-# **Mad About You** / Hooverphonic
+# **Brook Green Suite: I. Prelude** / Gustav Holst|English Sinfonia|Howard Griffiths
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Holst: Double Concerto / St Paul's Suite / Brook Green Suite](https://i.scdn.co/image/ab67616d00001e028b2cd00a7eec3e445a7ce9bd)
 
-**Album:** The Magnificent Tree
+**Album:** Holst: Double Concerto / St Paul's Suite / Brook Green Suite
 
-📅 2022-11-27 11:41:24
+📅 2022-11-28 13:17:37
 
 
-# **Teardrop** / Massive Attack
+# **Choses vues à droite et à gauche (sans lunettes): Fantaisie musculaire** / Erik Satie|Alexandre Tharaud|Isabelle Faust
 
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+![Foto del album: Satie: Avant-dernières pensées (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02949cc0e6728be2f6601eb7ea)
 
-**Album:** Mezzanine
+**Album:** Satie: Avant-dernières pensées (Bonus Track Version)
 
-📅 2022-11-27 08:40:05
+📅 2022-11-28 13:16:01
+
+
+# **Over the Mountains High (arr. J. Lloyd Webber for cello and piano)** / Frederick Delius|Julian Lloyd Webber|John Lenehan
+
+![Foto del album: Delius & Ireland: Evening Songs](https://i.scdn.co/image/ab67616d00001e026cda8154e9cf56b39cdd57e8)
+
+**Album:** Delius & Ireland: Evening Songs
+
+📅 2022-11-28 13:14:29
