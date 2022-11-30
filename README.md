@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-29 19:30:34
+
+
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-29 10:52:12
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-29 10:41:51
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-11-29 10:36:20
+
+
 # **Hasta la Raíz** / Natalia Lafourcade
 
 ![Foto del album: Hasta la Raíz (Edición Especial)](https://i.scdn.co/image/ab67616d00001e02bd4c237c04735257dd64c510)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Chrono Cross Original Soundtrack
 
 📅 2022-11-28 15:31:41
-
-
-# **Chrono Cross -Scars of Time-** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-11-28 15:29:01
-
-
-# **24 Caprices, Op. 1: No. 5 in A Minor: Agitato** / Niccolò Paganini|Leonidas Kavakos
-
-![Foto del album: Paganini: 24 Caprices](https://i.scdn.co/image/ab67616d00001e029e04cda776a6738b24543b8a)
-
-**Album:** Paganini: 24 Caprices
-
-📅 2022-11-28 13:18:48
-
-
-# **Brook Green Suite: I. Prelude** / Gustav Holst|English Sinfonia|Howard Griffiths
-
-![Foto del album: Holst: Double Concerto / St Paul's Suite / Brook Green Suite](https://i.scdn.co/image/ab67616d00001e028b2cd00a7eec3e445a7ce9bd)
-
-**Album:** Holst: Double Concerto / St Paul's Suite / Brook Green Suite
-
-📅 2022-11-28 13:17:37
-
-
-# **Choses vues à droite et à gauche (sans lunettes): Fantaisie musculaire** / Erik Satie|Alexandre Tharaud|Isabelle Faust
-
-![Foto del album: Satie: Avant-dernières pensées (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02949cc0e6728be2f6601eb7ea)
-
-**Album:** Satie: Avant-dernières pensées (Bonus Track Version)
-
-📅 2022-11-28 13:16:01
