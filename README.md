@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Dances with Lizards** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2022-12-01 08:35:33
+
+
+# **Plains of Time (Home World)** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2022-12-01 08:32:51
+
+
+# **Arni (Home World)** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2022-12-01 08:29:24
+
+
+# **The Brink of Death** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2022-12-01 08:26:00
+
+
+# **Chrono Cross -Scars of Time-** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2022-12-01 08:23:03
+
+
+# **Maarva's Rebellion** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2022-11-30 06:10:50
+
+
 # **Niamos! (Coruscant Lounge Mix)** / Nicholas Britell
 
 ![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-11-29 10:36:20
-
-
-# **Hasta la Raíz** / Natalia Lafourcade
-
-![Foto del album: Hasta la Raíz (Edición Especial)](https://i.scdn.co/image/ab67616d00001e02bd4c237c04735257dd64c510)
-
-**Album:** Hasta la Raíz (Edición Especial)
-
-📅 2022-11-28 17:39:21
-
-
-# **Perfecta - Versión con Julieta Venegas** / Miranda!|Julieta Venegas
-
-![Foto del album: El Disco de Tu Corazón](https://i.scdn.co/image/ab67616d00001e025195219d777c551f280d95d5)
-
-**Album:** El Disco de Tu Corazón
-
-📅 2022-11-28 17:38:20
-
-
-# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
-
-![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
-
-**Album:** Reluciente, Rechinante y Aterciopelado
-
-📅 2022-11-28 17:34:34
-
-
-# **Caminar Sola** / Julieta Venegas
-
-![Foto del album: Tu Historia](https://i.scdn.co/image/ab67616d00001e02124cd40ece134e31def71125)
-
-**Album:** Tu Historia
-
-📅 2022-11-28 17:29:42
-
-
-# **Rompecabezas** / Aterciopelados
-
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
-
-**Album:** Gozo Poderoso
-
-📅 2022-11-28 17:26:01
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-11-28 17:21:50
