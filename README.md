@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-12-02 08:12:35
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-02 08:06:51
+
+
+# **Golden Hour** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-01 20:36:04
+
+
 # **Garbage Shark** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2022-12-01 16:05:48
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-12-01 16:00:44
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-01 14:00:54
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-01 13:58:03
