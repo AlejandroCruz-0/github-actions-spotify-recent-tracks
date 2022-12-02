@@ -13,130 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Dances with Lizards** / 光田 康典
+# **Garbage Shark** / Bent Knee
 
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Chrono Cross Original Soundtrack
+**Album:** You Know What They Mean
 
-📅 2022-12-01 08:35:33
-
-
-# **Plains of Time (Home World)** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-12-01 08:32:51
-
-
-# **Arni (Home World)** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-12-01 08:29:24
-
-
-# **The Brink of Death** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-12-01 08:26:00
-
-
-# **Chrono Cross -Scars of Time-** / 光田 康典
-
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
-
-**Album:** Chrono Cross Original Soundtrack
-
-📅 2022-12-01 08:23:03
-
-
-# **Maarva's Rebellion** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-30 06:10:50
-
-
-# **Niamos! (Coruscant Lounge Mix)** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-30 06:08:50
-
-
-# **I Thought He'd Be Here** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-30 06:06:23
-
-
-# **Kleya** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-30 06:05:17
-
-
-# **Fuel Purity** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-30 06:03:50
-
-
-# **Andor (Main Title Theme) - Episode 7** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2022-11-30 06:02:33
-
-
-# **All Caps** / Madvillain|Madlib|MF DOOM
-
-![Foto del album: Madvillainy](https://i.scdn.co/image/ab67616d00001e0274dc897ea75402db37ef239a)
-
-**Album:** Madvillainy
-
-📅 2022-11-29 23:12:43
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-11-29 23:10:19
-
-
-# **Legend Has It** / Run The Jewels|El-P|Killer Mike
-
-![Foto del album: Run The Jewels 3](https://i.scdn.co/image/ab67616d00001e02708b420d0de80525f3d63206)
-
-**Album:** Run The Jewels 3
-
-📅 2022-11-29 23:06:33
+📅 2022-12-01 20:35:17
 
 
 # **Catch Light** / Bent Knee
@@ -145,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-11-29 23:02:07
+📅 2022-12-01 20:29:38
 
 
 # **Garbage Shark** / Bent Knee
@@ -154,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-11-29 19:30:48
+📅 2022-12-01 20:14:13
 
 
 # **Catch Light** / Bent Knee
@@ -163,7 +46,25 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-11-29 19:30:34
+📅 2022-12-01 20:13:55
+
+
+# **It Happens** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-01 18:49:28
+
+
+# **Golden Hour** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-01 18:44:22
 
 
 # **Garbage Shark** / Bent Knee
@@ -172,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-11-29 10:52:12
+📅 2022-12-01 18:38:31
 
 
 # **Catch Light** / Bent Knee
@@ -181,7 +82,34 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-11-29 10:41:51
+📅 2022-12-01 18:32:52
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-12-01 16:39:53
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2022-12-01 16:38:05
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-12-01 16:32:38
 
 
 # **Hold Me In** / Bent Knee
@@ -190,4 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-11-29 10:36:20
+📅 2022-12-01 16:28:08
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-12-01 16:23:17
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+
+**Album:** Holding On
+
+📅 2022-12-01 16:19:32
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-12-01 16:15:28
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-01 16:11:22
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-12-01 16:05:48
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-01 16:00:44
+
+
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-01 14:00:54
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-01 13:58:03
