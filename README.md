@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2022-12-03 08:26:26
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2022-12-03 08:23:02
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2022-12-02 21:08:24
+
+
 # **Tightrope** / LP
 
 ![Foto del album: Lost on You](https://i.scdn.co/image/ab67616d00001e02edd52840c88ba5e7163071cf)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-12-01 20:29:38
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-01 20:14:13
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-01 20:13:55
-
-
-# **It Happens** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-01 18:49:28
