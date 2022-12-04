@@ -13,130 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **Duvet** / bôa
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** Twilight
+**Album:** The Mountain Will Fall
 
-📅 2022-12-03 08:26:26
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2022-12-03 08:23:02
+📅 2022-12-03 21:03:25
 
 
-# **In Bloom** / Nirvana
+# **Francis Forever** / Mitski
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
 
-**Album:** Nevermind (Remastered)
+**Album:** Bury Me At Makeout Creek
 
-📅 2022-12-02 21:08:24
-
-
-# **Tightrope** / LP
-
-![Foto del album: Lost on You](https://i.scdn.co/image/ab67616d00001e02edd52840c88ba5e7163071cf)
-
-**Album:** Lost on You
-
-📅 2022-12-02 21:08:07
+📅 2022-12-03 21:00:08
 
 
-# **Oh I Wept** / Free
+# **The Suburbs** / Arcade Fire
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: The Suburbs](https://i.scdn.co/image/ab67616d00001e02ce9097d719ec72da26e07864)
 
-**Album:** Fire And Water
+**Album:** The Suburbs
 
-📅 2022-12-02 20:57:32
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-12-02 20:56:54
+📅 2022-12-03 20:57:39
 
 
-# **Holy Ghost** / Bent Knee
+# **Legendary** / Welshly Arms
+
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+
+**Album:** No Place Is Home
+
+📅 2022-12-03 20:52:23
+
+
+# **Time Deer** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
 **Album:** Land Animal
 
-📅 2022-12-02 20:53:10
+📅 2022-12-03 20:48:31
 
 
-# **Oysters In My Pocket** / Royel Otis
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
-![Foto del album: Oysters In My Pocket](https://i.scdn.co/image/ab67616d00001e02c26684e1ebeab8ac89638c1a)
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
-**Album:** Oysters In My Pocket
+**Album:** Ride The Lightning (Remastered)
 
-📅 2022-12-02 20:44:51
-
-
-# **What Would the Odd Do?** / Guerilla Toss
-
-![Foto del album: What Would the Odd Do?](https://i.scdn.co/image/ab67616d00001e02408528cfcc7b24b0c1bd6645)
-
-**Album:** What Would the Odd Do?
-
-📅 2022-12-02 10:58:58
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-02 10:58:02
-
-
-# **It Happens** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-02 10:53:10
-
-
-# **Golden Hour** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-02 10:48:04
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-02 10:42:13
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-02 10:36:34
+📅 2022-12-03 20:44:10
 
 
 # **Oh I Wept** / Free
@@ -145,16 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-12-02 08:15:08
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-12-02 08:12:35
+📅 2022-12-03 20:38:29
 
 
 # **Mad About You** / Hooverphonic
@@ -163,25 +82,34 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-12-02 08:06:51
+📅 2022-12-03 20:34:02
 
 
-# **Golden Hour** / Bent Knee
+# **Casper** / Bent Knee
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Frosting](https://i.scdn.co/image/ab67616d00001e02e184dca0c352c6454e0777ae)
 
-**Album:** You Know What They Mean
+**Album:** Frosting
 
-📅 2022-12-01 20:36:04
+📅 2022-12-03 12:31:04
 
 
-# **Garbage Shark** / Bent Knee
+# **Baby in the Bush** / Bent Knee
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Frosting](https://i.scdn.co/image/ab67616d00001e02e184dca0c352c6454e0777ae)
 
-**Album:** You Know What They Mean
+**Album:** Frosting
 
-📅 2022-12-01 20:35:17
+📅 2022-12-03 12:29:38
+
+
+# **Invest in Breakfast** / Bent Knee
+
+![Foto del album: Frosting](https://i.scdn.co/image/ab67616d00001e02e184dca0c352c6454e0777ae)
+
+**Album:** Frosting
+
+📅 2022-12-03 12:25:26
 
 
 # **Catch Light** / Bent Knee
@@ -190,4 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-12-01 20:29:38
+📅 2022-12-03 12:20:43
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-12-03 10:15:04
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-12-03 10:13:52
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-12-03 10:10:54
+
+
+# **First Love / Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2022-12-03 10:06:24
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-03 10:01:45
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-12-03 09:55:09
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-12-03 09:51:23
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-12-03 09:47:57
