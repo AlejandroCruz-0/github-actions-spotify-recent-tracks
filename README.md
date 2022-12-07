@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Petrichor** / St. Barbe
+
+![Foto del album: Shapeless](https://i.scdn.co/image/ab67616d00001e029b1cb5e2d6dc8ff073a6c465)
+
+**Album:** Shapeless
+
+📅 2022-12-07 09:11:26
+
+
+# **The Antidote Is in the Poison** / GoGo Penguin
+
+![Foto del album: The Antidote Is in the Poison](https://i.scdn.co/image/ab67616d00001e02f656038876023b679c38bb33)
+
+**Album:** The Antidote Is in the Poison
+
+📅 2022-12-07 09:05:37
+
+
+# **Thirty One** / Lydian Collective
+
+![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
+
+**Album:** Adventure
+
+📅 2022-12-07 08:59:44
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-07 08:55:56
+
+
+# **Nuclear Burn** / Brand X
+
+![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
+
+**Album:** Unorthodox Behaviour
+
+📅 2022-12-07 08:51:59
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-12-06 17:15:29
+
+
 # **Hold Me In** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-12-05 21:53:38
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-05 20:12:38
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-12-04 23:36:33
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2022-12-04 23:13:00
-
-
-# **First Love / Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2022-12-04 23:08:29
-
-
-# **Insides In** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-04 23:03:50
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-12-04 22:57:20
