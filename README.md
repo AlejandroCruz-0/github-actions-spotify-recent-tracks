@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-07 09:27:19
+
+
+# **Aslan** / Ilhan Ersahin|Alp Ersönmez|Turgut Alp Bekoğlu|İzzet Kızıl
+
+![Foto del album: Aslan](https://i.scdn.co/image/ab67616d00001e029774952715b38e9f5f89c3e1)
+
+**Album:** Aslan
+
+📅 2022-12-07 09:23:39
+
+
+# **Bad Asteroid** / The Aristocrats
+
+![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
+
+**Album:** The Aristocrats
+
+📅 2022-12-07 09:17:20
+
+
 # **Petrichor** / St. Barbe
 
 ![Foto del album: Shapeless](https://i.scdn.co/image/ab67616d00001e029b1cb5e2d6dc8ff073a6c465)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-12-06 13:36:39
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-06 13:29:26
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-06 13:23:47
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-05 21:53:38
