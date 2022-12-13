@@ -13,13 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Garbage Shark** / Bent Knee
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Bueninvento
+**Album:** You Know What They Mean
 
-📅 2022-12-11 21:42:25
+📅 2022-12-12 19:18:35
 
 
 # **Catch Light** / Bent Knee
@@ -28,79 +28,16 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-12-11 13:55:36
+📅 2022-12-12 19:05:51
 
 
-# **Rock It for Me** / Caravan Palace
+# **Mirage** / Jean-Luc Ponty
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: Enigmatic Ocean](https://i.scdn.co/image/ab67616d00001e024b5090050309c67110e2640a)
 
-**Album:** Panic
+**Album:** Enigmatic Ocean
 
-📅 2022-12-11 13:50:57
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-12-11 13:47:44
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-12-11 13:43:58
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-11 13:39:51
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-12-11 13:34:18
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-12-11 13:30:26
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-12-11 13:25:59
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-12-11 13:22:08
+📅 2022-12-12 18:42:00
 
 
 # **Trinity** / Snarky Puppy
@@ -109,43 +46,34 @@ Nombre: **lotario1999**
 
 **Album:** Trinity
 
-📅 2022-12-11 10:50:29
+📅 2022-12-12 18:38:02
 
 
-# **Aslan** / Ilhan Ersahin|Alp Ersönmez|Turgut Alp Bekoğlu|İzzet Kızıl
+# **Medieval Overture - Instrumental** / Return To Forever
 
-![Foto del album: Aslan](https://i.scdn.co/image/ab67616d00001e029774952715b38e9f5f89c3e1)
+![Foto del album: Romantic Warrior](https://i.scdn.co/image/ab67616d00001e022823007924c5ce6b55a23117)
 
-**Album:** Aslan
+**Album:** Romantic Warrior
 
-📅 2022-12-11 10:38:05
-
-
-# **Thirty One** / Lydian Collective
-
-![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
-
-**Album:** Adventure
-
-📅 2022-12-11 10:31:46
+📅 2022-12-12 18:29:57
 
 
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+# **Bad Asteroid** / The Aristocrats
 
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
 
-**Album:** Galaxias
+**Album:** The Aristocrats
 
-📅 2022-12-11 10:27:58
+📅 2022-12-12 18:24:43
 
 
-# **Your Woman** / White Town
+# **Nuclear Burn** / Brand X
 
-![Foto del album: Women In Technology](https://i.scdn.co/image/ab67616d00001e02f1ad059f340b79a88f85ae64)
+![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
 
-**Album:** Women In Technology
+**Album:** Unorthodox Behaviour
 
-📅 2022-12-11 10:23:39
+📅 2022-12-12 18:18:48
 
 
 # **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
@@ -154,7 +82,79 @@ Nombre: **lotario1999**
 
 **Album:** Galaxias
 
-📅 2022-12-11 01:13:17
+📅 2022-12-12 18:12:25
+
+
+# **Bad Asteroid** / The Aristocrats
+
+![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
+
+**Album:** The Aristocrats
+
+📅 2022-12-12 11:58:53
+
+
+# **Nuclear Burn** / Brand X
+
+![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
+
+**Album:** Unorthodox Behaviour
+
+📅 2022-12-12 11:56:23
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-12 11:50:00
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-12 11:32:41
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-12-12 11:32:21
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-12-12 11:28:36
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-12-12 11:25:10
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-12-12 11:21:03
 
 
 # **I Love You** / Woodkid
@@ -163,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-12-10 21:45:14
+📅 2022-12-12 11:17:11
 
 
 # **Oh I Wept** / Free
@@ -172,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-12-10 21:16:53
+📅 2022-12-12 11:13:21
 
 
 # **Mad About You** / Hooverphonic
@@ -181,13 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-12-10 21:12:25
+📅 2022-12-12 11:08:53
 
 
-# **Francis Forever** / Mitski
+# **Garbage Shark** / Bent Knee
 
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Bury Me At Makeout Creek
+**Album:** You Know What They Mean
 
-📅 2022-12-10 20:03:19
+📅 2022-12-12 10:57:06
