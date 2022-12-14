@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Bad Asteroid** / The Aristocrats
+
+![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
+
+**Album:** The Aristocrats
+
+📅 2022-12-14 09:12:39
+
+
+# **Riding Giants** / Cristiano Parato|Mike Stern|Dave Weckl
+
+![Foto del album: Riding Giants (feat. Mike Stern, Dave Weckl)](https://i.scdn.co/image/ab67616d00001e028004ff95b3bcea2b42586057)
+
+**Album:** Riding Giants (feat. Mike Stern, Dave Weckl)
+
+📅 2022-12-14 09:06:45
+
+
+# **Nuclear Burn** / Brand X
+
+![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
+
+**Album:** Unorthodox Behaviour
+
+📅 2022-12-14 09:00:32
+
+
+# **Never Ending** / H ZETTRIO
+
+![Foto del album: Never Ending](https://i.scdn.co/image/ab67616d00001e02c668a4a5cfd1c64aad78a387)
+
+**Album:** Never Ending
+
+📅 2022-12-14 08:54:08
+
+
+# **Medieval Overture - Instrumental** / Return To Forever
+
+![Foto del album: Romantic Warrior](https://i.scdn.co/image/ab67616d00001e022823007924c5ce6b55a23117)
+
+**Album:** Romantic Warrior
+
+📅 2022-12-14 08:51:19
+
+
+# **Black Market** / Weather Report
+
+![Foto del album: Black Market](https://i.scdn.co/image/ab67616d00001e02f733433f86d4acd857c4cbc2)
+
+**Album:** Black Market
+
+📅 2022-12-14 08:46:04
+
+
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-14 08:39:34
+
+
+# **Thirty One** / Lydian Collective
+
+![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
+
+**Album:** Adventure
+
+📅 2022-12-14 08:31:39
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-14 08:27:51
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2022-12-13 17:55:54
+
+
 # **Rock It for Me** / Caravan Palace
 
 ![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** XO
 
 📅 2022-12-13 14:29:06
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2022-12-13 14:26:07
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2022-12-13 00:29:42
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2022-12-13 00:25:21
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2022-12-13 00:21:13
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-13 00:17:49
-
-
-# **It Happens** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-13 00:12:15
-
-
-# **Golden Hour** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-13 00:07:11
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-13 00:01:19
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-12 23:55:41
-
-
-# **Chau** / No Te Va Gustar|Julieta Venegas
-
-![Foto del album: Otras Canciones](https://i.scdn.co/image/ab67616d00001e029fa57de3cadf29c9bddb8d2c)
-
-**Album:** Otras Canciones
-
-📅 2022-12-12 23:51:04
