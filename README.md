@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
+
+![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
+
+**Album:** MONTERO
+
+📅 2022-12-15 07:03:56
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-15 07:00:24
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-12-15 06:56:15
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-12-15 06:53:17
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2022-12-15 06:48:46
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-12-15 06:43:53
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-12-15 06:40:07
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-15 06:31:29
+
+
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-15 06:27:28
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-15 06:19:32
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2022-12-14 22:02:40
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2022-12-14 21:58:10
+
+
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Magnetar (feat. Adam Deitch & Shaun Martin)
 
 📅 2022-12-14 09:23:04
-
-
-# **Petrichor** / St. Barbe
-
-![Foto del album: Shapeless](https://i.scdn.co/image/ab67616d00001e029b1cb5e2d6dc8ff073a6c465)
-
-**Album:** Shapeless
-
-📅 2022-12-14 09:18:28
-
-
-# **Bad Asteroid** / The Aristocrats
-
-![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
-
-**Album:** The Aristocrats
-
-📅 2022-12-14 09:12:39
-
-
-# **Riding Giants** / Cristiano Parato|Mike Stern|Dave Weckl
-
-![Foto del album: Riding Giants (feat. Mike Stern, Dave Weckl)](https://i.scdn.co/image/ab67616d00001e028004ff95b3bcea2b42586057)
-
-**Album:** Riding Giants (feat. Mike Stern, Dave Weckl)
-
-📅 2022-12-14 09:06:45
-
-
-# **Nuclear Burn** / Brand X
-
-![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
-
-**Album:** Unorthodox Behaviour
-
-📅 2022-12-14 09:00:32
-
-
-# **Never Ending** / H ZETTRIO
-
-![Foto del album: Never Ending](https://i.scdn.co/image/ab67616d00001e02c668a4a5cfd1c64aad78a387)
-
-**Album:** Never Ending
-
-📅 2022-12-14 08:54:08
-
-
-# **Medieval Overture - Instrumental** / Return To Forever
-
-![Foto del album: Romantic Warrior](https://i.scdn.co/image/ab67616d00001e022823007924c5ce6b55a23117)
-
-**Album:** Romantic Warrior
-
-📅 2022-12-14 08:51:19
-
-
-# **Black Market** / Weather Report
-
-![Foto del album: Black Market](https://i.scdn.co/image/ab67616d00001e02f733433f86d4acd857c4cbc2)
-
-**Album:** Black Market
-
-📅 2022-12-14 08:46:04
-
-
-# **Trinity** / Snarky Puppy
-
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
-
-**Album:** Trinity
-
-📅 2022-12-14 08:39:34
-
-
-# **Thirty One** / Lydian Collective
-
-![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
-
-**Album:** Adventure
-
-📅 2022-12-14 08:31:39
-
-
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
-
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
-
-**Album:** Galaxias
-
-📅 2022-12-14 08:27:51
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2022-12-13 17:55:54
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2022-12-13 17:55:21
