@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-12-14 15:53:23
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-12-14 15:52:28
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-12-14 15:49:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-14 15:44:52
+
+
+# **Stratus** / Billy Cobham
+
+![Foto del album: Spectrum](https://i.scdn.co/image/ab67616d00001e0253100a2a688ae4a0558fab17)
+
+**Album:** Spectrum
+
+📅 2022-12-14 09:40:09
+
+
+# **Mirage** / Jean-Luc Ponty
+
+![Foto del album: Enigmatic Ocean](https://i.scdn.co/image/ab67616d00001e024b5090050309c67110e2640a)
+
+**Album:** Enigmatic Ocean
+
+📅 2022-12-14 09:32:38
+
+
+# **Midnight Rendezvous** / CASIOPEA
+
+![Foto del album: Asian Dreamer](https://i.scdn.co/image/ab67616d00001e0258c45a673cb0d446a123166a)
+
+**Album:** Asian Dreamer
+
+📅 2022-12-14 09:27:43
+
+
+# **Magnetar (feat. Adam Deitch & Shaun Martin)** / Mark Lettieri|Adam Deitch|Shaun Martin
+
+![Foto del album: Magnetar (feat. Adam Deitch & Shaun Martin)](https://i.scdn.co/image/ab67616d00001e027e807f8d399d5ddedc124cff)
+
+**Album:** Magnetar (feat. Adam Deitch & Shaun Martin)
+
+📅 2022-12-14 09:23:04
+
+
+# **Petrichor** / St. Barbe
+
+![Foto del album: Shapeless](https://i.scdn.co/image/ab67616d00001e029b1cb5e2d6dc8ff073a6c465)
+
+**Album:** Shapeless
+
+📅 2022-12-14 09:18:28
+
+
 # **Bad Asteroid** / The Aristocrats
 
 ![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Panic
 
 📅 2022-12-13 17:55:21
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2022-12-13 17:51:47
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2022-12-13 17:46:05
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2022-12-13 17:41:49
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2022-12-13 17:36:10
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2022-12-13 14:46:36
-
-
-# **I'll Keep Coming** / Low Roar
-
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
-
-**Album:** 0
-
-📅 2022-12-13 14:43:20
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-12-13 14:37:27
-
-
-# **The Suburbs** / Arcade Fire
-
-![Foto del album: The Suburbs](https://i.scdn.co/image/ab67616d00001e02ce9097d719ec72da26e07864)
-
-**Album:** The Suburbs
-
-📅 2022-12-13 14:34:22
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2022-12-13 14:29:06
