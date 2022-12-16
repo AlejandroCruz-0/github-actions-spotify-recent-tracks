@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2022-12-15 11:27:15
+
+
+# **Tightrope** / LP
+
+![Foto del album: Lost on You](https://i.scdn.co/image/ab67616d00001e02edd52840c88ba5e7163071cf)
+
+**Album:** Lost on You
+
+📅 2022-12-15 11:23:00
+
+
+# **Pressure** / Billy Joel
+
+![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
+
+**Album:** The Nylon Curtain
+
+📅 2022-12-15 07:08:15
+
+
 # **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
 
 ![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Spectrum
 
 📅 2022-12-14 09:40:09
-
-
-# **Mirage** / Jean-Luc Ponty
-
-![Foto del album: Enigmatic Ocean](https://i.scdn.co/image/ab67616d00001e024b5090050309c67110e2640a)
-
-**Album:** Enigmatic Ocean
-
-📅 2022-12-14 09:32:38
-
-
-# **Midnight Rendezvous** / CASIOPEA
-
-![Foto del album: Asian Dreamer](https://i.scdn.co/image/ab67616d00001e0258c45a673cb0d446a123166a)
-
-**Album:** Asian Dreamer
-
-📅 2022-12-14 09:27:43
-
-
-# **Magnetar (feat. Adam Deitch & Shaun Martin)** / Mark Lettieri|Adam Deitch|Shaun Martin
-
-![Foto del album: Magnetar (feat. Adam Deitch & Shaun Martin)](https://i.scdn.co/image/ab67616d00001e027e807f8d399d5ddedc124cff)
-
-**Album:** Magnetar (feat. Adam Deitch & Shaun Martin)
-
-📅 2022-12-14 09:23:04
