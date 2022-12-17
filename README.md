@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Nuclear Burn** / Brand X
+
+![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
+
+**Album:** Unorthodox Behaviour
+
+📅 2022-12-16 21:43:37
+
+
 # **Thirty One** / Lydian Collective
 
 ![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
 
 📅 2022-12-16 20:02:31
-
-
-# **Battle** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 10:31:29
