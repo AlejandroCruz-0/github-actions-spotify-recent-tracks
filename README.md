@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Kill Me** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
+
+**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
+
+📅 2022-12-17 23:18:41
+
+
+# **Cassian Will Find Us** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
+
+**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
+
+📅 2022-12-17 23:17:16
+
+
+# **Forming Up/Unto Stone We Are** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
+
+**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
+
+📅 2022-12-17 23:08:00
+
+
+# **Misery Is a Butterfly** / Blonde Redhead
+
+![Foto del album: Misery Is a Butterfly](https://i.scdn.co/image/ab67616d00001e024d928f0ae78513a5f042e20a)
+
+**Album:** Misery Is a Butterfly
+
+📅 2022-12-16 21:55:14
+
+
 # **Nuclear Burn** / Brand X
 
 ![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
 
 📅 2022-12-16 20:08:17
-
-
-# **Never More Than Twelve** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:06:59
-
-
-# **Ulaf Fading** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:04:50
-
-
-# **Cousins** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:03:56
-
-
-# **Andor (Main Title Theme) - Episode 9** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:02:31
