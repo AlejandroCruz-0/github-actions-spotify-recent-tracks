@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-18 17:44:32
+
+
+# **Refuse / Resist** / Apocalyptica
+
+![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
+
+**Album:** Inquisition Symphony
+
+📅 2022-12-18 15:47:28
+
+
+# **Nothing Else Matters** / Apocalyptica
+
+![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
+
+**Album:** Inquisition Symphony
+
+📅 2022-12-18 15:45:10
+
+
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-18 10:09:29
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-18 10:04:33
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-18 09:56:28
+
+
+# **The Rebellion Suite** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
+
+**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
+
+📅 2022-12-17 23:20:49
+
+
 # **Kill Me** / Nicholas Britell
 
 ![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
 
 📅 2022-12-16 20:21:41
-
-
-# **Heroes** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:20:58
-
-
-# **My Name Is Kino Loy** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:19:50
-
-
-# **One Way Out - Part 8** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:15:35
-
-
-# **One Way Out - Parts 5-7** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:13:11
-
-
-# **One Way Out - Parts 1-4** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:11:20
-
-
-# **Make It Look Good** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:10:00
-
-
-# **Andor (Main Title Theme) - Episode 10** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:08:17
