@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-19 23:02:48
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-12-19 22:58:51
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2022-12-19 22:55:24
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-19 22:51:39
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-12-19 22:46:05
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-12-19 22:41:59
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-12-19 22:38:06
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-12-19 22:33:39
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-19 22:29:48
+
+
+# **The Antidote Is in the Poison** / GoGo Penguin
+
+![Foto del album: The Antidote Is in the Poison](https://i.scdn.co/image/ab67616d00001e02f656038876023b679c38bb33)
+
+**Album:** The Antidote Is in the Poison
+
+📅 2022-12-18 17:45:35
+
+
 # **Trinity** / Snarky Puppy
 
 ![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
@@ -67,6 +157,15 @@ Nombre: **lotario1999**
 📅 2022-12-18 09:56:28
 
 
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-18 00:33:12
+
+
 # **The Rebellion Suite** / Nicholas Britell
 
 ![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
 
 📅 2022-12-17 23:17:16
-
-
-# **Forming Up/Unto Stone We Are** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-17 23:08:00
-
-
-# **Misery Is a Butterfly** / Blonde Redhead
-
-![Foto del album: Misery Is a Butterfly](https://i.scdn.co/image/ab67616d00001e024d928f0ae78513a5f042e20a)
-
-**Album:** Misery Is a Butterfly
-
-📅 2022-12-16 21:55:14
-
-
-# **Nuclear Burn** / Brand X
-
-![Foto del album: Unorthodox Behaviour](https://i.scdn.co/image/ab67616d00001e02d0116028900d03e4e02d4f02)
-
-**Album:** Unorthodox Behaviour
-
-📅 2022-12-16 21:43:37
-
-
-# **Thirty One** / Lydian Collective
-
-![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
-
-**Album:** Adventure
-
-📅 2022-12-16 21:33:15
-
-
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
-
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
-
-**Album:** Galaxias
-
-📅 2022-12-16 21:29:27
-
-
-# **Refuse / Resist** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2022-12-16 20:56:34
-
-
-# **Nothing Else Matters** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2022-12-16 20:55:29
-
-
-# **Dewi and Freedi Pamular** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:25:34
-
-
-# **The Daughters of Ferrix** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:24:52
-
-
-# **Tell Me They’re Leaving/Bee** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:23:08
-
-
-# **Andor (Main Title Theme) - Episode 11** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-16 20:21:41
