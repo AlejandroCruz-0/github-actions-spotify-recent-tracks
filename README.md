@@ -13,31 +13,121 @@ Nombre: **lotario1999**
 
 
 
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+# **Winter Entombs You** / Dabu
 
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** Galaxias
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2022-12-19 23:02:48
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2022-12-19 22:58:51
+📅 2022-12-20 15:53:31
 
 
-# **Will Do** / TV On The Radio
+# **Death Spiral** / Dabu
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** Nine Types of Light
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2022-12-19 22:55:24
+📅 2022-12-20 15:48:14
+
+
+# **Mountainhome** / Dabu|The Gamba Geek
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:42:53
+
+
+# **Drink & Industry** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:37:25
+
+
+# **Forgotten Beast** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:35:05
+
+
+# **Expansive Cavern** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:31:12
+
+
+# **Vile Force of Darkness** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:27:06
+
+
+# **Hill Dwarf** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:21:48
+
+
+# **Strange Moods** / Dabu
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:17:37
+
+
+# **Strike The Earth!** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:12:59
+
+
+# **Craftsdwarfship** / Dabu|The Gamba Geek
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:08:54
+
+
+# **First Year** / Dabu
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:05:07
+
+
+# **Dwarf Fortress (Main Theme)** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2022-12-20 15:00:07
 
 
 # **Holy Ghost** / Bent Knee
@@ -46,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-12-19 22:51:39
+📅 2022-12-20 13:05:39
 
 
 # **Fever** / The Black Keys
@@ -55,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2022-12-19 22:46:05
+📅 2022-12-20 13:00:14
 
 
 # **Congregation** / Low
@@ -64,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-12-19 22:41:59
+📅 2022-12-20 12:56:07
 
 
 # **Oh I Wept** / Free
@@ -73,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-12-19 22:38:06
+📅 2022-12-20 12:52:14
 
 
 # **I Love You** / Woodkid
@@ -82,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-12-19 22:33:39
+📅 2022-12-20 12:47:47
 
 
 # **Mad About You** / Hooverphonic
@@ -91,61 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-12-19 22:29:48
-
-
-# **The Antidote Is in the Poison** / GoGo Penguin
-
-![Foto del album: The Antidote Is in the Poison](https://i.scdn.co/image/ab67616d00001e02f656038876023b679c38bb33)
-
-**Album:** The Antidote Is in the Poison
-
-📅 2022-12-18 17:45:35
-
-
-# **Trinity** / Snarky Puppy
-
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
-
-**Album:** Trinity
-
-📅 2022-12-18 17:44:32
-
-
-# **Refuse / Resist** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2022-12-18 15:47:28
-
-
-# **Nothing Else Matters** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2022-12-18 15:45:10
-
-
-# **Trinity** / Snarky Puppy
-
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
-
-**Album:** Trinity
-
-📅 2022-12-18 10:09:29
-
-
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
-
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
-
-**Album:** Galaxias
-
-📅 2022-12-18 10:04:33
+📅 2022-12-20 12:43:57
 
 
 # **Catch Light** / Bent Knee
@@ -154,40 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-12-18 09:56:28
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-18 00:33:12
-
-
-# **The Rebellion Suite** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-17 23:20:49
-
-
-# **Kill Me** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-17 23:18:41
-
-
-# **Cassian Will Find Us** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 3 (Episodes 9-12) [Original Score]](https://i.scdn.co/image/ab67616d00001e02ca0ea9794861f6e3713804fe)
-
-**Album:** Andor: Vol. 3 (Episodes 9-12) [Original Score]
-
-📅 2022-12-17 23:17:16
+📅 2022-12-19 23:03:08
