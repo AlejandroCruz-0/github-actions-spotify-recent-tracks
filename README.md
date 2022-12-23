@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-12-22 23:42:11
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-12-22 23:38:21
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-22 23:33:53
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-22 23:30:06
+
+
+# **Nothing Else Matters** / Apocalyptica
+
+![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
+
+**Album:** Inquisition Symphony
+
+📅 2022-12-22 23:24:34
+
+
 # **Besos En Guerra** / Morat|Juanes
 
 ![Foto del album: Balas Perdidas](https://i.scdn.co/image/ab67616d00001e0290fa215e791c13fe9bacb8bc)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dwarf Fortress (Original Game Soundtrack)
 
 📅 2022-12-20 15:42:53
-
-
-# **Drink & Industry** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:37:25
-
-
-# **Forgotten Beast** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:35:05
-
-
-# **Expansive Cavern** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:31:12
-
-
-# **Vile Force of Darkness** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:27:06
-
-
-# **Hill Dwarf** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:21:48
