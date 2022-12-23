@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Besos En Guerra** / Morat|Juanes
+
+![Foto del album: Balas Perdidas](https://i.scdn.co/image/ab67616d00001e0290fa215e791c13fe9bacb8bc)
+
+**Album:** Balas Perdidas
+
+📅 2022-12-22 20:34:02
+
+
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2022-12-22 20:30:11
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2022-12-22 20:25:59
+
+
 # **It Happens** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dwarf Fortress (Original Game Soundtrack)
 
 📅 2022-12-20 15:21:48
-
-
-# **Strange Moods** / Dabu
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:17:37
-
-
-# **Strike The Earth!** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:12:59
-
-
-# **Craftsdwarfship** / Dabu|The Gamba Geek
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:08:54
