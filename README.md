@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-12-24 14:31:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-24 14:26:34
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-24 14:22:50
+
+
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-24 09:59:01
+
+
+# **Thirty One** / Lydian Collective
+
+![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
+
+**Album:** Adventure
+
+📅 2022-12-24 09:53:49
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-24 09:50:02
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2022-12-23 10:39:52
+
+
 # **First Love/Late Spring** / Mitski
 
 ![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-12-21 18:05:47
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-21 18:00:08
-
-
-# **Winter Entombs You** / Dabu
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-21 13:04:12
-
-
-# **Death Spiral** / Dabu
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-21 13:01:28
-
-
-# **Mountainhome** / Dabu|The Gamba Geek
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-21 12:56:08
-
-
-# **Drink & Industry** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-21 12:50:41
-
-
-# **Another Year** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:58:44
-
-
-# **Winter Entombs You** / Dabu
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2022-12-20 15:53:31
