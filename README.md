@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2022-12-24 14:59:11
+
+
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2022-12-21 18:11:39
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2022-12-21 18:05:47
