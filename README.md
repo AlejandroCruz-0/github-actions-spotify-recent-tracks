@@ -13,58 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Fever** / The Black Keys
+# **Hold Me In** / Bent Knee
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Turn Blue
+**Album:** You Know What They Mean
 
-📅 2022-12-24 14:59:11
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-12-24 14:31:02
+📅 2022-12-26 21:13:08
 
 
-# **Mad About You** / Hooverphonic
+# **Holding On** / Aloboi
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** The Magnificent Tree
+**Album:** Holding On
 
-📅 2022-12-24 14:26:34
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-24 14:22:50
+📅 2022-12-26 21:08:17
 
 
-# **Trinity** / Snarky Puppy
+# **Stolen Car** / Beth Orton
 
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
 
-**Album:** Trinity
+**Album:** Central Reservation
 
-📅 2022-12-24 09:59:01
-
-
-# **Thirty One** / Lydian Collective
-
-![Foto del album: Adventure](https://i.scdn.co/image/ab67616d00001e026f739f578fcf2918755cfdb9)
-
-**Album:** Adventure
-
-📅 2022-12-24 09:53:49
+📅 2022-12-26 21:04:13
 
 
 # **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
@@ -73,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Galaxias
 
-📅 2022-12-24 09:50:02
+📅 2022-12-26 20:58:46
 
 
 # **Rock It for Me** / Caravan Palace
@@ -82,88 +55,25 @@ Nombre: **lotario1999**
 
 **Album:** Panic
 
-📅 2022-12-23 10:39:52
+📅 2022-12-26 20:54:49
 
 
-# **First Love/Late Spring** / Mitski
+# **Fuel** / Metallica
 
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
 
-**Album:** Bury Me At Makeout Creek
+**Album:** Reload
 
-📅 2022-12-23 10:36:49
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-12-22 23:42:34
+📅 2022-12-26 20:51:37
 
 
-# **I Love You** / Woodkid
+# **Catch Light** / Bent Knee
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** The Golden Age
+**Album:** You Know What They Mean
 
-📅 2022-12-22 23:42:11
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-12-22 23:38:21
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-12-22 23:33:53
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-22 23:30:06
-
-
-# **Nothing Else Matters** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2022-12-22 23:24:34
-
-
-# **Besos En Guerra** / Morat|Juanes
-
-![Foto del album: Balas Perdidas](https://i.scdn.co/image/ab67616d00001e0290fa215e791c13fe9bacb8bc)
-
-**Album:** Balas Perdidas
-
-📅 2022-12-22 20:34:02
-
-
-# **Rompecabezas** / Aterciopelados
-
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
-
-**Album:** Gozo Poderoso
-
-📅 2022-12-22 20:30:11
+📅 2022-12-26 20:47:07
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -172,22 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2022-12-22 20:25:59
+📅 2022-12-26 20:42:27
 
 
-# **It Happens** / Bent Knee
+# **Will Do** / TV On The Radio
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** You Know What They Mean
+**Album:** Nine Types of Light
 
-📅 2022-12-21 18:16:44
+📅 2022-12-26 20:39:01
 
 
-# **Golden Hour** / Bent Knee
+# **Fever** / The Black Keys
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** You Know What They Mean
+**Album:** Turn Blue
 
-📅 2022-12-21 18:11:39
+📅 2022-12-26 20:35:15
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-26 20:31:08
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2022-12-26 20:25:35
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-12-26 20:21:43
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-12-26 20:17:16
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-26 20:13:25
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2022-12-26 17:58:23
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2022-12-26 17:58:16
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2022-12-26 17:53:49
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-26 17:50:05
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2022-12-26 17:26:00
