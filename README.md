@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Aslan** / Ilhan Ersahin|Alp Ersönmez|Turgut Alp Bekoğlu|İzzet Kızıl
+
+![Foto del album: Aslan](https://i.scdn.co/image/ab67616d00001e029774952715b38e9f5f89c3e1)
+
+**Album:** Aslan
+
+📅 2022-12-28 08:39:43
+
+
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-28 08:33:23
+
+
+# **Nothing Else Matters** / Apocalyptica
+
+![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
+
+**Album:** Inquisition Symphony
+
+📅 2022-12-28 08:25:15
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2022-12-27 15:58:42
+
+
 # **Garbage Shark** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2022-12-27 14:47:46
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-12-27 14:43:19
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2022-12-27 14:38:13
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-12-27 14:34:23
-
-
-# **Trinity** / Snarky Puppy
-
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
-
-**Album:** Trinity
-
-📅 2022-12-26 21:15:33
