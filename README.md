@@ -13,13 +13,49 @@ Nombre: **lotario1999**
 
 
 
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2022-12-27 15:57:50
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2022-12-27 15:52:11
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2022-12-27 15:47:01
+
+
+# **Trinity** / Snarky Puppy
+
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+
+**Album:** Trinity
+
+📅 2022-12-27 15:43:13
+
+
 # **Hold Me In** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
 **Album:** You Know What They Mean
 
-📅 2022-12-26 21:13:08
+📅 2022-12-27 15:35:18
 
 
 # **Holding On** / Aloboi
@@ -28,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Holding On
 
-📅 2022-12-26 21:08:17
+📅 2022-12-27 15:30:28
 
 
 # **Stolen Car** / Beth Orton
@@ -37,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Central Reservation
 
-📅 2022-12-26 21:04:13
+📅 2022-12-27 15:26:24
 
 
 # **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
@@ -46,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Galaxias
 
-📅 2022-12-26 20:58:46
+📅 2022-12-27 15:20:57
 
 
 # **Rock It for Me** / Caravan Palace
@@ -55,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Panic
 
-📅 2022-12-26 20:54:49
+📅 2022-12-27 15:17:00
 
 
 # **Fuel** / Metallica
@@ -64,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Reload
 
-📅 2022-12-26 20:51:37
+📅 2022-12-27 15:13:48
 
 
 # **Catch Light** / Bent Knee
@@ -73,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2022-12-26 20:47:07
+📅 2022-12-27 15:09:18
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -82,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2022-12-26 20:42:27
+📅 2022-12-27 15:04:39
 
 
 # **Will Do** / TV On The Radio
@@ -91,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2022-12-26 20:39:01
+📅 2022-12-27 15:01:12
 
 
 # **Fever** / The Black Keys
@@ -100,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2022-12-26 20:35:15
+📅 2022-12-27 14:57:27
 
 
 # **Holy Ghost** / Bent Knee
@@ -109,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2022-12-26 20:31:08
+📅 2022-12-27 14:53:21
 
 
 # **Congregation** / Low
@@ -118,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2022-12-26 20:25:35
+📅 2022-12-27 14:47:46
 
 
 # **Oh I Wept** / Free
@@ -127,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2022-12-26 20:21:43
+📅 2022-12-27 14:43:19
 
 
 # **I Love You** / Woodkid
@@ -136,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2022-12-26 20:17:16
+📅 2022-12-27 14:38:13
 
 
 # **Mad About You** / Hooverphonic
@@ -145,49 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2022-12-26 20:13:25
+📅 2022-12-27 14:34:23
 
 
-# **I Love You** / Woodkid
+# **Trinity** / Snarky Puppy
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
 
-**Album:** The Golden Age
+**Album:** Trinity
 
-📅 2022-12-26 17:58:23
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2022-12-26 17:58:16
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2022-12-26 17:53:49
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-26 17:50:05
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2022-12-26 17:26:00
+📅 2022-12-26 21:15:33
