@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Sons of Creation** / Cameron Graves
+
+![Foto del album: Seven](https://i.scdn.co/image/ab67616d00001e02b15fc19ae0f5a11d4bf7b037)
+
+**Album:** Seven
+
+📅 2022-12-28 09:11:59
+
+
 # **Aslan** / Ilhan Ersahin|Alp Ersönmez|Turgut Alp Bekoğlu|İzzet Kızıl
 
 ![Foto del album: Aslan](https://i.scdn.co/image/ab67616d00001e029774952715b38e9f5f89c3e1)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2022-12-27 14:53:21
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2022-12-27 14:47:46
