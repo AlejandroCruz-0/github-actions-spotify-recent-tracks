@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2022-12-30 10:27:26
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2022-12-29 18:47:17
+
+
 # **Sons of Creation** / Cameron Graves
 
 ![Foto del album: Seven](https://i.scdn.co/image/ab67616d00001e02b15fc19ae0f5a11d4bf7b037)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nine Types of Light
 
 📅 2022-12-27 15:01:12
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2022-12-27 14:57:27
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2022-12-27 14:53:21
