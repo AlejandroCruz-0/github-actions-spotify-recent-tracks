@@ -13,139 +13,175 @@ Nombre: **lotario1999**
 
 
 
-# **Sour Times** / Portishead
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** Dummy
+**Album:** The Mountain Will Fall
 
-📅 2023-01-02 19:35:51
-
-
-# **What Part of Me** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-01-02 19:31:38
+📅 2023-01-03 18:11:33
 
 
-# **Mollo** / Anomalie
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: Galerie](https://i.scdn.co/image/ab67616d00001e023ecc9903fa3dde2377431d7a)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** Galerie
+**Album:** Stop Making Sense (Live)
 
-📅 2023-01-02 19:28:29
-
-
-# **Never Let You Down - From The "Insurgent" Soundtrack** / Woodkid|Lykke Li
-
-![Foto del album: Uncharted Territory](https://i.scdn.co/image/ab67616d00001e024bd874687f92d2e7950f5259)
-
-**Album:** Uncharted Territory
-
-📅 2023-01-02 19:26:34
+📅 2023-01-03 18:08:16
 
 
-# **Egg Replacer** / Bent Knee
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-01-03 18:04:10
+
+
+# **Nothing Else Matters** / Apocalyptica
+
+![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
+
+**Album:** Inquisition Symphony
+
+📅 2023-01-03 18:00:01
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2023-01-03 17:55:14
+
+
+# **For Whom The Bell Tolls - Remastered** / Metallica
+
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
+
+**Album:** Ride The Lightning (Remastered)
+
+📅 2023-01-03 17:51:27
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2023-01-03 17:46:17
+
+
+# **Garbage Shark** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
 **Album:** You Know What They Mean
 
-📅 2023-01-02 19:22:01
+📅 2023-01-03 17:40:50
 
 
-# **Bled White** / Elliott Smith
+# **Holding On** / Aloboi
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** XO
+**Album:** Holding On
 
-📅 2023-01-02 19:18:50
-
-
-# **The Curse** / Agnes Obel
-
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e02d40499205930184daadc62c7)
-
-**Album:** Aventine
-
-📅 2023-01-02 19:15:27
+📅 2023-01-03 17:35:11
 
 
-# **Teardrop** / Massive Attack
+# **First Love/Late Spring** / Mitski
 
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
 
-**Album:** Mezzanine
+**Album:** Bury Me At Makeout Creek
 
-📅 2023-01-02 19:09:33
-
-
-# **Level One** / Sungazer
-
-![Foto del album: Sungazer, Vol. 1](https://i.scdn.co/image/ab67616d00001e02ada5f7d1db2d0c5b64a26caa)
-
-**Album:** Sungazer, Vol. 1
-
-📅 2023-01-02 19:04:02
+📅 2023-01-03 17:31:08
 
 
-# **Beyond** / Avishai Cohen
-
-![Foto del album: From Darkness](https://i.scdn.co/image/ab67616d00001e029451a97a6e7e677067301667)
-
-**Album:** From Darkness
-
-📅 2023-01-02 19:02:26
-
-
-# **Shiny Eyed Babies** / Bent Knee
-
-![Foto del album: Shiny Eyed Babies](https://i.scdn.co/image/ab67616d00001e02c201f2419e571857323854b1)
-
-**Album:** Shiny Eyed Babies
-
-📅 2023-01-02 19:00:19
-
-
-# **Waltz #2 (XO)** / Elliott Smith
+# **Bottle Up And Explode!** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
 **Album:** XO
 
-📅 2023-01-02 18:58:59
+📅 2023-01-03 17:26:28
 
 
-# **No Place for Lovers** / Astronaut
+# **Hold Me In** / Bent Knee
 
-![Foto del album: No Place for Lovers](https://i.scdn.co/image/ab67616d00001e0201c75bfbab21116920e5d8c5)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** No Place for Lovers
+**Album:** You Know What They Mean
 
-📅 2023-01-02 18:54:20
-
-
-# **The Golden Age** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-01-02 18:51:22
+📅 2023-01-03 17:23:30
 
 
-# **All These People** / Sungazer
+# **Trinity** / Snarky Puppy
 
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
 
-**Album:** Perihelion
+**Album:** Trinity
 
-📅 2023-01-02 18:47:37
+📅 2023-01-03 17:18:39
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-01-03 17:10:44
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2023-01-03 17:07:33
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2023-01-03 17:03:02
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-03 16:59:05
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-01-03 16:54:25
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-01-03 16:50:59
 
 
 # **Fever** / The Black Keys
@@ -154,40 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-01-02 18:43:45
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2023-01-02 18:39:38
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-01-02 18:35:49
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-01-02 18:32:44
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-01-02 18:27:07
+📅 2023-01-03 16:47:14
