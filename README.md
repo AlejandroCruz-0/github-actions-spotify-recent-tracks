@@ -13,103 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2023-01-03 18:11:33
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2023-01-03 18:08:16
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-01-03 18:04:10
-
-
-# **Nothing Else Matters** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2023-01-03 18:00:01
-
-
-# **Let You Down** / Dawid Podsiadło
-
-![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
-
-**Album:** Let You Down
-
-📅 2023-01-03 17:55:14
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2023-01-03 17:51:27
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2023-01-03 17:46:17
-
-
-# **Garbage Shark** / Bent Knee
+# **Egg Replacer** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
 **Album:** You Know What They Mean
 
-📅 2023-01-03 17:40:50
+📅 2023-01-04 14:37:11
 
 
-# **Holding On** / Aloboi
+# **Moth Like Me** / Guerilla Toss
 
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+![Foto del album: What Would the Odd Do?](https://i.scdn.co/image/ab67616d00001e02408528cfcc7b24b0c1bd6645)
 
-**Album:** Holding On
+**Album:** What Would the Odd Do?
 
-📅 2023-01-03 17:35:11
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-01-03 17:31:08
+📅 2023-01-04 14:32:12
 
 
-# **Bottle Up And Explode!** / Elliott Smith
+# **Mauerbauertraurigkeit** / Closure in Moscow
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Pink Lemonade](https://i.scdn.co/image/ab67616d00001e0236836f3554326d9f9a87533f)
 
-**Album:** XO
+**Album:** Pink Lemonade
 
-📅 2023-01-03 17:26:28
+📅 2023-01-04 14:29:10
+
+
+# **The One inside Part One - Noise in the Background** / Beardfish
+
+![Foto del album: +4626-COMFORTZONE](https://i.scdn.co/image/ab67616d00001e0203978f3c7ff507480aaf8fa6)
+
+**Album:** +4626-COMFORTZONE
+
+📅 2023-01-04 14:21:43
+
+
+# **I Walk Alone** / Sungazer|Justina Maria Soto
+
+![Foto del album: Sungazer, Vol. 1](https://i.scdn.co/image/ab67616d00001e02ada5f7d1db2d0c5b64a26caa)
+
+**Album:** Sungazer, Vol. 1
+
+📅 2023-01-04 14:19:56
 
 
 # **Hold Me In** / Bent Knee
@@ -118,43 +64,52 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2023-01-03 17:23:30
+📅 2023-01-04 14:18:13
 
 
-# **Trinity** / Snarky Puppy
+# **Last Coat of Paint** / Zeal & Ardor
 
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+![Foto del album: The Needle Drop LP](https://i.scdn.co/image/ab67616d00001e027d6d795d5fb6b56c963e9a7d)
 
-**Album:** Trinity
+**Album:** The Needle Drop LP
 
-📅 2023-01-03 17:18:39
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-01-03 17:10:44
+📅 2023-01-04 14:13:23
 
 
-# **Fuel** / Metallica
+# **What Would the Odd Do?** / Guerilla Toss
 
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+![Foto del album: What Would the Odd Do?](https://i.scdn.co/image/ab67616d00001e02408528cfcc7b24b0c1bd6645)
 
-**Album:** Reload
+**Album:** What Would the Odd Do?
 
-📅 2023-01-03 17:07:33
+📅 2023-01-04 14:11:24
 
 
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+# **Neoprene Byzantine** / Closure in Moscow
 
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+![Foto del album: Pink Lemonade](https://i.scdn.co/image/ab67616d00001e0236836f3554326d9f9a87533f)
 
-**Album:** Galaxias
+**Album:** Pink Lemonade
 
-📅 2023-01-03 17:03:02
+📅 2023-01-04 14:08:58
+
+
+# **‽** / The Physics House Band
+
+![Foto del album: Death Sequence](https://i.scdn.co/image/ab67616d00001e02460e5dc046f16fc08ce410e4)
+
+**Album:** Death Sequence
+
+📅 2023-01-04 14:05:04
+
+
+# **Level One** / Sungazer
+
+![Foto del album: Sungazer, Vol. 1](https://i.scdn.co/image/ab67616d00001e02ada5f7d1db2d0c5b64a26caa)
+
+**Album:** Sungazer, Vol. 1
+
+📅 2023-01-04 14:03:19
 
 
 # **Catch Light** / Bent Knee
@@ -163,25 +118,43 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2023-01-03 16:59:05
+📅 2023-01-04 14:01:43
 
 
-# **Sería Feliz** / Julieta Venegas
+# **It Happens** / Bent Knee
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Bueninvento
+**Album:** You Know What They Mean
 
-📅 2023-01-03 16:54:25
+📅 2023-01-04 13:56:47
 
 
-# **Will Do** / TV On The Radio
+# **Golden Hour** / Bent Knee
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Nine Types of Light
+**Album:** You Know What They Mean
 
-📅 2023-01-03 16:50:59
+📅 2023-01-04 13:51:41
+
+
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-04 13:45:50
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-04 13:40:11
 
 
 # **Fever** / The Black Keys
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-01-03 16:47:14
+📅 2023-01-04 10:59:09
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-01-04 10:55:09
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-01-04 10:49:36
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-01-04 10:45:43
