@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Sour Times** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-11 09:14:33
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-01-10 18:07:26
+
+
 # **It Could Be Sweet** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Inquisition Symphony
 
 📅 2023-01-08 19:23:45
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2023-01-08 19:18:59
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2023-01-08 19:13:50
