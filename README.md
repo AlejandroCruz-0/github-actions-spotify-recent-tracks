@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **It Could Be Sweet** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-10 13:08:08
+
+
+# **Strangers** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-10 13:06:33
+
+
+# **Sour Times** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-10 13:02:34
+
+
+# **Mysterons** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-10 12:58:23
+
+
+# **It Happens** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-10 12:52:50
+
+
+# **Golden Hour** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-10 12:47:44
+
+
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-10 12:41:53
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-10 12:36:14
+
+
+# **Cómo Sé** / Julieta Venegas
+
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+
+**Album:** Aqui
+
+📅 2023-01-08 19:57:34
+
+
 # **Pressure** / Billy Joel
 
 ![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Holding On
 
 📅 2023-01-08 19:13:50
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-08 19:09:45
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-01-08 19:04:07
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2023-01-08 19:01:08
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-01-08 18:55:42
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-08 18:51:02
-
-
-# **Trinity** / Snarky Puppy
-
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
-
-**Album:** Trinity
-
-📅 2023-01-08 18:46:11
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2023-01-08 18:38:17
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-01-08 18:33:47
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-08 18:30:35
