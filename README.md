@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Wandering Star** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-11 09:27:43
+
+
+# **It Could Be Sweet** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-11 09:22:49
+
+
+# **Strangers** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-01-11 09:18:32
+
+
 # **Sour Times** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Let You Down
 
 📅 2023-01-08 19:35:50
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2023-01-08 19:32:02
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-01-08 19:27:55
-
-
-# **Nothing Else Matters** / Apocalyptica
-
-![Foto del album: Inquisition Symphony](https://i.scdn.co/image/ab67616d00001e02aafd1a955eda9a0f8bbf50a1)
-
-**Album:** Inquisition Symphony
-
-📅 2023-01-08 19:23:45
