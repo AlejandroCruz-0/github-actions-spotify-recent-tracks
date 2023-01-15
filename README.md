@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-01-14 10:07:17
+
+
+# **Embryonic Journey** / Jefferson Airplane
+
+![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
+
+**Album:** Surrealistic Pillow
+
+📅 2023-01-13 21:39:35
+
+
 # **White Rabbit** / Jefferson Airplane
 
 ![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Even In The Quietest Moments
 
 📅 2023-01-12 15:38:04
-
-
-# **School** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-01-12 15:31:37
-
-
-# **Easy Does It** / Supertramp
-
-![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
-
-**Album:** Crisis? What Crisis?
-
-📅 2023-01-12 15:26:02
