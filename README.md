@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-01-14 10:07:43
+
+
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Famous Last Words (Remastered)
 
 📅 2023-01-12 15:44:29
-
-
-# **Even In The Quietest Moments** / Supertramp
-
-![Foto del album: Even In The Quietest Moments](https://i.scdn.co/image/ab67616d00001e02bddcc30c6a3288e725aec2df)
-
-**Album:** Even In The Quietest Moments
-
-📅 2023-01-12 15:38:04
