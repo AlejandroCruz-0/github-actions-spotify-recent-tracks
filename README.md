@@ -13,130 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-01-14 10:07:43
+📅 2023-01-16 18:35:06
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Don't Bring Me Down** / Electric Light Orchestra
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Discovery](https://i.scdn.co/image/ab67616d00001e02c18cc9d6fcea1478b1257678)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Discovery
 
-📅 2023-01-14 10:07:17
-
-
-# **Embryonic Journey** / Jefferson Airplane
-
-![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
-
-**Album:** Surrealistic Pillow
-
-📅 2023-01-13 21:39:35
-
-
-# **White Rabbit** / Jefferson Airplane
-
-![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
-
-**Album:** Surrealistic Pillow
-
-📅 2023-01-13 21:39:01
-
-
-# **White Room** / Cream
-
-![Foto del album: Wheels Of Fire](https://i.scdn.co/image/ab67616d00001e025c7731f5acdcb2d02d78b7ee)
-
-**Album:** Wheels Of Fire
-
-📅 2023-01-13 21:23:07
-
-
-# **Easy Does It** / Supertramp
-
-![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
-
-**Album:** Crisis? What Crisis?
-
-📅 2023-01-13 21:18:08
-
-
-# **Dancing In The Moonlight** / King Harvest
-
-![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
-
-**Album:** PAUL OST (Streaming Version)
-
-📅 2023-01-13 21:15:49
-
-
-# **Daydream** / The Lovin' Spoonful
-
-![Foto del album: Daydream](https://i.scdn.co/image/ab67616d00001e02737f8ad011befb8c655d3a33)
-
-**Album:** Daydream
-
-📅 2023-01-13 21:12:51
-
-
-# **Spanish Moon** / Little Feat
-
-![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
-
-**Album:** Feats Don't Fail Me Now
-
-📅 2023-01-13 21:10:32
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-13 21:07:26
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-13 12:27:02
-
-
-# **Dancing In The Moonlight** / King Harvest
-
-![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
-
-**Album:** PAUL OST (Streaming Version)
-
-📅 2023-01-13 12:22:53
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-13 12:19:56
-
-
-# **It's Raining Again** / Supertramp
-
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
-
-**Album:** Famous Last Words (Remastered)
-
-📅 2023-01-12 18:10:41
+📅 2023-01-16 16:20:28
 
 
 # **Dreamer** / Supertramp
@@ -145,16 +37,52 @@ Nombre: **lotario1999**
 
 **Album:** Crime Of The Century (Remastered)
 
-📅 2023-01-12 18:10:38
+📅 2023-01-16 16:18:51
 
 
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
+# **Riverside** / America
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: America](https://i.scdn.co/image/ab67616d00001e02afb855e6461310dff4046c56)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** America
 
-📅 2023-01-12 18:07:04
+📅 2023-01-16 16:15:16
+
+
+# **It's Too Late** / Carole King
+
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+
+**Album:** Tapestry
+
+📅 2023-01-16 16:12:16
+
+
+# **Izzat Love? - 2015 Remaster** / Todd Rundgren
+
+![Foto del album: Todd](https://i.scdn.co/image/ab67616d00001e0224057781bef6bf728da36a06)
+
+**Album:** Todd
+
+📅 2023-01-16 16:08:21
+
+
+# **Honeymoon With B Troop** / 10cc
+
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+
+**Album:** Deceptive Bends
+
+📅 2023-01-16 16:06:26
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2023-01-16 16:03:39
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -163,16 +91,52 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-12 18:01:54
+📅 2023-01-16 16:00:01
 
 
-# **Crime Of The Century - Remastered 2010** / Supertramp
+# **Sister Golden Hair** / America
 
-![Foto del album: Crime Of The Century (Deluxe)](https://i.scdn.co/image/ab67616d00001e02a95d2ea6952dd4ff391d8f73)
+![Foto del album: Hearts](https://i.scdn.co/image/ab67616d00001e02697a6ee736a3c36177c4557d)
 
-**Album:** Crime Of The Century (Deluxe)
+**Album:** Hearts
 
-📅 2023-01-12 15:49:17
+📅 2023-01-16 15:54:09
+
+
+# **White Sun** / The Doobie Brothers
+
+![Foto del album: Toulouse Street](https://i.scdn.co/image/ab67616d00001e026f4433e965a9ee12556ecd12)
+
+**Album:** Toulouse Street
+
+📅 2023-01-16 15:50:49
+
+
+# **Doctor My Eyes** / Jackson Browne
+
+![Foto del album: Jackson Browne (Saturate Before Using)](https://i.scdn.co/image/ab67616d00001e02759f9719982a240d02539e38)
+
+**Album:** Jackson Browne (Saturate Before Using)
+
+📅 2023-01-16 15:48:18
+
+
+# **Summer Breeze** / Seals and Crofts
+
+![Foto del album: Summer Breeze](https://i.scdn.co/image/ab67616d00001e02e13b56ae3e9e99abf2c2026c)
+
+**Album:** Summer Breeze
+
+📅 2023-01-16 15:44:59
+
+
+# **Pressure** / Billy Joel
+
+![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
+
+**Album:** The Nylon Curtain
+
+📅 2023-01-16 15:41:33
 
 
 # **Bloody Well Right** / Supertramp
@@ -181,13 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** Crime Of The Century (Remastered)
 
-📅 2023-01-12 15:49:03
+📅 2023-01-16 15:36:52
 
 
-# **Don't Leave Me Now** / Supertramp
+# **Pensamiento** / Stephen Stills
 
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
+![Foto del album: Down The Road](https://i.scdn.co/image/ab67616d00001e02b10fe81255a056727e6897e4)
 
-**Album:** Famous Last Words (Remastered)
+**Album:** Down The Road
 
-📅 2023-01-12 15:44:29
+📅 2023-01-16 15:32:18
+
+
+# **I Feel the Earth Move** / Carole King
+
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+
+**Album:** Tapestry
+
+📅 2023-01-16 15:29:41
+
+
+# **Spanish Moon** / Little Feat
+
+![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
+
+**Album:** Feats Don't Fail Me Now
+
+📅 2023-01-16 15:26:43
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2023-01-16 15:23:36
+
+
+# **Long Train Runnin'** / The Doobie Brothers
+
+![Foto del album: The Captain and Me](https://i.scdn.co/image/ab67616d00001e027d419ac975423c069995c7bb)
+
+**Album:** The Captain and Me
+
+📅 2023-01-16 13:29:53
