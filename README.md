@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
+📅 2023-01-16 23:41:41
+
+
+# **Spanish Moon** / Little Feat
+
+![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
+
+**Album:** Feats Don't Fail Me Now
+
+📅 2023-01-16 18:51:20
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
 📅 2023-01-16 18:35:06
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Feats Don't Fail Me Now
 
 📅 2023-01-16 15:26:43
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-01-16 15:23:36
-
-
-# **Long Train Runnin'** / The Doobie Brothers
-
-![Foto del album: The Captain and Me](https://i.scdn.co/image/ab67616d00001e027d419ac975423c069995c7bb)
-
-**Album:** The Captain and Me
-
-📅 2023-01-16 13:29:53
