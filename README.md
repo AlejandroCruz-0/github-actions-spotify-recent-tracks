@@ -13,76 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Everybody's Talkin'** / Harry Nilsson
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Midnight Cowboy](https://i.scdn.co/image/ab67616d00001e020e5ac4baebfb187adfc1c43d)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Midnight Cowboy
 
-📅 2023-01-19 15:17:36
-
-
-# **I Ran (So Far Away)** / A Flock Of Seagulls
-
-![Foto del album: We Are The '80s](https://i.scdn.co/image/ab67616d00001e02b3704cb907f6638aeed16abf)
-
-**Album:** We Are The '80s
-
-📅 2023-01-19 13:06:31
-
-
-# **I Wouldn't Want to Be Like You** / The Alan Parsons Project
-
-![Foto del album: I Robot (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0212171916079468f70ad95523)
-
-**Album:** I Robot (Expanded Edition)
-
-📅 2023-01-19 13:06:05
-
-
-# **Dance On Your Knees** / Daryl Hall & John Oates
-
-![Foto del album: Big Bam Boom (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0254d448eab10cb21c182d2f70)
-
-**Album:** Big Bam Boom (Expanded Edition)
-
-📅 2023-01-19 13:02:43
-
-
-# **One Night In Bangkok - Radio Edit / From “Chess” / Remastered 2016** / Murray Head
-
-![Foto del album: One Night In Bangkok (Radio Edit / From “Chess” / Remastered 2016)](https://i.scdn.co/image/ab67616d00001e024d0418c998ee5879cce6a91f)
-
-**Album:** One Night In Bangkok (Radio Edit / From “Chess” / Remastered 2016)
-
-📅 2023-01-19 13:01:16
-
-
-# **Honeymoon With B Troop** / 10cc
-
-![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
-
-**Album:** Deceptive Bends
-
-📅 2023-01-19 12:58:01
-
-
-# **Summer Breeze** / Seals and Crofts
-
-![Foto del album: Summer Breeze](https://i.scdn.co/image/ab67616d00001e02e13b56ae3e9e99abf2c2026c)
-
-**Album:** Summer Breeze
-
-📅 2023-01-19 12:55:13
-
-
-# **Need You Tonight** / INXS
-
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
-
-**Album:** Kick (Remastered 2011)
-
-📅 2023-01-19 12:51:48
+📅 2023-01-20 20:51:23
 
 
 # **I Saw the Light - 2015 Remaster** / Todd Rundgren
@@ -91,7 +28,52 @@ Nombre: **lotario1999**
 
 **Album:** Something / Anything?
 
-📅 2023-01-19 12:48:47
+📅 2023-01-20 20:48:51
+
+
+# **Bloody Well Right** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-01-20 20:45:50
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2023-01-20 20:41:17
+
+
+# **From the Beginning - 2015 Remaster** / Emerson, Lake & Palmer
+
+![Foto del album: Trilogy (Deluxe)](https://i.scdn.co/image/ab67616d00001e021f2d13685298586d7f493c40)
+
+**Album:** Trilogy (Deluxe)
+
+📅 2023-01-20 20:37:39
+
+
+# **Goodbye Yellow Brick Road - Remastered 2014** / Elton John
+
+![Foto del album: Goodbye Yellow Brick Road (Remastered)](https://i.scdn.co/image/ab67616d00001e02f72f1e38e9bd48f18a17ed9b)
+
+**Album:** Goodbye Yellow Brick Road (Remastered)
+
+📅 2023-01-20 20:33:25
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-01-20 20:30:13
 
 
 # **Out of Touch** / Daryl Hall & John Oates
@@ -100,94 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-01-19 12:45:45
+📅 2023-01-20 13:58:07
 
 
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-01-19 12:41:25
-
-
-# **Cradle of Rocks** / Bent Knee
+# **Catch Light** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
 **Album:** You Know What They Mean
 
-📅 2023-01-18 18:18:41
+📅 2023-01-20 13:53:57
 
 
-# **Egg Replacer** / Bent Knee
+# **Will Do** / TV On The Radio
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** You Know What They Mean
+**Album:** Nine Types of Light
 
-📅 2023-01-18 18:06:55
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-18 18:03:43
+📅 2023-01-20 13:49:17
 
 
-# **Need You Tonight** / INXS
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Kick (Remastered 2011)
+**Album:** Bueninvento
 
-📅 2023-01-18 17:48:51
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-01-18 17:48:24
+📅 2023-01-20 13:45:32
 
 
-# **Supermoon** / 65daysofstatic
+# **Fever** / The Black Keys
 
-![Foto del album: No Man's Sky: Music For An Infinite Universe](https://i.scdn.co/image/ab67616d00001e02833195094052d06c59161a54)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** No Man's Sky: Music For An Infinite Universe
+**Album:** Turn Blue
 
-📅 2023-01-18 17:32:39
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-01-18 17:27:34
+📅 2023-01-20 13:42:06
 
 
-# **I Feel the Earth Move** / Carole King
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Tapestry
+**Album:** Land Animal
 
-📅 2023-01-18 14:43:15
+📅 2023-01-20 13:37:54
 
 
-# **Need You Tonight** / INXS
+# **Congregation** / Low
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Kick (Remastered 2011)
+**Album:** Ones and Sixes
 
-📅 2023-01-18 14:42:30
+📅 2023-01-20 13:32:20
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-01-20 13:28:28
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-01-20 13:24:00
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-01-20 13:20:10
+
+
+# **Another Park, Another Sunday** / The Doobie Brothers
+
+![Foto del album: What Were Once Vices Are Now Habits](https://i.scdn.co/image/ab67616d00001e02f8fc7e7d8ed70a0b6d85f35f)
+
+**Album:** What Were Once Vices Are Now Habits
+
+📅 2023-01-20 10:51:14
+
+
+# **Baby Blue - Remastered 2010** / Badfinger
+
+![Foto del album: Straight Up (Remastered 2010 / Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd29cdaa3fadbdc26d59c4)
+
+**Album:** Straight Up (Remastered 2010 / Deluxe Edition)
+
+📅 2023-01-20 10:47:13
+
+
+# **Gotta Get Up** / Harry Nilsson
+
+![Foto del album: Nilsson Schmilsson](https://i.scdn.co/image/ab67616d00001e024df5b571de1c3f8ba2f02386)
+
+**Album:** Nilsson Schmilsson
+
+📅 2023-01-20 10:43:34
