@@ -13,67 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **The Antidote Is in the Poison** / GoGo Penguin
+# **Spanish Moon** / Little Feat
 
-![Foto del album: The Antidote Is in the Poison](https://i.scdn.co/image/ab67616d00001e02f656038876023b679c38bb33)
+![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
 
-**Album:** The Antidote Is in the Poison
+**Album:** Feats Don't Fail Me Now
 
-📅 2023-01-22 21:27:00
-
-
-# **Medieval Overture - Instrumental** / Return To Forever
-
-![Foto del album: Romantic Warrior](https://i.scdn.co/image/ab67616d00001e022823007924c5ce6b55a23117)
-
-**Album:** Romantic Warrior
-
-📅 2023-01-22 21:21:06
+📅 2023-01-23 15:59:17
 
 
-# **VHS Fireplace Love - Live** / Nathan-Paul|SmokeFace|Gabe Jones
+# **Catch Light** / Bent Knee
 
-![Foto del album: VHS Fireplace Love (Live)](https://i.scdn.co/image/ab67616d00001e021e91d07002d2d780c3d377c3)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** VHS Fireplace Love (Live)
+**Album:** You Know What They Mean
 
-📅 2023-01-22 21:15:52
-
-
-# **Trinity** / Snarky Puppy
-
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
-
-**Album:** Trinity
-
-📅 2023-01-22 21:13:07
+📅 2023-01-23 15:58:02
 
 
-# **Midnight Rendezvous** / CASIOPEA
+# **Will Do** / TV On The Radio
 
-![Foto del album: Asian Dreamer](https://i.scdn.co/image/ab67616d00001e0258c45a673cb0d446a123166a)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Asian Dreamer
+**Album:** Nine Types of Light
 
-📅 2023-01-22 21:05:13
-
-
-# **Black Market** / Weather Report
-
-![Foto del album: Black Market](https://i.scdn.co/image/ab67616d00001e02f733433f86d4acd857c4cbc2)
-
-**Album:** Black Market
-
-📅 2023-01-22 21:00:34
+📅 2023-01-23 15:53:22
 
 
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Galaxias
+**Album:** Bueninvento
 
-📅 2023-01-22 20:54:03
+📅 2023-01-23 15:49:30
 
 
 # **Fever** / The Black Keys
@@ -82,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-01-22 16:07:18
+📅 2023-01-23 15:46:04
 
 
 # **Holy Ghost** / Bent Knee
@@ -91,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2023-01-22 16:06:31
+📅 2023-01-23 15:41:57
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -100,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-22 16:00:57
+📅 2023-01-23 15:36:23
 
 
 # **Congregation** / Low
@@ -109,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2023-01-22 15:55:05
+📅 2023-01-23 15:30:32
 
 
 # **Out of Touch** / Daryl Hall & John Oates
@@ -118,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-01-22 15:51:14
+📅 2023-01-23 15:26:39
 
 
 # **Oh I Wept** / Free
@@ -127,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2023-01-22 15:47:04
+📅 2023-01-23 15:22:29
 
 
 # **I Love You** / Woodkid
@@ -136,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-01-22 15:42:36
+📅 2023-01-23 15:18:02
 
 
 # **Mad About You** / Hooverphonic
@@ -145,49 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-01-22 15:38:45
+📅 2023-01-23 15:14:12
 
 
-# **Operator (That's Not the Way It Feels)** / Jim Croce
+# **Fever** / The Black Keys
 
-![Foto del album: You Don't Mess Around With Jim](https://i.scdn.co/image/ab67616d00001e0298078d325c25a5ac4081cfba)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** You Don't Mess Around With Jim
+**Album:** Turn Blue
 
-📅 2023-01-20 20:52:08
-
-
-# **Everybody's Talkin'** / Harry Nilsson
-
-![Foto del album: Midnight Cowboy](https://i.scdn.co/image/ab67616d00001e020e5ac4baebfb187adfc1c43d)
-
-**Album:** Midnight Cowboy
-
-📅 2023-01-20 20:51:23
+📅 2023-01-23 11:57:41
 
 
-# **I Saw the Light - 2015 Remaster** / Todd Rundgren
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Something / Anything?](https://i.scdn.co/image/ab67616d00001e02572add334f45441a292ed9fb)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Something / Anything?
+**Album:** Land Animal
 
-📅 2023-01-20 20:48:51
-
-
-# **Bloody Well Right** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-01-20 20:45:50
+📅 2023-01-23 11:56:59
 
 
-# **50 Ways to Leave Your Lover** / Paul Simon
+# **Fuel** / Metallica
 
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
 
-**Album:** Still Crazy After All These Years
+**Album:** Reload
 
-📅 2023-01-20 20:41:17
+📅 2023-01-23 11:40:09
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-01-23 11:35:39
+
+
+# **I Feel the Earth Move** / Carole King
+
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+
+**Album:** Tapestry
+
+📅 2023-01-23 11:32:27
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-23 11:29:28
+
+
+# **Honeymoon With B Troop** / 10cc
+
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+
+**Album:** Deceptive Bends
+
+📅 2023-01-23 11:24:36
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2023-01-23 11:21:49
