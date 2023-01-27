@@ -13,103 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-25 13:28:56
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-25 12:47:19
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-25 12:43:18
-
-
-# **Bloody Well Right** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-01-25 12:10:43
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
-
-**Album:** Holding On
-
-📅 2023-01-25 12:09:36
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2023-01-25 12:05:32
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-01-25 12:00:22
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-01-25 11:57:24
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-01-25 11:52:39
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-01-25 11:48:48
-
-
 # **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
 **Album:** Ones and Sixes
 
-📅 2023-01-25 11:39:45
+📅 2023-01-26 19:41:30
 
 
 # **Out of Touch** / Daryl Hall & John Oates
@@ -118,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-01-25 11:35:52
+📅 2023-01-26 19:37:37
 
 
 # **Oh I Wept** / Free
@@ -127,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2023-01-25 11:31:42
+📅 2023-01-26 19:33:27
 
 
 # **I Love You** / Woodkid
@@ -136,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-01-25 11:27:15
+📅 2023-01-26 19:28:57
 
 
 # **Mad About You** / Hooverphonic
@@ -145,49 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-01-25 11:23:25
+📅 2023-01-26 19:25:02
 
 
-# **Lovell** / Bent Knee
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** You Know What They Mean
+**Album:** Land Animal
 
-📅 2023-01-24 17:10:26
-
-
-# **Cradle of Rocks** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-24 16:59:21
+📅 2023-01-26 16:17:55
 
 
-# **Egg Replacer** / Bent Knee
+# **Congregation** / Low
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** You Know What They Mean
+**Album:** Ones and Sixes
 
-📅 2023-01-24 16:55:20
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-24 16:52:10
+📅 2023-01-26 16:12:33
 
 
-# **Will Do** / TV On The Radio
+# **Lady** / Free
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: The Free Story](https://i.scdn.co/image/ab67616d00001e026c9efbbfe787c3994e36f642)
 
-**Album:** Nine Types of Light
+**Album:** The Free Story
 
-📅 2023-01-24 15:42:39
+📅 2023-01-26 12:07:56
+
+
+# **Soon I Will Be Gone** / Free
+
+![Foto del album: Highway (Remastered with Bonus Tracks)](https://i.scdn.co/image/ab67616d00001e02ebaed30c93d2cc07825d5fce)
+
+**Album:** Highway (Remastered with Bonus Tracks)
+
+📅 2023-01-26 12:07:43
+
+
+# **Easy On My Soul** / Free
+
+![Foto del album: Heartbreaker](https://i.scdn.co/image/ab67616d00001e02e3dbc47835dbbb0e84faf7d0)
+
+**Album:** Heartbreaker
+
+📅 2023-01-26 12:04:41
+
+
+# **Mouthful Of Grass** / Free
+
+![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
+
+**Album:** Free
+
+📅 2023-01-26 12:00:54
+
+
+# **Don't Say You Love Me** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-01-26 11:57:15
+
+
+# **Over The Green Hills - Part 1** / Free
+
+![Foto del album: Tons Of Sobs](https://i.scdn.co/image/ab67616d00001e02f12c4cf01bcdb1be059c4195)
+
+**Album:** Tons Of Sobs
+
+📅 2023-01-26 11:51:13
+
+
+# **Come Together In The Morning** / Free
+
+![Foto del album: Heartbreaker](https://i.scdn.co/image/ab67616d00001e02e3dbc47835dbbb0e84faf7d0)
+
+**Album:** Heartbreaker
+
+📅 2023-01-26 11:50:21
+
+
+# **Lying In The Sunshine** / Free
+
+![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
+
+**Album:** Free
+
+📅 2023-01-26 11:45:43
+
+
+# **Remember** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-01-26 11:41:49
+
+
+# **The Stealer** / Free
+
+![Foto del album: Highway (Remastered with Bonus Tracks)](https://i.scdn.co/image/ab67616d00001e02ebaed30c93d2cc07825d5fce)
+
+**Album:** Highway (Remastered with Bonus Tracks)
+
+📅 2023-01-26 11:37:24
+
+
+# **Wild Indian Woman** / Free
+
+![Foto del album: Tons Of Sobs](https://i.scdn.co/image/ab67616d00001e02f12c4cf01bcdb1be059c4195)
+
+**Album:** Tons Of Sobs
+
+📅 2023-01-26 11:34:08
+
+
+# **Trouble On Double Time** / Free
+
+![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
+
+**Album:** Free
+
+📅 2023-01-26 11:30:27
+
+
+# **Little Bit Of Love** / Free
+
+![Foto del album: Free At Last](https://i.scdn.co/image/ab67616d00001e02b679e675c7660723d4f0ae7b)
+
+**Album:** Free At Last
+
+📅 2023-01-26 11:27:01
