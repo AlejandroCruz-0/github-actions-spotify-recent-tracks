@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Congregation** / Low
+# **Strange Timez (feat. Robert Smith)** / Gorillaz|Robert Smith
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Song Machine, Season One: Strange Timez (Deluxe)](https://i.scdn.co/image/ab67616d00001e0205a3c11cb2cb7c60d30316a3)
 
-**Album:** Ones and Sixes
+**Album:** Song Machine, Season One: Strange Timez (Deluxe)
 
-📅 2023-01-26 19:41:30
+📅 2023-01-27 15:51:42
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **Subdivisions** / Rush
 
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+![Foto del album: Signals](https://i.scdn.co/image/ab67616d00001e02abebd4d9947e535ab56572fc)
 
-**Album:** The Very Best of Daryl Hall / John Oates
+**Album:** Signals
 
-📅 2023-01-26 19:37:37
+📅 2023-01-27 15:47:54
 
 
-# **Oh I Wept** / Free
+# **Hypersleep** / 65daysofstatic
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: No Man's Sky: Music For An Infinite Universe](https://i.scdn.co/image/ab67616d00001e02833195094052d06c59161a54)
 
-**Album:** Fire And Water
+**Album:** No Man's Sky: Music For An Infinite Universe
 
-📅 2023-01-26 19:33:27
+📅 2023-01-27 15:42:19
 
 
-# **I Love You** / Woodkid
+# **Space Oddity - 2015 Remaster** / David Bowie
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: David Bowie (aka Space Oddity) [2015 Remaster]](https://i.scdn.co/image/ab67616d00001e023395f3e809dfbc2b1101d464)
 
-**Album:** The Golden Age
+**Album:** David Bowie (aka Space Oddity) [2015 Remaster]
 
-📅 2023-01-26 19:28:57
+📅 2023-01-27 15:39:25
 
 
-# **Mad About You** / Hooverphonic
+# **Awake** / Tycho
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Awake](https://i.scdn.co/image/ab67616d00001e02016e76981b3dfd695b90ff52)
 
-**Album:** The Magnificent Tree
+**Album:** Awake
 
-📅 2023-01-26 19:25:02
+📅 2023-01-27 15:34:06
 
 
-# **Holy Ghost** / Bent Knee
+# **2000 Light Years From Home - Stereo / Remastered** / The Rolling Stones
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Their Satanic Majesties Request (50th Anniversary Special Edition / Remastered)](https://i.scdn.co/image/ab67616d00001e0263a1d46bf691ebd45e3cb393)
 
-**Album:** Land Animal
+**Album:** Their Satanic Majesties Request (50th Anniversary Special Edition / Remastered)
 
-📅 2023-01-26 16:17:55
+📅 2023-01-27 15:28:13
 
 
-# **Congregation** / Low
+# **Supermoon** / 65daysofstatic
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: No Man's Sky: Music For An Infinite Universe](https://i.scdn.co/image/ab67616d00001e02833195094052d06c59161a54)
 
-**Album:** Ones and Sixes
+**Album:** No Man's Sky: Music For An Infinite Universe
 
-📅 2023-01-26 16:12:33
+📅 2023-01-27 15:23:27
 
 
-# **Lady** / Free
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: The Free Story](https://i.scdn.co/image/ab67616d00001e026c9efbbfe787c3994e36f642)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** The Free Story
+**Album:** Still Crazy After All These Years
 
-📅 2023-01-26 12:07:56
+📅 2023-01-27 15:18:48
 
 
-# **Soon I Will Be Gone** / Free
+# **Dreamer** / Supertramp
 
-![Foto del album: Highway (Remastered with Bonus Tracks)](https://i.scdn.co/image/ab67616d00001e02ebaed30c93d2cc07825d5fce)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** Highway (Remastered with Bonus Tracks)
+**Album:** Crime Of The Century (Remastered)
 
-📅 2023-01-26 12:07:43
+📅 2023-01-27 15:15:10
 
 
-# **Easy On My Soul** / Free
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Heartbreaker](https://i.scdn.co/image/ab67616d00001e02e3dbc47835dbbb0e84faf7d0)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Heartbreaker
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-26 12:04:41
+📅 2023-01-27 15:11:36
 
 
-# **Mouthful Of Grass** / Free
+# **Dancing In The Moonlight** / King Harvest
 
-![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
+![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
 
-**Album:** Free
+**Album:** PAUL OST (Streaming Version)
 
-📅 2023-01-26 12:00:54
+📅 2023-01-27 12:35:00
 
 
-# **Don't Say You Love Me** / Free
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** Fire And Water
+**Album:** Still Crazy After All These Years
 
-📅 2023-01-26 11:57:15
+📅 2023-01-27 12:33:38
 
 
-# **Over The Green Hills - Part 1** / Free
+# **Breakfast In America - 2010 Remastered** / Supertramp
 
-![Foto del album: Tons Of Sobs](https://i.scdn.co/image/ab67616d00001e02f12c4cf01bcdb1be059c4195)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Tons Of Sobs
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-26 11:51:13
+📅 2023-01-27 12:30:01
 
 
-# **Come Together In The Morning** / Free
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Heartbreaker](https://i.scdn.co/image/ab67616d00001e02e3dbc47835dbbb0e84faf7d0)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Heartbreaker
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-26 11:50:21
+📅 2023-01-27 12:27:21
 
 
-# **Lying In The Sunshine** / Free
+# **I Feel the Earth Move** / Carole King
 
-![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
 
-**Album:** Free
+**Album:** Tapestry
 
-📅 2023-01-26 11:45:43
+📅 2023-01-27 11:28:43
 
 
-# **Remember** / Free
+# **Dancing In The Moonlight** / King Harvest
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
 
-**Album:** Fire And Water
+**Album:** PAUL OST (Streaming Version)
 
-📅 2023-01-26 11:41:49
+📅 2023-01-27 11:28:30
 
 
-# **The Stealer** / Free
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: Highway (Remastered with Bonus Tracks)](https://i.scdn.co/image/ab67616d00001e02ebaed30c93d2cc07825d5fce)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** Highway (Remastered with Bonus Tracks)
+**Album:** Still Crazy After All These Years
 
-📅 2023-01-26 11:37:24
+📅 2023-01-27 11:25:32
 
 
-# **Wild Indian Woman** / Free
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: Tons Of Sobs](https://i.scdn.co/image/ab67616d00001e02f12c4cf01bcdb1be059c4195)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Tons Of Sobs
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-26 11:34:08
+📅 2023-01-27 11:21:54
 
 
-# **Trouble On Double Time** / Free
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Free
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-26 11:30:27
+📅 2023-01-27 11:16:46
 
 
-# **Little Bit Of Love** / Free
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Free At Last](https://i.scdn.co/image/ab67616d00001e02b679e675c7660723d4f0ae7b)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Free At Last
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-26 11:27:01
+📅 2023-01-27 11:01:56
