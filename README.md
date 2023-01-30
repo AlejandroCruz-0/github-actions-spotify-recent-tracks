@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Everything You Do Is A Balloon** / Boards of Canada
+
+![Foto del album: Hi Scores](https://i.scdn.co/image/ab67616d00001e021b83c0c9aa3dbcfd259f5fe3)
+
+**Album:** Hi Scores
+
+📅 2023-01-27 15:56:36
+
+
 # **Strange Timez (feat. Robert Smith)** / Gorillaz|Robert Smith
 
 ![Foto del album: Song Machine, Season One: Strange Timez (Deluxe)](https://i.scdn.co/image/ab67616d00001e0205a3c11cb2cb7c60d30316a3)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2023-01-27 11:16:46
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-27 11:01:56
