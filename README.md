@@ -13,139 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Everything You Do Is A Balloon** / Boards of Canada
+# **I Love You** / Woodkid
 
-![Foto del album: Hi Scores](https://i.scdn.co/image/ab67616d00001e021b83c0c9aa3dbcfd259f5fe3)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Hi Scores
+**Album:** The Golden Age
 
-📅 2023-01-27 15:56:36
+📅 2023-01-30 18:59:30
 
 
-# **Strange Timez (feat. Robert Smith)** / Gorillaz|Robert Smith
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Song Machine, Season One: Strange Timez (Deluxe)](https://i.scdn.co/image/ab67616d00001e0205a3c11cb2cb7c60d30316a3)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Song Machine, Season One: Strange Timez (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-01-27 15:51:42
+📅 2023-01-30 18:55:40
 
 
-# **Subdivisions** / Rush
+# **Trinity** / Snarky Puppy
 
-![Foto del album: Signals](https://i.scdn.co/image/ab67616d00001e02abebd4d9947e535ab56572fc)
+![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
 
-**Album:** Signals
+**Album:** Trinity
 
-📅 2023-01-27 15:47:54
+📅 2023-01-30 14:11:37
 
 
-# **Hypersleep** / 65daysofstatic
+# **For Whom The Bell Tolls - Remastered** / Metallica
 
-![Foto del album: No Man's Sky: Music For An Infinite Universe](https://i.scdn.co/image/ab67616d00001e02833195094052d06c59161a54)
+![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
 
-**Album:** No Man's Sky: Music For An Infinite Universe
+**Album:** Ride The Lightning (Remastered)
 
-📅 2023-01-27 15:42:19
+📅 2023-01-30 14:05:10
 
 
-# **Space Oddity - 2015 Remaster** / David Bowie
+# **Holding On** / Aloboi
 
-![Foto del album: David Bowie (aka Space Oddity) [2015 Remaster]](https://i.scdn.co/image/ab67616d00001e023395f3e809dfbc2b1101d464)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** David Bowie (aka Space Oddity) [2015 Remaster]
+**Album:** Holding On
 
-📅 2023-01-27 15:39:25
-
-
-# **Awake** / Tycho
-
-![Foto del album: Awake](https://i.scdn.co/image/ab67616d00001e02016e76981b3dfd695b90ff52)
-
-**Album:** Awake
-
-📅 2023-01-27 15:34:06
-
-
-# **2000 Light Years From Home - Stereo / Remastered** / The Rolling Stones
-
-![Foto del album: Their Satanic Majesties Request (50th Anniversary Special Edition / Remastered)](https://i.scdn.co/image/ab67616d00001e0263a1d46bf691ebd45e3cb393)
-
-**Album:** Their Satanic Majesties Request (50th Anniversary Special Edition / Remastered)
-
-📅 2023-01-27 15:28:13
-
-
-# **Supermoon** / 65daysofstatic
-
-![Foto del album: No Man's Sky: Music For An Infinite Universe](https://i.scdn.co/image/ab67616d00001e02833195094052d06c59161a54)
-
-**Album:** No Man's Sky: Music For An Infinite Universe
-
-📅 2023-01-27 15:23:27
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-01-27 15:18:48
-
-
-# **Dreamer** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-01-27 15:15:10
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-27 15:11:36
-
-
-# **Dancing In The Moonlight** / King Harvest
-
-![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
-
-**Album:** PAUL OST (Streaming Version)
-
-📅 2023-01-27 12:35:00
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-01-27 12:33:38
-
-
-# **Breakfast In America - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-27 12:30:01
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-01-27 12:27:21
+📅 2023-01-30 14:00:00
 
 
 # **I Feel the Earth Move** / Carole King
@@ -154,16 +64,43 @@ Nombre: **lotario1999**
 
 **Album:** Tapestry
 
-📅 2023-01-27 11:28:43
+📅 2023-01-30 13:55:57
 
 
-# **Dancing In The Moonlight** / King Harvest
+# **Bottle Up And Explode!** / Elliott Smith
 
-![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** PAUL OST (Streaming Version)
+**Album:** XO
 
-📅 2023-01-27 11:28:30
+📅 2023-01-30 13:52:58
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2023-01-30 13:49:58
+
+
+# **Honeymoon With B Troop** / 10cc
+
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+
+**Album:** Deceptive Bends
+
+📅 2023-01-30 13:45:20
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2023-01-30 13:42:32
 
 
 # **50 Ways to Leave Your Lover** / Paul Simon
@@ -172,22 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** Still Crazy After All These Years
 
-📅 2023-01-27 11:25:32
+📅 2023-01-30 13:38:02
 
 
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Panic
 
-📅 2023-01-27 11:21:54
+📅 2023-01-30 13:34:25
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Hold Me In** / Bent Knee
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** You Know What They Mean
 
-📅 2023-01-27 11:16:46
+📅 2023-01-30 13:31:12
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2023-01-30 13:26:22
+
+
+# **Spanish Moon** / Little Feat
+
+![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
+
+**Album:** Feats Don't Fail Me Now
+
+📅 2023-01-30 13:22:24
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-01-30 13:19:18
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-01-30 13:15:51
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-01-30 13:11:12
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-01-30 13:07:27
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2023-01-30 13:03:20
