@@ -13,13 +13,22 @@ Nombre: **lotario1999**
 
 
 
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-01-31 19:49:08
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
 **Album:** The Golden Age
 
-📅 2023-01-30 18:59:30
+📅 2023-01-31 19:45:16
 
 
 # **Mad About You** / Hooverphonic
@@ -28,97 +37,43 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-01-30 18:55:40
+📅 2023-01-31 19:41:19
 
 
-# **Trinity** / Snarky Puppy
+# **Oh I Wept** / Free
 
-![Foto del album: Trinity](https://i.scdn.co/image/ab67616d00001e0219901db0cc284ed792460ac2)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Trinity
+**Album:** Fire And Water
 
-📅 2023-01-30 14:11:37
-
-
-# **For Whom The Bell Tolls - Remastered** / Metallica
-
-![Foto del album: Ride The Lightning (Remastered)](https://i.scdn.co/image/ab67616d00001e029ad3e9959f48d513886b8933)
-
-**Album:** Ride The Lightning (Remastered)
-
-📅 2023-01-30 14:05:10
+📅 2023-01-31 16:14:23
 
 
-# **Holding On** / Aloboi
+# **Congregation** / Low
 
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Holding On
+**Album:** Ones and Sixes
 
-📅 2023-01-30 14:00:00
-
-
-# **I Feel the Earth Move** / Carole King
-
-![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
-
-**Album:** Tapestry
-
-📅 2023-01-30 13:55:57
+📅 2023-01-31 16:11:12
 
 
-# **Bottle Up And Explode!** / Elliott Smith
+# **I Love You** / Woodkid
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** XO
+**Album:** The Golden Age
 
-📅 2023-01-30 13:52:58
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-01-30 13:49:58
+📅 2023-01-31 16:07:19
 
 
-# **Honeymoon With B Troop** / 10cc
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Deceptive Bends
+**Album:** The Magnificent Tree
 
-📅 2023-01-30 13:45:20
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2023-01-30 13:42:32
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-01-30 13:38:02
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-01-30 13:34:25
+📅 2023-01-31 16:03:29
 
 
 # **Hold Me In** / Bent Knee
@@ -127,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2023-01-30 13:31:12
+📅 2023-01-31 11:04:55
 
 
 # **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
@@ -136,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Galaxias
 
-📅 2023-01-30 13:26:22
+📅 2023-01-31 11:02:01
 
 
 # **Spanish Moon** / Little Feat
@@ -145,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Feats Don't Fail Me Now
 
-📅 2023-01-30 13:22:24
+📅 2023-01-31 10:58:04
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -154,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2023-01-30 13:19:18
+📅 2023-01-31 10:54:57
 
 
 # **Catch Light** / Bent Knee
@@ -163,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2023-01-30 13:15:51
+📅 2023-01-31 10:51:32
 
 
 # **Will Do** / TV On The Radio
@@ -172,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2023-01-30 13:11:12
+📅 2023-01-31 10:46:52
 
 
 # **Fever** / The Black Keys
@@ -181,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-01-30 13:07:27
+📅 2023-01-31 10:43:07
 
 
 # **Out of Touch** / Daryl Hall & John Oates
@@ -190,4 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-01-30 13:03:20
+📅 2023-01-31 10:39:00
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-01-31 10:34:50
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-01-31 10:28:58
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-01-31 10:23:24
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-01-31 10:18:58
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-01-31 10:15:05
