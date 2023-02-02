@@ -13,121 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-01-31 19:49:08
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-01-31 19:45:16
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-01-31 19:41:19
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-01-31 16:14:23
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-01-31 16:11:12
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-01-31 16:07:19
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-01-31 16:03:29
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-31 11:04:55
-
-
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
-
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
-
-**Album:** Galaxias
-
-📅 2023-01-31 11:02:01
-
-
-# **Spanish Moon** / Little Feat
-
-![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
-
-**Album:** Feats Don't Fail Me Now
-
-📅 2023-01-31 10:58:04
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-01-31 10:54:57
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-01-31 10:51:32
-
-
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
 **Album:** Nine Types of Light
 
-📅 2023-01-31 10:46:52
+📅 2023-02-01 16:45:06
 
 
 # **Fever** / The Black Keys
@@ -136,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-01-31 10:43:07
+📅 2023-02-01 16:41:21
 
 
 # **Out of Touch** / Daryl Hall & John Oates
@@ -145,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-01-31 10:39:00
+📅 2023-02-01 16:37:14
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -154,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-01-31 10:34:50
+📅 2023-02-01 16:33:05
 
 
 # **Holy Ghost** / Bent Knee
@@ -163,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2023-01-31 10:28:58
+📅 2023-02-01 16:27:14
 
 
 # **Oh I Wept** / Free
@@ -172,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2023-01-31 10:23:24
+📅 2023-02-01 16:21:39
 
 
 # **Congregation** / Low
@@ -181,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2023-01-31 10:18:58
+📅 2023-02-01 16:17:12
 
 
 # **I Love You** / Woodkid
@@ -190,4 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-01-31 10:15:05
+📅 2023-02-01 16:13:20
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-01 16:09:30
+
+
+# **I Feel the Earth Move** / Carole King
+
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+
+**Album:** Tapestry
+
+📅 2023-02-01 13:15:44
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2023-02-01 13:13:54
+
+
+# **Dreamer** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-02-01 13:10:16
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-01 13:06:42
+
+
+# **Dreamer** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-02-01 12:24:46
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-01 12:21:12
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-01 12:07:06
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-02-01 12:00:05
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-02-01 11:55:15
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-02-01 11:33:53
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-01-31 19:50:26
