@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-01 23:12:10
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-01 23:06:11
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-02-01 16:45:44
+
+
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Know What They Mean
 
 📅 2023-02-01 12:00:05
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-02-01 11:55:15
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-02-01 11:33:53
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-01-31 19:50:26
