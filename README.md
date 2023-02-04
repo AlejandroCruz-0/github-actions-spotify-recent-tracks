@@ -13,67 +13,103 @@ Nombre: **lotario1999**
 
 
 
-# **One - Single Version** / Three Dog Night
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Three Dog Night](https://i.scdn.co/image/ab67616d00001e023f54486350a5c681ba9ec382)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Three Dog Night
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-02-02 21:08:13
-
-
-# **Everybody's Talkin'** / Harry Nilsson
-
-![Foto del album: Midnight Cowboy](https://i.scdn.co/image/ab67616d00001e020e5ac4baebfb187adfc1c43d)
-
-**Album:** Midnight Cowboy
-
-📅 2023-02-02 21:05:07
+📅 2023-02-03 16:34:13
 
 
-# **Dreamer** / Supertramp
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Crime Of The Century (Remastered)
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-02-02 21:02:34
-
-
-# **Doctor My Eyes** / Jackson Browne
-
-![Foto del album: Jackson Browne (Saturate Before Using)](https://i.scdn.co/image/ab67616d00001e02759f9719982a240d02539e38)
-
-**Album:** Jackson Browne (Saturate Before Using)
-
-📅 2023-02-02 20:59:00
+📅 2023-02-03 13:54:49
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **MONTERO (Call Me By Your Name)** / Lil Nas X
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: MONTERO (Call Me By Your Name)](https://i.scdn.co/image/ab67616d00001e02664034dd80e91b28f773598d)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** MONTERO (Call Me By Your Name)
 
-📅 2023-02-02 20:55:40
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-02-02 12:53:57
+📅 2023-02-03 13:54:40
 
 
-# **Congregation** / Low
+# **Legendary** / Welshly Arms
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Ones and Sixes
+**Album:** No Place Is Home
 
-📅 2023-02-02 12:48:32
+📅 2023-02-03 13:52:22
+
+
+# **Baby Britain** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2023-02-03 13:48:29
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2023-02-03 13:45:15
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-02-03 13:41:08
+
+
+# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
+
+![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
+
+**Album:** INDUSTRY BABY (feat. Jack Harlow)
+
+📅 2023-02-03 13:37:56
+
+
+# **Pitseleh** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2023-02-03 13:34:23
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-02-03 13:31:01
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-02-03 13:25:18
 
 
 # **Oh I Wept** / Free
@@ -82,7 +118,16 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2023-02-02 12:44:41
+📅 2023-02-03 13:21:40
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-02-03 13:01:27
 
 
 # **I Love You** / Woodkid
@@ -91,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-02-02 12:40:13
+📅 2023-02-03 12:59:16
 
 
 # **Mad About You** / Hooverphonic
@@ -100,70 +145,43 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-02 12:36:22
+📅 2023-02-03 12:55:27
 
 
-# **Spanish Moon** / Little Feat
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Feats Don't Fail Me Now
+**Album:** The Magnificent Tree
 
-📅 2023-02-02 10:39:59
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-02-02 10:39:26
+📅 2023-02-03 12:30:22
 
 
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-02-02 10:34:13
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-01 23:12:10
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-01 23:06:11
-
-
-# **Catch Light** / Bent Knee
+# **Cradle of Rocks** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
 **Album:** You Know What They Mean
 
-📅 2023-02-01 16:45:44
+📅 2023-02-03 11:44:02
 
 
-# **Will Do** / TV On The Radio
+# **Egg Replacer** / Bent Knee
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** Nine Types of Light
+**Album:** You Know What They Mean
 
-📅 2023-02-01 16:45:06
+📅 2023-02-03 11:42:42
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-02-03 11:39:31
 
 
 # **Fever** / The Black Keys
@@ -172,22 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-02-01 16:41:21
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-02-01 16:37:14
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-01 16:33:05
+📅 2023-02-03 10:05:19
