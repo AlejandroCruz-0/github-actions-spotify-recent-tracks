@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Congregation** / Low
+# **Dreamer** / Supertramp
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** Ones and Sixes
+**Album:** Crime Of The Century (Remastered)
 
-📅 2023-02-05 21:15:42
+📅 2023-02-06 12:59:05
 
 
-# **Oh I Wept** / Free
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Fire And Water
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-05 21:15:05
+📅 2023-02-06 12:58:45
 
 
-# **I Love You** / Woodkid
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Golden Age
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-05 21:10:37
+📅 2023-02-06 12:53:35
 
 
-# **Mad About You** / Hooverphonic
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Magnificent Tree
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-05 21:06:48
+📅 2023-02-06 12:47:24
 
 
-# **Bled White** / Elliott Smith
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** XO
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-03 16:34:19
+📅 2023-02-06 12:42:15
 
 
-# **My Favourite Game** / The Cardigans
+# **Dreamer** / Supertramp
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Crime Of The Century (Remastered)
 
-📅 2023-02-03 16:34:13
+📅 2023-02-06 12:11:52
 
 
-# **My Favourite Game** / The Cardigans
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-03 13:54:49
+📅 2023-02-06 12:11:41
 
 
-# **MONTERO (Call Me By Your Name)** / Lil Nas X
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: MONTERO (Call Me By Your Name)](https://i.scdn.co/image/ab67616d00001e02664034dd80e91b28f773598d)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** MONTERO (Call Me By Your Name)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-03 13:54:40
+📅 2023-02-06 12:06:32
 
 
-# **Legendary** / Welshly Arms
+# **Egg Replacer** / Bent Knee
 
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** No Place Is Home
+**Album:** You Know What They Mean
 
-📅 2023-02-03 13:52:22
+📅 2023-02-06 11:26:33
 
 
-# **Baby Britain** / Elliott Smith
+# **Hold Me In** / Bent Knee
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** XO
+**Album:** You Know What They Mean
 
-📅 2023-02-03 13:48:29
+📅 2023-02-06 11:26:16
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
 
-**Album:** Stop Making Sense (Live)
+**Album:** Galaxias
 
-📅 2023-02-03 13:45:15
+📅 2023-02-06 11:11:55
 
 
-# **Rock It for Me** / Caravan Palace
+# **Spanish Moon** / Little Feat
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
 
-**Album:** Panic
+**Album:** Feats Don't Fail Me Now
 
-📅 2023-02-03 13:41:08
+📅 2023-02-06 11:11:49
 
 
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
+# **Catch Light** / Bent Knee
 
-![Foto del album: INDUSTRY BABY (feat. Jack Harlow)](https://i.scdn.co/image/ab67616d00001e02ba26678947112dff3c3158bf)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** INDUSTRY BABY (feat. Jack Harlow)
+**Album:** You Know What They Mean
 
-📅 2023-02-03 13:37:56
+📅 2023-02-06 11:08:43
 
 
-# **Pitseleh** / Elliott Smith
+# **Will Do** / TV On The Radio
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** XO
+**Album:** Nine Types of Light
 
-📅 2023-02-03 13:34:23
+📅 2023-02-06 11:04:04
 
 
-# **Criminal** / Fiona Apple
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Tidal
+**Album:** Bueninvento
 
-📅 2023-02-03 13:31:01
+📅 2023-02-06 11:00:18
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
+# **Fever** / The Black Keys
 
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** The Mountain Will Fall
+**Album:** Turn Blue
 
-📅 2023-02-03 13:25:18
+📅 2023-02-06 10:56:52
 
 
-# **Oh I Wept** / Free
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Fire And Water
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-02-03 13:21:40
+📅 2023-02-06 10:52:45
 
 
-# **Oh I Wept** / Free
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Fire And Water
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-02-03 13:01:27
+📅 2023-02-06 09:55:41
 
 
-# **I Love You** / Woodkid
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Golden Age
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-03 12:59:16
+📅 2023-02-06 09:55:35
 
 
-# **Mad About You** / Hooverphonic
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2023-02-03 12:55:27
+📅 2023-02-06 09:49:37
