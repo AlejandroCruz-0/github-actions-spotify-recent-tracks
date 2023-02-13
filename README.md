@@ -13,76 +13,103 @@ Nombre: **lotario1999**
 
 
 
-# **Congregation** / Low
+# **Hill Dwarf** / Dabu|Simon Swerwer
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** Ones and Sixes
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2023-02-10 11:15:36
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-02-10 11:11:45
+📅 2023-02-12 17:00:17
 
 
-# **I Love You** / Woodkid
+# **Strange Moods** / Dabu
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** The Golden Age
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2023-02-10 11:07:18
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-10 11:03:26
+📅 2023-02-12 16:56:05
 
 
-# **Fever** / The Black Keys
+# **Strike The Earth!** / Dabu|Simon Swerwer
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** Turn Blue
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2023-02-09 21:07:53
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-02-09 20:53:26
+📅 2023-02-12 16:51:27
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Craftsdwarfship** / Dabu|The Gamba Geek
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** Bueninvento
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2023-02-09 20:49:15
+📅 2023-02-12 16:47:22
 
 
-# **Holy Ghost** / Bent Knee
+# **First Year** / Dabu
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
 
-**Album:** Land Animal
+**Album:** Dwarf Fortress (Original Game Soundtrack)
 
-📅 2023-02-09 20:45:50
+📅 2023-02-12 16:43:36
+
+
+# **Dwarf Fortress (Main Theme)** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-02-12 16:38:35
+
+
+# **I Feel the Earth Move** / Carole King
+
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+
+**Album:** Tapestry
+
+📅 2023-02-12 16:28:04
+
+
+# **Baby Blue - Remastered 2010** / Badfinger
+
+![Foto del album: Straight Up (Remastered 2010 / Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd29cdaa3fadbdc26d59c4)
+
+**Album:** Straight Up (Remastered 2010 / Deluxe Edition)
+
+📅 2023-02-12 16:25:05
+
+
+# **Dancing In The Moonlight** / King Harvest
+
+![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
+
+**Album:** PAUL OST (Streaming Version)
+
+📅 2023-02-12 16:21:27
+
+
+# **Honeymoon With B Troop** / 10cc
+
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+
+**Album:** Deceptive Bends
+
+📅 2023-02-12 16:18:30
+
+
+# **Bloody Well Right** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-02-12 16:15:43
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -91,52 +118,16 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-09 20:40:17
+📅 2023-02-12 16:11:10
 
 
-# **Mad About You** / Hooverphonic
+# **Maneater** / Daryl Hall & John Oates
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
 
-**Album:** The Magnificent Tree
+**Album:** H2O
 
-📅 2023-02-09 20:34:25
-
-
-# **School** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-02-09 11:10:38
-
-
-# **Easy Does It** / Supertramp
-
-![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
-
-**Album:** Crisis? What Crisis?
-
-📅 2023-02-09 11:10:37
-
-
-# **It's Raining Again** / Supertramp
-
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
-
-**Album:** Famous Last Words (Remastered)
-
-📅 2023-02-09 11:08:18
-
-
-# **Dreamer** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-02-09 11:03:53
+📅 2023-02-12 15:59:22
 
 
 # **Take The Long Way Home - 2010 Remastered** / Supertramp
@@ -145,49 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-09 11:00:19
+📅 2023-02-12 15:54:48
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **I Feel the Earth Move** / Carole King
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Tapestry
 
-📅 2023-02-09 10:55:09
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-02-08 18:13:25
+📅 2023-02-12 15:49:39
 
 
-# **I Love You** / Woodkid
+# **Honeymoon With B Troop** / 10cc
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
 
-**Album:** The Golden Age
+**Album:** Deceptive Bends
 
-📅 2023-02-08 18:10:01
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-08 18:06:11
+📅 2023-02-12 15:46:40
 
 
-# **It's Raining Again** / Supertramp
+# **Dancing In The Moonlight** / King Harvest
 
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
+![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
 
-**Album:** Famous Last Words (Remastered)
+**Album:** PAUL OST (Streaming Version)
 
-📅 2023-02-08 17:44:40
+📅 2023-02-12 15:43:53
+
+
+# **Baby Blue - Remastered 2010** / Badfinger
+
+![Foto del album: Straight Up (Remastered 2010 / Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd29cdaa3fadbdc26d59c4)
+
+**Album:** Straight Up (Remastered 2010 / Deluxe Edition)
+
+📅 2023-02-12 15:40:56
+
+
+# **Bloody Well Right** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-02-12 15:37:18
+
+
+# **Everybody's Talkin'** / Harry Nilsson
+
+![Foto del album: Midnight Cowboy](https://i.scdn.co/image/ab67616d00001e020e5ac4baebfb187adfc1c43d)
+
+**Album:** Midnight Cowboy
+
+📅 2023-02-12 15:32:45
