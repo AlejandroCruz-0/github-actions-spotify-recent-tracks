@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Vivi's Theme** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2023-02-13 09:01:00
+
+
+# **Sky of Alexandria (Night in alexandria)** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2023-02-13 08:57:48
+
+
+# **The Meeting** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2023-02-13 08:56:53
+
+
+# **Memory Erased by a Storm** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2023-02-13 08:55:15
+
+
+# **A Place to Call Home** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2023-02-13 08:53:58
+
+
+# **Vile Force of Darkness** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-02-12 17:14:20
+
+
 # **Hill Dwarf** / Dabu|Simon Swerwer
 
 ![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2023-02-12 15:54:48
-
-
-# **I Feel the Earth Move** / Carole King
-
-![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
-
-**Album:** Tapestry
-
-📅 2023-02-12 15:49:39
-
-
-# **Honeymoon With B Troop** / 10cc
-
-![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
-
-**Album:** Deceptive Bends
-
-📅 2023-02-12 15:46:40
-
-
-# **Dancing In The Moonlight** / King Harvest
-
-![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
-
-**Album:** PAUL OST (Streaming Version)
-
-📅 2023-02-12 15:43:53
-
-
-# **Baby Blue - Remastered 2010** / Badfinger
-
-![Foto del album: Straight Up (Remastered 2010 / Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd29cdaa3fadbdc26d59c4)
-
-**Album:** Straight Up (Remastered 2010 / Deluxe Edition)
-
-📅 2023-02-12 15:40:56
-
-
-# **Bloody Well Right** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-02-12 15:37:18
-
-
-# **Everybody's Talkin'** / Harry Nilsson
-
-![Foto del album: Midnight Cowboy](https://i.scdn.co/image/ab67616d00001e020e5ac4baebfb187adfc1c43d)
-
-**Album:** Midnight Cowboy
-
-📅 2023-02-12 15:32:45
