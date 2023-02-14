@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-02-13 16:41:31
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-02-13 16:37:46
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2023-02-13 16:33:30
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-02-13 16:22:16
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-02-13 16:18:50
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-13 16:13:13
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-02-13 16:07:12
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-13 16:03:14
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-02-13 11:43:00
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-13 11:42:55
+
+
+# **Swords of Fury** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2023-02-13 09:01:43
+
+
 # **Vivi's Theme** / Nobuo Uematsu
 
 ![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dwarf Fortress (Original Game Soundtrack)
 
 📅 2023-02-12 16:51:27
-
-
-# **Craftsdwarfship** / Dabu|The Gamba Geek
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2023-02-12 16:47:22
-
-
-# **First Year** / Dabu
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2023-02-12 16:43:36
-
-
-# **Dwarf Fortress (Main Theme)** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2023-02-12 16:38:35
-
-
-# **I Feel the Earth Move** / Carole King
-
-![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
-
-**Album:** Tapestry
-
-📅 2023-02-12 16:28:04
-
-
-# **Baby Blue - Remastered 2010** / Badfinger
-
-![Foto del album: Straight Up (Remastered 2010 / Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd29cdaa3fadbdc26d59c4)
-
-**Album:** Straight Up (Remastered 2010 / Deluxe Edition)
-
-📅 2023-02-12 16:25:05
-
-
-# **Dancing In The Moonlight** / King Harvest
-
-![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
-
-**Album:** PAUL OST (Streaming Version)
-
-📅 2023-02-12 16:21:27
-
-
-# **Honeymoon With B Troop** / 10cc
-
-![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
-
-**Album:** Deceptive Bends
-
-📅 2023-02-12 16:18:30
-
-
-# **Bloody Well Right** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-02-12 16:15:43
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-12 16:11:10
-
-
-# **Maneater** / Daryl Hall & John Oates
-
-![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
-
-**Album:** H2O
-
-📅 2023-02-12 15:59:22
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-12 15:54:48
