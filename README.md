@@ -13,49 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Will Do** / TV On The Radio
+# **I Bet on Losing Dogs** / Mitski
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Puberty 2](https://i.scdn.co/image/ab67616d00001e0229eb9ad9b9af34bbb54eb053)
 
-**Album:** Nine Types of Light
+**Album:** Puberty 2
 
-📅 2023-02-13 16:41:31
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-02-13 16:37:46
+📅 2023-02-14 20:15:52
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **Lying In The Sunshine** / Free
 
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+![Foto del album: Free](https://i.scdn.co/image/ab67616d00001e02640df56fe46cd51896a00810)
 
-**Album:** The Very Best of Daryl Hall / John Oates
+**Album:** Free
 
-📅 2023-02-13 16:33:30
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-02-13 16:22:16
+📅 2023-02-14 20:12:59
 
 
-# **Holy Ghost** / Bent Knee
+# **Maneater** / Daryl Hall & John Oates
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
 
-**Album:** Land Animal
+**Album:** H2O
 
-📅 2023-02-13 16:18:50
+📅 2023-02-14 20:09:06
+
+
+# **Everybody's Talkin'** / Harry Nilsson
+
+![Foto del album: Midnight Cowboy](https://i.scdn.co/image/ab67616d00001e020e5ac4baebfb187adfc1c43d)
+
+**Album:** Midnight Cowboy
+
+📅 2023-02-14 20:04:32
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-02-14 20:01:57
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -64,7 +64,16 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-13 16:13:13
+📅 2023-02-14 19:58:05
+
+
+# **What Would the Odd Do?** / Guerilla Toss
+
+![Foto del album: What Would the Odd Do?](https://i.scdn.co/image/ab67616d00001e02408528cfcc7b24b0c1bd6645)
+
+**Album:** What Would the Odd Do?
+
+📅 2023-02-14 19:52:13
 
 
 # **I Love You** / Woodkid
@@ -73,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-02-13 16:07:12
+📅 2023-02-14 19:49:48
 
 
 # **Mad About You** / Hooverphonic
@@ -82,16 +91,43 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-13 16:03:14
+📅 2023-02-14 19:45:57
 
 
-# **I Love You** / Woodkid
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** The Golden Age
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-02-13 11:43:00
+📅 2023-02-14 19:42:10
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-02-14 19:37:43
+
+
+# **Let You Down** / Dawid Podsiadło
+
+![Foto del album: Let You Down](https://i.scdn.co/image/ab67616d00001e02eabff83e8175f68e47cb18c8)
+
+**Album:** Let You Down
+
+📅 2023-02-14 19:33:16
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-02-14 19:29:25
 
 
 # **Mad About You** / Hooverphonic
@@ -100,94 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-13 11:42:55
+📅 2023-02-14 19:26:09
 
 
-# **Swords of Fury** / Nobuo Uematsu
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** FINAL FANTASY IX Original Soundtrack
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-13 09:01:43
-
-
-# **Vivi's Theme** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
-
-**Album:** FINAL FANTASY IX Original Soundtrack
-
-📅 2023-02-13 09:01:00
+📅 2023-02-14 16:43:59
 
 
-# **Sky of Alexandria (Night in alexandria)** / Nobuo Uematsu
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** FINAL FANTASY IX Original Soundtrack
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-13 08:57:48
-
-
-# **The Meeting** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
-
-**Album:** FINAL FANTASY IX Original Soundtrack
-
-📅 2023-02-13 08:56:53
+📅 2023-02-14 16:41:53
 
 
-# **Memory Erased by a Storm** / Nobuo Uematsu
+# **Fever** / The Black Keys
 
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** FINAL FANTASY IX Original Soundtrack
+**Album:** Turn Blue
 
-📅 2023-02-13 08:55:15
-
-
-# **A Place to Call Home** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
-
-**Album:** FINAL FANTASY IX Original Soundtrack
-
-📅 2023-02-13 08:53:58
+📅 2023-02-14 16:06:31
 
 
-# **Vile Force of Darkness** / Dabu|Simon Swerwer
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Dwarf Fortress (Original Game Soundtrack)
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-02-12 17:14:20
-
-
-# **Hill Dwarf** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2023-02-12 17:00:17
+📅 2023-02-14 16:06:00
 
 
-# **Strange Moods** / Dabu
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Dwarf Fortress (Original Game Soundtrack)
+**Album:** Bueninvento
 
-📅 2023-02-12 16:56:05
+📅 2023-02-14 16:01:50
 
 
-# **Strike The Earth!** / Dabu|Simon Swerwer
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Dwarf Fortress (Original Game Soundtrack)
+**Album:** Land Animal
 
-📅 2023-02-12 16:51:27
+📅 2023-02-14 15:58:23
