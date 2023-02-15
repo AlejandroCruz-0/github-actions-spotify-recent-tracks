@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Strike The Earth!** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-02-15 09:13:16
+
+
+# **Craftsdwarfship** / Dabu|The Gamba Geek
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-02-15 09:09:11
+
+
+# **First Year** / Dabu
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-02-15 09:05:24
+
+
+# **Dwarf Fortress (Main Theme)** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-02-15 09:00:25
+
+
+# **Iron** / Woodkid
+
+![Foto del album: Iron](https://i.scdn.co/image/ab67616d00001e02cb833e941e1ba35590da5c6b)
+
+**Album:** Iron
+
+📅 2023-02-14 20:17:16
+
+
 # **I Bet on Losing Dogs** / Mitski
 
 ![Foto del album: Puberty 2](https://i.scdn.co/image/ab67616d00001e0229eb9ad9b9af34bbb54eb053)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2023-02-14 16:43:59
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-14 16:41:53
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-02-14 16:06:31
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-02-14 16:06:00
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-02-14 16:01:50
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-02-14 15:58:23
