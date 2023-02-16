@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-02-16 09:14:48
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-02-16 09:10:21
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-16 09:06:31
+
+
+# **Rich Girl** / Daryl Hall & John Oates
+
+![Foto del album: Bigger Than Both Of Us](https://i.scdn.co/image/ab67616d00001e023ebc5b9d8942069d3b920550)
+
+**Album:** Bigger Than Both Of Us
+
+📅 2023-02-15 18:11:28
+
+
 # **White Room** / Cream
 
 ![Foto del album: Wheels Of Fire](https://i.scdn.co/image/ab67616d00001e025c7731f5acdcb2d02d78b7ee)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Goodbye Yellow Brick Road (Remastered)
 
 📅 2023-02-15 17:10:35
-
-
-# **I Feel the Earth Move** / Carole King
-
-![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
-
-**Album:** Tapestry
-
-📅 2023-02-15 17:07:21
-
-
-# **Breakfast In America - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-15 17:04:19
-
-
-# **Honeymoon With B Troop** / 10cc
-
-![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
-
-**Album:** Deceptive Bends
-
-📅 2023-02-15 17:01:39
-
-
-# **One - Single Version** / Three Dog Night
-
-![Foto del album: Three Dog Night](https://i.scdn.co/image/ab67616d00001e023f54486350a5c681ba9ec382)
-
-**Album:** Three Dog Night
-
-📅 2023-02-15 16:58:52
