@@ -13,13 +13,94 @@ Nombre: **lotario1999**
 
 
 
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-16 18:32:53
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-02-16 18:27:38
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-02-16 18:22:59
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-02-16 18:19:14
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2023-02-16 18:15:07
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-02-16 18:10:57
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-02-16 18:07:30
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-16 18:01:57
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-02-16 17:56:06
+
+
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
 **Album:** Fire And Water
 
-📅 2023-02-16 09:14:48
+📅 2023-02-16 17:52:14
 
 
 # **I Love You** / Woodkid
@@ -28,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-02-16 09:10:21
+📅 2023-02-16 17:47:46
 
 
 # **Mad About You** / Hooverphonic
@@ -37,142 +118,25 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-16 09:06:31
+📅 2023-02-16 17:43:56
 
 
-# **Rich Girl** / Daryl Hall & John Oates
-
-![Foto del album: Bigger Than Both Of Us](https://i.scdn.co/image/ab67616d00001e023ebc5b9d8942069d3b920550)
-
-**Album:** Bigger Than Both Of Us
-
-📅 2023-02-15 18:11:28
-
-
-# **White Room** / Cream
-
-![Foto del album: Wheels Of Fire](https://i.scdn.co/image/ab67616d00001e025c7731f5acdcb2d02d78b7ee)
-
-**Album:** Wheels Of Fire
-
-📅 2023-02-15 18:11:24
-
-
-# **It's Too Late** / Carole King
+# **I Feel the Earth Move** / Carole King
 
 ![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
 
 **Album:** Tapestry
 
-📅 2023-02-15 18:06:25
+📅 2023-02-16 14:55:45
 
 
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-15 18:02:31
-
-
-# **Solsbury Hill** / Peter Gabriel
-
-![Foto del album: Peter Gabriel 1: Car (Remastered)](https://i.scdn.co/image/ab67616d00001e026b141e77892ab2ccb60cf3cf)
-
-**Album:** Peter Gabriel 1: Car (Remastered)
-
-📅 2023-02-15 17:57:21
-
-
-# **Starman - 2012 Remaster** / David Bowie
-
-![Foto del album: The Rise and Fall of Ziggy Stardust and the Spiders from Mars (2012 Remaster)](https://i.scdn.co/image/ab67616d00001e02c41f4e1133b0e6c5fcf58680)
-
-**Album:** The Rise and Fall of Ziggy Stardust and the Spiders from Mars (2012 Remaster)
-
-📅 2023-02-15 17:53:00
-
-
-# **She's Not There** / The Zombies
-
-![Foto del album: Begin Here](https://i.scdn.co/image/ab67616d00001e0299c8f1ba79887383aa27b92d)
-
-**Album:** Begin Here
-
-📅 2023-02-15 17:48:46
-
-
-# **Summer Breeze** / Seals and Crofts
-
-![Foto del album: Summer Breeze](https://i.scdn.co/image/ab67616d00001e02e13b56ae3e9e99abf2c2026c)
-
-**Album:** Summer Breeze
-
-📅 2023-02-15 17:46:19
-
-
-# **It's Raining Again** / Supertramp
-
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
-
-**Album:** Famous Last Words (Remastered)
-
-📅 2023-02-15 17:42:53
-
-
-# **Private Eyes** / Daryl Hall & John Oates
-
-![Foto del album: Private Eyes (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02c84b9bd63074979108c7c752)
-
-**Album:** Private Eyes (Expanded Edition)
-
-📅 2023-02-15 17:38:29
-
-
-# **Another Park, Another Sunday** / The Doobie Brothers
-
-![Foto del album: What Were Once Vices Are Now Habits](https://i.scdn.co/image/ab67616d00001e02f8fc7e7d8ed70a0b6d85f35f)
-
-**Album:** What Were Once Vices Are Now Habits
-
-📅 2023-02-15 17:34:51
-
-
-# **Doctor My Eyes** / Jackson Browne
-
-![Foto del album: Jackson Browne (Saturate Before Using)](https://i.scdn.co/image/ab67616d00001e02759f9719982a240d02539e38)
-
-**Album:** Jackson Browne (Saturate Before Using)
-
-📅 2023-02-15 17:30:23
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-02-15 17:27:03
-
-
-# **School** / Supertramp
+# **Bloody Well Right** / Supertramp
 
 ![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
 **Album:** Crime Of The Century (Remastered)
 
-📅 2023-02-15 17:23:25
-
-
-# **Summer in the City - Remastered** / The Lovin' Spoonful
-
-![Foto del album: Hums Of The Lovin' Spoonful](https://i.scdn.co/image/ab67616d00001e02633c04118b43d201581e3328)
-
-**Album:** Hums Of The Lovin' Spoonful
-
-📅 2023-02-15 17:17:50
+📅 2023-02-16 14:55:39
 
 
 # **Maneater** / Daryl Hall & John Oates
@@ -181,13 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** H2O
 
-📅 2023-02-15 17:15:09
+📅 2023-02-16 14:51:02
 
 
-# **Goodbye Yellow Brick Road - Remastered 2014** / Elton John
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: Goodbye Yellow Brick Road (Remastered)](https://i.scdn.co/image/ab67616d00001e02f72f1e38e9bd48f18a17ed9b)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** Goodbye Yellow Brick Road (Remastered)
+**Album:** Still Crazy After All These Years
 
-📅 2023-02-15 17:10:35
+📅 2023-02-16 14:46:27
+
+
+# **Dancing In The Moonlight** / King Harvest
+
+![Foto del album: PAUL OST (Streaming Version)](https://i.scdn.co/image/ab67616d00001e0237769b2bc2b1b50f214dc3b6)
+
+**Album:** PAUL OST (Streaming Version)
+
+📅 2023-02-16 14:42:50
+
+
+# **From the Beginning - 2015 Remaster** / Emerson, Lake & Palmer
+
+![Foto del album: Trilogy (Deluxe)](https://i.scdn.co/image/ab67616d00001e021f2d13685298586d7f493c40)
+
+**Album:** Trilogy (Deluxe)
+
+📅 2023-02-16 14:39:52
+
+
+# **Breakfast In America - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-16 14:35:40
+
+
+# **Honeymoon With B Troop** / 10cc
+
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+
+**Album:** Deceptive Bends
+
+📅 2023-02-16 14:33:00
