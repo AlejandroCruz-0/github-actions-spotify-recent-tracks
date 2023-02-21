@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **(I'm A) Road Runner** / Jr. Walker & The All Stars
+
+![Foto del album: Shotgun](https://i.scdn.co/image/ab67616d00001e0251e03cc86cd5042de1c63800)
+
+**Album:** Shotgun
+
+📅 2023-02-20 18:37:29
+
+
 # **Shoorah! Shoorah!** / Betty Wright
 
 ![Foto del album: Danger High Voltage](https://i.scdn.co/image/ab67616d00001e02a898295f1ee6d0cec96b7711)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hold On, I'm Comin'
 
 📅 2023-02-20 17:43:42
-
-
-# **She's Not There** / The Zombies
-
-![Foto del album: Begin Here](https://i.scdn.co/image/ab67616d00001e0299c8f1ba79887383aa27b92d)
-
-**Album:** Begin Here
-
-📅 2023-02-20 17:41:06
