@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **(I'm A) Road Runner** / Jr. Walker & The All Stars
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Shotgun](https://i.scdn.co/image/ab67616d00001e0251e03cc86cd5042de1c63800)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Shotgun
+**Album:** The Magnificent Tree
 
-📅 2023-02-20 18:37:29
+📅 2023-02-21 18:03:43
 
 
-# **Shoorah! Shoorah!** / Betty Wright
+# **Autoharp** / Hooverphonic
 
-![Foto del album: Danger High Voltage](https://i.scdn.co/image/ab67616d00001e02a898295f1ee6d0cec96b7711)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Danger High Voltage
+**Album:** The Magnificent Tree
 
-📅 2023-02-20 18:35:37
+📅 2023-02-21 17:59:58
 
 
-# **You're No Good** / Betty Everett
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Hot to Hold](https://i.scdn.co/image/ab67616d00001e02933ee730d7acde25cca720cb)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Hot to Hold
+**Album:** The Magnificent Tree
 
-📅 2023-02-20 18:32:39
+📅 2023-02-21 17:53:53
 
 
-# **Soul Limbo** / Booker T. & the M.G.'s
+# **Honeymoon With B Troop** / 10cc
 
-![Foto del album: Soul Limbo](https://i.scdn.co/image/ab67616d00001e025ed08ce3138876c02b31eaee)
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
 
-**Album:** Soul Limbo
+**Album:** Deceptive Bends
 
-📅 2023-02-20 18:30:24
+📅 2023-02-21 16:59:52
 
 
-# **My World Is Empty Without You** / The Supremes
+# **Catch Light** / Bent Knee
 
-![Foto del album: I Hear A Symphony](https://i.scdn.co/image/ab67616d00001e0216a6e92d6f1c8a02d68b4e44)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** I Hear A Symphony
+**Album:** You Know What They Mean
 
-📅 2023-02-20 18:27:42
+📅 2023-02-21 16:59:42
 
 
-# **Superfly** / Curtis Mayfield
+# **Will Do** / TV On The Radio
 
-![Foto del album: Superfly (Soundtrack from the Motion Picture) [Deluxe 25th Anniversary Edition]](https://i.scdn.co/image/ab67616d00001e02dc77da0db2429439b11069d9)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Superfly (Soundtrack from the Motion Picture) [Deluxe 25th Anniversary Edition]
+**Album:** Nine Types of Light
 
-📅 2023-02-20 18:25:07
+📅 2023-02-21 16:55:04
 
 
-# **Louie Louie** / The Kingsmen
+# **Fever** / The Black Keys
 
-![Foto del album: The Best of The Kingsmen](https://i.scdn.co/image/ab67616d00001e0248e88654b690107f44596b17)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** The Best of The Kingsmen
+**Album:** Turn Blue
 
-📅 2023-02-20 18:21:06
+📅 2023-02-21 16:51:17
 
 
-# **Gimme Some Lovin' - Single Mix** / The Spencer Davis Group
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Gimme Some Lovin' / Blues In F](https://i.scdn.co/image/ab67616d00001e02fd4270760937e919281721c4)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Gimme Some Lovin' / Blues In F
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-02-20 18:18:20
+📅 2023-02-21 16:47:11
 
 
-# **Summer in the City - Remastered** / The Lovin' Spoonful
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Hums Of The Lovin' Spoonful](https://i.scdn.co/image/ab67616d00001e02633c04118b43d201581e3328)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Hums Of The Lovin' Spoonful
+**Album:** Land Animal
 
-📅 2023-02-20 18:15:21
+📅 2023-02-21 16:43:00
 
 
-# **Somebody to Love** / Jefferson Airplane
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Surrealistic Pillow](https://i.scdn.co/image/ab67616d00001e022dac7a01676ddb36c1d0ec05)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Surrealistic Pillow
+**Album:** Bueninvento
 
-📅 2023-02-20 18:12:40
+📅 2023-02-21 16:37:28
 
 
-# **How Long Do I Have to Wait for You?** / Sharon Jones & The Dap-Kings
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Naturally](https://i.scdn.co/image/ab67616d00001e02525cfd0227c635cbf89bee9e)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Naturally
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-20 18:09:44
+📅 2023-02-21 16:34:02
 
 
-# **The Letter** / The Box Tops
+# **Oh I Wept** / Free
 
-![Foto del album: The Letter/Neon Rainbow](https://i.scdn.co/image/ab67616d00001e025f4604aff952dc7b0a8e511e)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** The Letter/Neon Rainbow
+**Album:** Fire And Water
 
-📅 2023-02-20 18:05:40
+📅 2023-02-21 16:28:10
 
 
-# **If You Want Me to Stay** / Sly & The Family Stone
+# **Congregation** / Low
 
-![Foto del album: Fresh](https://i.scdn.co/image/ab67616d00001e020b1804895a3ce499c4212bca)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Fresh
+**Album:** Ones and Sixes
 
-📅 2023-02-20 18:03:47
+📅 2023-02-21 16:23:43
 
 
-# **Liberation Conversation** / Marlena Shaw
+# **I Love You** / Woodkid
 
-![Foto del album: The Spice Of Life](https://i.scdn.co/image/ab67616d00001e02c925139455d0480681315f02)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** The Spice Of Life
+**Album:** The Golden Age
 
-📅 2023-02-20 18:00:46
+📅 2023-02-21 16:19:51
 
 
-# **Daydream** / The Lovin' Spoonful
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Daydream](https://i.scdn.co/image/ab67616d00001e02737f8ad011befb8c655d3a33)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Daydream
+**Album:** The Magnificent Tree
 
-📅 2023-02-20 17:58:44
+📅 2023-02-21 16:16:00
 
 
-# **Green Onions** / Booker T. & the M.G.'s
+# **Wreck** / Gentle Giant
 
-![Foto del album: Green Onions](https://i.scdn.co/image/ab67616d00001e0246007ceff2f1c33c9b9ec19c)
+![Foto del album: Acquiring The Taste](https://i.scdn.co/image/ab67616d00001e02c0517d8e630ace99023f61ea)
 
-**Album:** Green Onions
+**Album:** Acquiring The Taste
 
-📅 2023-02-20 17:56:23
+📅 2023-02-21 13:03:40
 
 
-# **Across 110th Street** / Bobby Womack
+# **Found God in a Tomato** / Psychedelic Porn Crumpets
 
-![Foto del album: Midnight Mover: The Bobby Womack Story](https://i.scdn.co/image/ab67616d00001e02a70b89929f67316f0fa4426b)
+![Foto del album: High Visceral, Pt. 1](https://i.scdn.co/image/ab67616d00001e02e9fc848924f30c739ff693a8)
 
-**Album:** Midnight Mover: The Bobby Womack Story
+**Album:** High Visceral, Pt. 1
 
-📅 2023-02-20 17:53:27
+📅 2023-02-21 13:03:13
 
 
-# **Knock on Wood** / Eddie Floyd
+# **End Of The World** / Aphrodite's Child
 
-![Foto del album: Knock On Wood](https://i.scdn.co/image/ab67616d00001e02d7005578d5311a2cbcfc508d)
+![Foto del album: End Of The World](https://i.scdn.co/image/ab67616d00001e02810420e53c10657835df1de7)
 
-**Album:** Knock On Wood
+**Album:** End Of The World
 
-📅 2023-02-20 17:49:36
+📅 2023-02-21 12:54:17
 
 
-# **(Love Is Like A) Heat Wave** / Martha Reeves & The Vandellas
+# **Suda** / Chon
 
-![Foto del album: Heat Wave](https://i.scdn.co/image/ab67616d00001e02d42d2f33bd2cafdc4f3d01be)
+![Foto del album: Grow](https://i.scdn.co/image/ab67616d00001e028f3dcc4325361891491eb4d9)
 
-**Album:** Heat Wave
+**Album:** Grow
 
-📅 2023-02-20 17:46:26
+📅 2023-02-21 12:51:00
 
 
-# **Hold On, I'm Comin'** / Sam & Dave
+# **Satan, Luella & I** / HMLTD
 
-![Foto del album: Hold On, I'm Comin'](https://i.scdn.co/image/ab67616d00001e0219b9fae8d9f602068a5a5557)
+![Foto del album: West of Eden](https://i.scdn.co/image/ab67616d00001e025dc4c0bd514d44bd2fbc6c39)
 
-**Album:** Hold On, I'm Comin'
+**Album:** West of Eden
 
-📅 2023-02-20 17:43:42
+📅 2023-02-21 12:47:57
