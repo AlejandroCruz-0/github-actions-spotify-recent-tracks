@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 09:08:57
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 09:05:05
+
+
+# **Everytime We Live Together We Die A Bit More** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 09:01:09
+
+
+# **Frosted Flake Wood** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 08:57:36
+
+
+# **Vinegar & Salt** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 08:54:19
+
+
+# **The Magnificent Tree** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 08:50:59
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 08:47:05
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 08:42:45
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-22 08:38:43
+
+
+# **Time in a Bottle** / Jim Croce
+
+![Foto del album: You Don't Mess Around With Jim](https://i.scdn.co/image/ab67616d00001e0298078d325c25a5ac4081cfba)
+
+**Album:** You Don't Mess Around With Jim
+
+📅 2023-02-22 08:19:09
+
+
+# **Going to California - Remaster** / Led Zeppelin
+
+![Foto del album: Led Zeppelin IV (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02c8a11e48c91a982d086afc69)
+
+**Album:** Led Zeppelin IV (Deluxe Edition)
+
+📅 2023-02-22 08:18:07
+
+
+# **Future Days** / Pearl Jam
+
+![Foto del album: Lightning Bolt](https://i.scdn.co/image/ab67616d00001e02fa475954245b93ca3167469e)
+
+**Album:** Lightning Bolt
+
+📅 2023-02-22 08:14:29
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-21 18:07:25
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2023-02-21 16:51:17
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2023-02-21 16:47:11
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-02-21 16:43:00
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-02-21 16:37:28
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-02-21 16:34:02
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-02-21 16:28:10
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-02-21 16:23:43
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-02-21 16:19:51
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-21 16:16:00
-
-
-# **Wreck** / Gentle Giant
-
-![Foto del album: Acquiring The Taste](https://i.scdn.co/image/ab67616d00001e02c0517d8e630ace99023f61ea)
-
-**Album:** Acquiring The Taste
-
-📅 2023-02-21 13:03:40
-
-
-# **Found God in a Tomato** / Psychedelic Porn Crumpets
-
-![Foto del album: High Visceral, Pt. 1](https://i.scdn.co/image/ab67616d00001e02e9fc848924f30c739ff693a8)
-
-**Album:** High Visceral, Pt. 1
-
-📅 2023-02-21 13:03:13
-
-
-# **End Of The World** / Aphrodite's Child
-
-![Foto del album: End Of The World](https://i.scdn.co/image/ab67616d00001e02810420e53c10657835df1de7)
-
-**Album:** End Of The World
-
-📅 2023-02-21 12:54:17
-
-
-# **Suda** / Chon
-
-![Foto del album: Grow](https://i.scdn.co/image/ab67616d00001e028f3dcc4325361891491eb4d9)
-
-**Album:** Grow
-
-📅 2023-02-21 12:51:00
-
-
-# **Satan, Luella & I** / HMLTD
-
-![Foto del album: West of Eden](https://i.scdn.co/image/ab67616d00001e025dc4c0bd514d44bd2fbc6c39)
-
-**Album:** West of Eden
-
-📅 2023-02-21 12:47:57
