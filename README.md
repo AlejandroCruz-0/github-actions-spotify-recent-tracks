@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Need You Tonight** / INXS
+# **Teardrop** / Massive Attack
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
 
-**Album:** Kick (Remastered 2011)
+**Album:** Mezzanine
 
-📅 2023-02-22 20:57:34
+📅 2023-02-23 17:58:45
 
 
-# **50 Ways to Leave Your Lover** / Paul Simon
+# **Tom The Model** / Beth Gibbons|Rustin Man
 
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
 
-**Album:** Still Crazy After All These Years
+**Album:** Out Of Season
 
-📅 2023-02-22 20:54:31
+📅 2023-02-23 17:53:15
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Lonely** / Bebel Gilberto
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Tanto Tempo](https://i.scdn.co/image/ab67616d00001e02137dfa74b0c51b7dbea199d8)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Tanto Tempo
 
-📅 2023-02-22 20:50:54
+📅 2023-02-23 17:49:33
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Pabadam** / Yonderboi
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: Shallow and Profound](https://i.scdn.co/image/ab67616d00001e02aa189b3ca7ec29aa33168002)
 
-**Album:** So (Special Edition)
+**Album:** Shallow and Profound
 
-📅 2023-02-22 20:45:03
+📅 2023-02-23 17:47:09
 
 
-# **In Your Eyes** / Peter Gabriel
+# **Shadows of Ourselves** / Thievery Corporation
 
-![Foto del album: So (Remastered)](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
+![Foto del album: Mirror Conspiracy](https://i.scdn.co/image/ab67616d00001e0289af70e8b52389ed4c626698)
 
-**Album:** So (Remastered)
+**Album:** Mirror Conspiracy
 
-📅 2023-02-22 12:38:41
+📅 2023-02-23 17:43:08
 
 
-# **Kayleigh - 2017 Remaster** / Marillion
+# **Waltz for Koop** / Koop
 
-![Foto del album: Misplaced Childhood (2017 Remaster)](https://i.scdn.co/image/ab67616d00001e026295aee0cc5c04b515ccdf99)
+![Foto del album: Waltz for Koop](https://i.scdn.co/image/ab67616d00001e026798d5690ddeb528cee0fb0a)
 
-**Album:** Misplaced Childhood (2017 Remaster)
+**Album:** Waltz for Koop
 
-📅 2023-02-22 12:27:51
+📅 2023-02-23 17:39:30
 
 
-# **Dreamer** / Supertramp
+# **Roads** / Portishead
 
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Crime Of The Century (Remastered)
+**Album:** Dummy
 
-📅 2023-02-22 12:23:48
+📅 2023-02-23 17:36:22
 
 
-# **I Wouldn't Want to Be Like You** / The Alan Parsons Project
+# **Badaboum** / Hooverphonic
 
-![Foto del album: I Robot (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0212171916079468f70ad95523)
+![Foto del album: In Wonderland](https://i.scdn.co/image/ab67616d00001e029e99c13f72a625d32358f1c3)
 
-**Album:** I Robot (Expanded Edition)
+**Album:** In Wonderland
 
-📅 2023-02-22 12:20:14
+📅 2023-02-23 17:31:18
 
 
-# **Spirits In The Material World** / The Police
+# **Four Three** / All India Radio
 
-![Foto del album: Ghost In The Machine (Remastered 2003)](https://i.scdn.co/image/ab67616d00001e02b7879980ef2ea7ac1cc29316)
+![Foto del album: Echo Other](https://i.scdn.co/image/ab67616d00001e0241d2db61f8390fc91dd84707)
 
-**Album:** Ghost In The Machine (Remastered 2003)
+**Album:** Echo Other
 
-📅 2023-02-22 12:16:51
+📅 2023-02-23 17:28:00
 
 
-# **Solsbury Hill** / Peter Gabriel
+# **It Hurts** / Télépopmusik|Jo Wedin
 
-![Foto del album: Peter Gabriel 1: Car (Remastered)](https://i.scdn.co/image/ab67616d00001e026b141e77892ab2ccb60cf3cf)
+![Foto del album: Everybody Breaks the Line](https://i.scdn.co/image/ab67616d00001e02a873d71fb820b7a3961166a7)
 
-**Album:** Peter Gabriel 1: Car (Remastered)
+**Album:** Everybody Breaks the Line
 
-📅 2023-02-22 12:13:52
+📅 2023-02-23 17:23:58
 
 
-# **Livin' Thing** / Electric Light Orchestra
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: A New World Record](https://i.scdn.co/image/ab67616d00001e02ee5b1065368b0981e3cb0a33)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** A New World Record
+**Album:** Saudade
 
-📅 2023-02-22 12:09:29
+📅 2023-02-23 17:19:57
 
 
-# **Golden Brown** / The Stranglers
+# **Bittersweet Faith - Thievery Corporation Remix** / Bitter:Sweet
 
-![Foto del album: La Folie](https://i.scdn.co/image/ab67616d00001e02a713f9b06accedba5d963d61)
+![Foto del album: The Remix Game](https://i.scdn.co/image/ab67616d00001e0238931c43178d3db7ff55a0fc)
 
-**Album:** La Folie
+**Album:** The Remix Game
 
-📅 2023-02-22 12:05:57
+📅 2023-02-23 17:16:33
 
 
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
+# **Wandering Star** / Portishead
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Dummy
 
-📅 2023-02-22 12:02:30
+📅 2023-02-23 17:12:35
 
 
-# **Rock the Casbah - Remastered** / The Clash
+# **6 Underground** / Sneaker Pimps
 
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
 
-**Album:** Combat Rock (Remastered)
+**Album:** Becoming X
 
-📅 2023-02-22 11:57:20
+📅 2023-02-23 17:07:41
 
 
-# **Sledgehammer** / Peter Gabriel
+# **Romantic** / Hooverphonic
 
-![Foto del album: So (Remastered)](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
+![Foto del album: Looking For Stars](https://i.scdn.co/image/ab67616d00001e0267ca8a5f76a579ddb880e9de)
 
-**Album:** So (Remastered)
+**Album:** Looking For Stars
 
-📅 2023-02-22 11:53:37
+📅 2023-02-23 17:03:29
 
 
-# **All Right Now** / Free
+# **Smile** / Télépopmusik|Angela McCluskey
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Genetic World](https://i.scdn.co/image/ab67616d00001e02c65b1f9d6ca322de8b85c505)
 
-**Album:** Fire And Water
+**Album:** Genetic World
 
-📅 2023-02-22 11:48:23
+📅 2023-02-23 17:00:13
 
 
-# **50 Ways to Leave Your Lover** / Paul Simon
+# **Love Has No Heart** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+![Foto del album: Temple Of I & I](https://i.scdn.co/image/ab67616d00001e02adb8acc05ec7649d6c9ba592)
 
-**Album:** Still Crazy After All These Years
+**Album:** Temple Of I & I
 
-📅 2023-02-22 11:42:52
+📅 2023-02-23 16:56:11
 
 
-# **Need You Tonight** / INXS
+# **Renaissance Affair** / Hooverphonic
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Kick (Remastered 2011)
+**Album:** The Magnificent Tree
 
-📅 2023-02-22 11:39:13
+📅 2023-02-23 16:51:44
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** The Magnificent Tree
 
-📅 2023-02-22 11:36:12
+📅 2023-02-23 16:48:19
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** So (Special Edition)
+**Album:** The Magnificent Tree
 
-📅 2023-02-22 11:30:21
+📅 2023-02-23 16:44:32
