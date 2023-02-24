@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Layers** / Anatole Muster|Hadrien Feraud|Morgan Ågren
+
+![Foto del album: Layers](https://i.scdn.co/image/ab67616d00001e026ae12efceffd92399afa64c5)
+
+**Album:** Layers
+
+📅 2023-02-24 08:22:34
+
+
+# **One** / Hooverphonic
+
+![Foto del album: Hooverphonic presents Jackie Cane](https://i.scdn.co/image/ab67616d00001e02bb6f17c218916a57d6c79706)
+
+**Album:** Hooverphonic presents Jackie Cane
+
+📅 2023-02-23 17:59:22
+
+
 # **Teardrop** / Massive Attack
 
 ![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-02-23 16:51:44
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-23 16:48:19
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-23 16:44:32
