@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Layers** / Anatole Muster|Hadrien Feraud|Morgan Ågren
+# **Twilights** / Mirta da Silva
 
-![Foto del album: Layers](https://i.scdn.co/image/ab67616d00001e026ae12efceffd92399afa64c5)
+![Foto del album: Twilights](https://i.scdn.co/image/ab67616d00001e02bc256bda953dc87415f7ad71)
 
-**Album:** Layers
+**Album:** Twilights
 
-📅 2023-02-24 08:22:34
+📅 2023-02-24 17:24:29
 
 
-# **One** / Hooverphonic
+# **At The End Of The Day** / Frederico Morales
 
-![Foto del album: Hooverphonic presents Jackie Cane](https://i.scdn.co/image/ab67616d00001e02bb6f17c218916a57d6c79706)
+![Foto del album: The Old Oak Tree](https://i.scdn.co/image/ab67616d00001e022e0445c05f3c6658f9a6e35b)
 
-**Album:** Hooverphonic presents Jackie Cane
+**Album:** The Old Oak Tree
 
-📅 2023-02-23 17:59:22
+📅 2023-02-24 17:20:26
 
 
-# **Teardrop** / Massive Attack
+# **Un sourire et une larme (valse)** / Tom Kristiaan
 
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+![Foto del album: Petites danses et rêveries](https://i.scdn.co/image/ab67616d00001e027169143feb96a1b25385d91c)
 
-**Album:** Mezzanine
+**Album:** Petites danses et rêveries
 
-📅 2023-02-23 17:58:45
+📅 2023-02-24 17:18:14
 
 
-# **Tom The Model** / Beth Gibbons|Rustin Man
+# **Lydian Fairytale** / Nascondiglio
 
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
+![Foto del album: Lydian Fairytale](https://i.scdn.co/image/ab67616d00001e0292e35ef6a27b895a3d554ac3)
 
-**Album:** Out Of Season
+**Album:** Lydian Fairytale
 
-📅 2023-02-23 17:53:15
+📅 2023-02-24 17:15:47
 
 
-# **Lonely** / Bebel Gilberto
+# **Shizukana** / Isshi Matsuriza
 
-![Foto del album: Tanto Tempo](https://i.scdn.co/image/ab67616d00001e02137dfa74b0c51b7dbea199d8)
+![Foto del album: Shizukana](https://i.scdn.co/image/ab67616d00001e02541a11cb933e39048d04678a)
 
-**Album:** Tanto Tempo
+**Album:** Shizukana
 
-📅 2023-02-23 17:49:33
+📅 2023-02-24 17:14:00
 
 
-# **Pabadam** / Yonderboi
+# **Tôt le matin** / Alonzo Gautier
 
-![Foto del album: Shallow and Profound](https://i.scdn.co/image/ab67616d00001e02aa189b3ca7ec29aa33168002)
+![Foto del album: Tôt le matin](https://i.scdn.co/image/ab67616d00001e029c76f67257595dcf67980547)
 
-**Album:** Shallow and Profound
+**Album:** Tôt le matin
 
-📅 2023-02-23 17:47:09
+📅 2023-02-24 17:11:24
 
 
-# **Shadows of Ourselves** / Thievery Corporation
+# **Sun sinking at dusk** / Noemi Lucas
 
-![Foto del album: Mirror Conspiracy](https://i.scdn.co/image/ab67616d00001e0289af70e8b52389ed4c626698)
+![Foto del album: Sun sinking at dusk](https://i.scdn.co/image/ab67616d00001e023f2be531cf20bdde2f4b89fc)
 
-**Album:** Mirror Conspiracy
+**Album:** Sun sinking at dusk
 
-📅 2023-02-23 17:43:08
+📅 2023-02-24 17:09:14
 
 
-# **Waltz for Koop** / Koop
+# **Nordanvind** / Malmkvist
 
-![Foto del album: Waltz for Koop](https://i.scdn.co/image/ab67616d00001e026798d5690ddeb528cee0fb0a)
+![Foto del album: Nordanvind](https://i.scdn.co/image/ab67616d00001e02dba8cf9bd2bcd7ae5b06beae)
 
-**Album:** Waltz for Koop
+**Album:** Nordanvind
 
-📅 2023-02-23 17:39:30
+📅 2023-02-24 17:06:31
 
 
-# **Roads** / Portishead
+# **From Home** / Vivian Roost
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: From Home](https://i.scdn.co/image/ab67616d00001e02734fa44e730eb68431fa0b16)
 
-**Album:** Dummy
+**Album:** From Home
 
-📅 2023-02-23 17:36:22
+📅 2023-02-24 17:04:24
 
 
-# **Badaboum** / Hooverphonic
+# **Waitings** / Felix Tanguy
 
-![Foto del album: In Wonderland](https://i.scdn.co/image/ab67616d00001e029e99c13f72a625d32358f1c3)
+![Foto del album: Waitings](https://i.scdn.co/image/ab67616d00001e0282cf2169827c6a4c5b7b6573)
 
-**Album:** In Wonderland
+**Album:** Waitings
 
-📅 2023-02-23 17:31:18
+📅 2023-02-24 17:00:59
 
 
-# **Four Three** / All India Radio
+# **Emerald Enlightenment** / Aramis Morel
 
-![Foto del album: Echo Other](https://i.scdn.co/image/ab67616d00001e0241d2db61f8390fc91dd84707)
+![Foto del album: Emerald Enlightenment](https://i.scdn.co/image/ab67616d00001e02cc72cfa66d1146c839a0fc73)
 
-**Album:** Echo Other
+**Album:** Emerald Enlightenment
 
-📅 2023-02-23 17:28:00
+📅 2023-02-24 16:58:39
 
 
-# **It Hurts** / Télépopmusik|Jo Wedin
+# **The Tree** / Ludovico Einaudi
 
-![Foto del album: Everybody Breaks the Line](https://i.scdn.co/image/ab67616d00001e02a873d71fb820b7a3961166a7)
+![Foto del album: The Tree](https://i.scdn.co/image/ab67616d00001e029bff17a981c80265957c0db0)
 
-**Album:** Everybody Breaks the Line
+**Album:** The Tree
 
-📅 2023-02-23 17:23:58
+📅 2023-02-24 16:56:59
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **Nouvelles Tentatives** / Zander Shaelyn
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: Nouvelles Tentatives](https://i.scdn.co/image/ab67616d00001e0286c6ecf9551b2b5a718f8108)
 
-**Album:** Saudade
+**Album:** Nouvelles Tentatives
 
-📅 2023-02-23 17:19:57
+📅 2023-02-24 16:51:14
 
 
-# **Bittersweet Faith - Thievery Corporation Remix** / Bitter:Sweet
+# **Glance Out A Casement Window** / Janet Redger
 
-![Foto del album: The Remix Game](https://i.scdn.co/image/ab67616d00001e0238931c43178d3db7ff55a0fc)
+![Foto del album: Glance Out A Casement Window](https://i.scdn.co/image/ab67616d00001e02c1f1b784f7ef6ad1fd13e581)
 
-**Album:** The Remix Game
+**Album:** Glance Out A Casement Window
 
-📅 2023-02-23 17:16:33
+📅 2023-02-24 16:49:13
 
 
-# **Wandering Star** / Portishead
+# **Solace** / Claire Lerdier
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Solace](https://i.scdn.co/image/ab67616d00001e02b80788e27ee78ea341a26610)
 
-**Album:** Dummy
+**Album:** Solace
 
-📅 2023-02-23 17:12:35
+📅 2023-02-24 16:47:03
 
 
-# **6 Underground** / Sneaker Pimps
+# **Peaceful Thoughts** / Listening Wind
 
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+![Foto del album: Peaceful Thoughts](https://i.scdn.co/image/ab67616d00001e021149bc095b9ff9ed4981250b)
 
-**Album:** Becoming X
+**Album:** Peaceful Thoughts
 
-📅 2023-02-23 17:07:41
+📅 2023-02-24 16:44:31
 
 
-# **Romantic** / Hooverphonic
+# **Amor Eterno** / Elisa Avaria
 
-![Foto del album: Looking For Stars](https://i.scdn.co/image/ab67616d00001e0267ca8a5f76a579ddb880e9de)
+![Foto del album: Amor Eterno](https://i.scdn.co/image/ab67616d00001e0209400cb0297f57f6aab83977)
 
-**Album:** Looking For Stars
+**Album:** Amor Eterno
 
-📅 2023-02-23 17:03:29
+📅 2023-02-24 16:42:10
 
 
-# **Smile** / Télépopmusik|Angela McCluskey
+# **Má sestra** / Jani Lechleiter
 
-![Foto del album: Genetic World](https://i.scdn.co/image/ab67616d00001e02c65b1f9d6ca322de8b85c505)
+![Foto del album: Má sestra](https://i.scdn.co/image/ab67616d00001e021cc362fb6898e9e0cf9e309e)
 
-**Album:** Genetic World
+**Album:** Má sestra
 
-📅 2023-02-23 17:00:13
+📅 2023-02-24 16:39:32
 
 
-# **Love Has No Heart** / Thievery Corporation|Shana Halligan
+# **Lyrides** / Jozef De Schutter
 
-![Foto del album: Temple Of I & I](https://i.scdn.co/image/ab67616d00001e02adb8acc05ec7649d6c9ba592)
+![Foto del album: Lyrides](https://i.scdn.co/image/ab67616d00001e02ada707951f08c829ee8eaf1d)
 
-**Album:** Temple Of I & I
+**Album:** Lyrides
 
-📅 2023-02-23 16:56:11
+📅 2023-02-24 16:37:26
 
 
-# **Renaissance Affair** / Hooverphonic
+# **Entangled - Ole-Bjørn Talstad Rework** / Klur|Ole-Bjørn Talstad
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Entangled (Ole-Bjørn Talstad Rework)](https://i.scdn.co/image/ab67616d00001e026304ad16edcfeba83aa04a70)
 
-**Album:** The Magnificent Tree
+**Album:** Entangled (Ole-Bjørn Talstad Rework)
 
-📅 2023-02-23 16:51:44
+📅 2023-02-24 16:34:42
