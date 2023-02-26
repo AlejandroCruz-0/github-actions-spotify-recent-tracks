@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Je m'amoure de cette sensation** / A. Blomqvist
+
+![Foto del album: Je m'amoure de cette sensation](https://i.scdn.co/image/ab67616d00001e02759a028a730a87ee231e38ee)
+
+**Album:** Je m'amoure de cette sensation
+
+📅 2023-02-24 17:26:59
+
+
 # **Twilights** / Mirta da Silva
 
 ![Foto del album: Twilights](https://i.scdn.co/image/ab67616d00001e02bc256bda953dc87415f7ad71)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Lyrides
 
 📅 2023-02-24 16:37:26
-
-
-# **Entangled - Ole-Bjørn Talstad Rework** / Klur|Ole-Bjørn Talstad
-
-![Foto del album: Entangled (Ole-Bjørn Talstad Rework)](https://i.scdn.co/image/ab67616d00001e026304ad16edcfeba83aa04a70)
-
-**Album:** Entangled (Ole-Bjørn Talstad Rework)
-
-📅 2023-02-24 16:34:42
