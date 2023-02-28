@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Je m'amoure de cette sensation** / A. Blomqvist
+# **Wrong Dance** / De-Phazz
 
-![Foto del album: Je m'amoure de cette sensation](https://i.scdn.co/image/ab67616d00001e02759a028a730a87ee231e38ee)
+![Foto del album: Daily Lama](https://i.scdn.co/image/ab67616d00001e0218e628ca24e720eee1411d67)
 
-**Album:** Je m'amoure de cette sensation
+**Album:** Daily Lama
 
-📅 2023-02-24 17:26:59
+📅 2023-02-27 18:47:44
 
 
-# **Twilights** / Mirta da Silva
+# **Renaissance Affair** / Hooverphonic
 
-![Foto del album: Twilights](https://i.scdn.co/image/ab67616d00001e02bc256bda953dc87415f7ad71)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilights
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:24:29
+📅 2023-02-27 18:47:23
 
 
-# **At The End Of The Day** / Frederico Morales
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: The Old Oak Tree](https://i.scdn.co/image/ab67616d00001e022e0445c05f3c6658f9a6e35b)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The Old Oak Tree
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:20:26
+📅 2023-02-27 18:43:58
 
 
-# **Un sourire et une larme (valse)** / Tom Kristiaan
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: Petites danses et rêveries](https://i.scdn.co/image/ab67616d00001e027169143feb96a1b25385d91c)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Petites danses et rêveries
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:18:14
+📅 2023-02-27 18:40:10
 
 
-# **Lydian Fairytale** / Nascondiglio
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Lydian Fairytale](https://i.scdn.co/image/ab67616d00001e0292e35ef6a27b895a3d554ac3)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Lydian Fairytale
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:15:47
+📅 2023-02-27 18:36:19
 
 
-# **Shizukana** / Isshi Matsuriza
+# **Everytime We Live Together We Die A Bit More** / Hooverphonic
 
-![Foto del album: Shizukana](https://i.scdn.co/image/ab67616d00001e02541a11cb933e39048d04678a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Shizukana
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:14:00
+📅 2023-02-27 18:32:22
 
 
-# **Tôt le matin** / Alonzo Gautier
+# **Frosted Flake Wood** / Hooverphonic
 
-![Foto del album: Tôt le matin](https://i.scdn.co/image/ab67616d00001e029c76f67257595dcf67980547)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Tôt le matin
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:11:24
+📅 2023-02-27 18:28:48
 
 
-# **Sun sinking at dusk** / Noemi Lucas
+# **Vinegar & Salt** / Hooverphonic
 
-![Foto del album: Sun sinking at dusk](https://i.scdn.co/image/ab67616d00001e023f2be531cf20bdde2f4b89fc)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Sun sinking at dusk
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:09:14
+📅 2023-02-27 18:25:31
 
 
-# **Nordanvind** / Malmkvist
+# **The Magnificent Tree** / Hooverphonic
 
-![Foto del album: Nordanvind](https://i.scdn.co/image/ab67616d00001e02dba8cf9bd2bcd7ae5b06beae)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Nordanvind
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:06:31
+📅 2023-02-27 18:22:10
 
 
-# **From Home** / Vivian Roost
+# **Jackie Cane** / Hooverphonic
 
-![Foto del album: From Home](https://i.scdn.co/image/ab67616d00001e02734fa44e730eb68431fa0b16)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** From Home
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:04:24
+📅 2023-02-27 18:18:16
 
 
-# **Waitings** / Felix Tanguy
+# **Waves** / Hooverphonic
 
-![Foto del album: Waitings](https://i.scdn.co/image/ab67616d00001e0282cf2169827c6a4c5b7b6573)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Waitings
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 17:00:59
+📅 2023-02-27 18:13:56
 
 
-# **Emerald Enlightenment** / Aramis Morel
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Emerald Enlightenment](https://i.scdn.co/image/ab67616d00001e02cc72cfa66d1146c839a0fc73)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Emerald Enlightenment
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 16:58:39
+📅 2023-02-27 18:09:54
 
 
-# **The Tree** / Ludovico Einaudi
+# **Congregation** / Low
 
-![Foto del album: The Tree](https://i.scdn.co/image/ab67616d00001e029bff17a981c80265957c0db0)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** The Tree
+**Album:** Ones and Sixes
 
-📅 2023-02-24 16:56:59
+📅 2023-02-27 15:23:12
 
 
-# **Nouvelles Tentatives** / Zander Shaelyn
+# **I Love You** / Woodkid
 
-![Foto del album: Nouvelles Tentatives](https://i.scdn.co/image/ab67616d00001e0286c6ecf9551b2b5a718f8108)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Nouvelles Tentatives
+**Album:** The Golden Age
 
-📅 2023-02-24 16:51:14
+📅 2023-02-27 15:21:37
 
 
-# **Glance Out A Casement Window** / Janet Redger
+# **Oh I Wept** / Free
 
-![Foto del album: Glance Out A Casement Window](https://i.scdn.co/image/ab67616d00001e02c1f1b784f7ef6ad1fd13e581)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Glance Out A Casement Window
+**Album:** Fire And Water
 
-📅 2023-02-24 16:49:13
+📅 2023-02-27 15:17:47
 
 
-# **Solace** / Claire Lerdier
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Solace](https://i.scdn.co/image/ab67616d00001e02b80788e27ee78ea341a26610)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Solace
+**Album:** The Magnificent Tree
 
-📅 2023-02-24 16:47:03
+📅 2023-02-27 15:13:19
 
 
-# **Peaceful Thoughts** / Listening Wind
+# **Open to return** / Constance Lucas
 
-![Foto del album: Peaceful Thoughts](https://i.scdn.co/image/ab67616d00001e021149bc095b9ff9ed4981250b)
+![Foto del album: Open to return](https://i.scdn.co/image/ab67616d00001e02bb2d8821d08d59952b880990)
 
-**Album:** Peaceful Thoughts
+**Album:** Open to return
 
-📅 2023-02-24 16:44:31
+📅 2023-02-27 14:47:47
 
 
-# **Amor Eterno** / Elisa Avaria
+# **Morning Dance** / Amine Ayad
 
-![Foto del album: Amor Eterno](https://i.scdn.co/image/ab67616d00001e0209400cb0297f57f6aab83977)
+![Foto del album: Morning Dance](https://i.scdn.co/image/ab67616d00001e0200e8217cf108ba2067931304)
 
-**Album:** Amor Eterno
+**Album:** Morning Dance
 
-📅 2023-02-24 16:42:10
+📅 2023-02-27 14:30:29
 
 
-# **Má sestra** / Jani Lechleiter
+# **pæoner** / Jonas Hoffmann
 
-![Foto del album: Má sestra](https://i.scdn.co/image/ab67616d00001e021cc362fb6898e9e0cf9e309e)
+![Foto del album: pæoner](https://i.scdn.co/image/ab67616d00001e02fcd1cda2481ea4699eee153c)
 
-**Album:** Má sestra
+**Album:** pæoner
 
-📅 2023-02-24 16:39:32
+📅 2023-02-27 14:28:34
 
 
-# **Lyrides** / Jozef De Schutter
+# **Oaks Bluffs** / Elinaura
 
-![Foto del album: Lyrides](https://i.scdn.co/image/ab67616d00001e02ada707951f08c829ee8eaf1d)
+![Foto del album: Heart Open & Oak Bluffs](https://i.scdn.co/image/ab67616d00001e02ebd2bd3710718a23115f9bf8)
 
-**Album:** Lyrides
+**Album:** Heart Open & Oak Bluffs
 
-📅 2023-02-24 16:37:26
+📅 2023-02-27 14:26:41
