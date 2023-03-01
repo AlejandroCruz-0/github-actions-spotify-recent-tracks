@@ -13,40 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Wrong Dance** / De-Phazz
-
-![Foto del album: Daily Lama](https://i.scdn.co/image/ab67616d00001e0218e628ca24e720eee1411d67)
-
-**Album:** Daily Lama
-
-📅 2023-02-27 18:47:44
-
-
-# **Renaissance Affair** / Hooverphonic
+# **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-27 18:47:23
+📅 2023-02-28 21:38:49
 
 
-# **L'Odeur Animale** / Hooverphonic
+# **Earth** / Hans Zimmer|Gavin Greenaway|The Lyndhurst Orchestra
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Gladiator: 20th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e028602dd298b8881fe56cd2b88)
 
-**Album:** The Magnificent Tree
+**Album:** Gladiator: 20th Anniversary Edition
 
-📅 2023-02-27 18:43:58
+📅 2023-02-28 19:04:00
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Lily's Theme** / Alexandre Desplat
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Harry Potter and the Deathly Hallows, Pt. 2 (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02fea41e29c750f8ddb00abebc)
 
-**Album:** The Magnificent Tree
+**Album:** Harry Potter and the Deathly Hallows, Pt. 2 (Original Motion Picture Soundtrack)
 
-📅 2023-02-27 18:40:10
+📅 2023-02-28 19:01:52
+
+
+# **Dreamer** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-02-28 18:01:28
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-02-28 18:01:21
+
+
+# **Now We Are Free - From "Gladiator" Soundtrack** / Lisa Gerrard|Klaus Badelt|Hans Zimmer|Gavin Greenaway|The Lyndhurst Orchestra
+
+![Foto del album: Gladiator - Music From The Motion Picture](https://i.scdn.co/image/ab67616d00001e02c47ed3d97ec570e3fa29ca7f)
+
+**Album:** Gladiator - Music From The Motion Picture
+
+📅 2023-02-28 17:05:24
+
+
+# **Comptine d'un autre été, l'après-midi** / Yann Tiersen
+
+![Foto del album: Le Fabuleux destin d'Amélie Poulain (Bande originale du film)](https://i.scdn.co/image/ab67616d00001e021b7844a8c73c4d48f0bca1de)
+
+**Album:** Le Fabuleux destin d'Amélie Poulain (Bande originale du film)
+
+📅 2023-02-28 16:55:11
+
+
+# **Time** / Hans Zimmer
+
+![Foto del album: Inception (Music from the Motion Picture)](https://i.scdn.co/image/ab67616d00001e02a883e26f90ab617c91b90e56)
+
+**Album:** Inception (Music from the Motion Picture)
+
+📅 2023-02-28 16:52:44
 
 
 # **Out Of Sight** / Hooverphonic
@@ -55,43 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-27 18:36:19
-
-
-# **Everytime We Live Together We Die A Bit More** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-27 18:32:22
-
-
-# **Frosted Flake Wood** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-27 18:28:48
-
-
-# **Vinegar & Salt** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-27 18:25:31
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-02-27 18:22:10
+📅 2023-02-28 16:46:37
 
 
 # **Jackie Cane** / Hooverphonic
@@ -100,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-27 18:18:16
+📅 2023-02-28 16:26:52
 
 
 # **Waves** / Hooverphonic
@@ -109,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-27 18:13:56
+📅 2023-02-28 16:22:32
 
 
 # **Mad About You** / Hooverphonic
@@ -118,76 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-27 18:09:54
+📅 2023-02-28 16:18:30
 
 
-# **Congregation** / Low
+# **Dreamer** / Supertramp
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** Ones and Sixes
+**Album:** Crime Of The Century (Remastered)
 
-📅 2023-02-27 15:23:12
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-02-27 15:21:37
+📅 2023-02-28 15:51:22
 
 
-# **Oh I Wept** / Free
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Fire And Water
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-02-27 15:17:47
+📅 2023-02-28 15:51:11
 
 
-# **Mad About You** / Hooverphonic
+# **L'Odeur Animale** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-02-27 15:13:19
+📅 2023-02-28 15:09:28
 
 
-# **Open to return** / Constance Lucas
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: Open to return](https://i.scdn.co/image/ab67616d00001e02bb2d8821d08d59952b880990)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Open to return
+**Album:** The Magnificent Tree
 
-📅 2023-02-27 14:47:47
-
-
-# **Morning Dance** / Amine Ayad
-
-![Foto del album: Morning Dance](https://i.scdn.co/image/ab67616d00001e0200e8217cf108ba2067931304)
-
-**Album:** Morning Dance
-
-📅 2023-02-27 14:30:29
+📅 2023-02-28 15:07:37
 
 
-# **pæoner** / Jonas Hoffmann
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: pæoner](https://i.scdn.co/image/ab67616d00001e02fcd1cda2481ea4699eee153c)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** pæoner
+**Album:** The Magnificent Tree
 
-📅 2023-02-27 14:28:34
+📅 2023-02-28 15:03:46
 
 
-# **Oaks Bluffs** / Elinaura
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: Heart Open & Oak Bluffs](https://i.scdn.co/image/ab67616d00001e02ebd2bd3710718a23115f9bf8)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Heart Open & Oak Bluffs
+**Album:** The Magnificent Tree
 
-📅 2023-02-27 14:26:41
+📅 2023-02-28 14:33:41
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-02-28 14:33:19
+
+
+# **Tunnel (the Dining Rooms Rework)** / The Dining Rooms
+
+![Foto del album: Versioni Particolari](https://i.scdn.co/image/ab67616d00001e02561c12e3f611ca8178865b72)
+
+**Album:** Versioni Particolari
+
+📅 2023-02-28 13:29:49
