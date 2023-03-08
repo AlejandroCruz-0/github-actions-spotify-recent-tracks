@@ -13,148 +13,166 @@ Nombre: **lotario1999**
 
 
 
-# **Out Of Sight** / Hooverphonic
+# **Waterguns** / Caravan Palace|Tom Bailey
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The Magnificent Tree
+**Album:** Chronologic
 
-📅 2023-03-06 17:16:12
+📅 2023-03-07 16:57:51
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Fargo** / Caravan Palace
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Bueninvento
+**Album:** Chronologic
 
-📅 2023-03-06 17:12:16
+📅 2023-03-07 16:54:21
 
 
-# **Congregation** / Low
+# **Plume** / Caravan Palace
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Ones and Sixes
+**Album:** Chronologic
 
-📅 2023-03-06 17:08:50
+📅 2023-03-07 16:53:00
 
 
-# **Oh I Wept** / Free
+# **Melancolia** / Caravan Palace
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Fire And Water
+**Album:** Chronologic
 
-📅 2023-03-06 17:04:58
+📅 2023-03-07 16:49:54
 
 
-# **I Love You** / Woodkid
+# **Moonshine** / Caravan Palace
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The Golden Age
+**Album:** Chronologic
 
-📅 2023-03-06 17:00:31
+📅 2023-03-07 16:45:50
 
 
-# **Mad About You** / Hooverphonic
+# **About You** / Caravan Palace|Charles X
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The Magnificent Tree
+**Album:** Chronologic
 
-📅 2023-03-06 16:56:39
+📅 2023-03-07 16:42:16
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Deeply** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2023-03-06 15:00:18
+📅 2023-03-07 16:30:18
 
 
-# **Out Of Sight** / Hooverphonic
+# **Scoring** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2023-03-06 14:48:40
+📅 2023-03-07 16:25:42
 
 
-# **Mad About You** / Hooverphonic
+# **Elephant** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2023-03-06 14:42:12
+📅 2023-03-07 16:21:51
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Rain** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2023-03-06 13:34:14
+📅 2023-03-07 16:17:36
 
 
-# **Out Of Sight** / Hooverphonic
+# **Fool** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2023-03-06 13:34:05
+📅 2023-03-07 16:13:38
 
 
-# **Mad About You** / Hooverphonic
+# **Twilight** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2023-03-06 13:29:56
+📅 2023-03-07 16:08:30
 
 
-# **She Will Be Loved** / Maroon 5
+# **Duvet** / bôa
 
-![Foto del album: Songs About Jane](https://i.scdn.co/image/ab67616d00001e0217b3850d758fff5a2301e537)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Songs About Jane
+**Album:** Twilight
 
-📅 2023-03-04 21:20:13
+📅 2023-03-07 16:04:41
 
 
-# **Shiver** / Maroon 5
+# **Twisted** / MISSIO
 
-![Foto del album: Songs About Jane](https://i.scdn.co/image/ab67616d00001e0217b3850d758fff5a2301e537)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Songs About Jane
+**Album:** Loner
 
-📅 2023-03-04 20:48:20
+📅 2023-03-07 16:00:38
 
 
-# **This Love** / Maroon 5
+# **KDV (feat. SHUG)** / MISSIO|Shug
 
-![Foto del album: Songs About Jane](https://i.scdn.co/image/ab67616d00001e0217b3850d758fff5a2301e537)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Songs About Jane
+**Album:** Loner
 
-📅 2023-03-04 20:45:20
+📅 2023-03-07 15:56:55
 
 
-# **Jackie Cane** / Hooverphonic
+# **Kamikazee** / MISSIO
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** The Magnificent Tree
+**Album:** Loner
 
-📅 2023-03-04 20:05:59
+📅 2023-03-07 15:53:04
+
+
+# **Bottom Of The Deep Blue Sea** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2023-03-07 15:49:23
+
+
+# **I Don't Even Care About You** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2023-03-07 15:45:30
 
 
 # **Waves** / Hooverphonic
@@ -163,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-03-04 20:05:55
+📅 2023-03-07 15:22:08
 
 
 # **Mad About You** / Hooverphonic
@@ -172,22 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-03-04 20:01:36
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-04 18:48:36
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-04 18:48:32
+📅 2023-03-07 15:19:38
