@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-10 22:28:20
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-10 22:28:14
+
+
+# **Easy Does It** / Supertramp
+
+![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
+
+**Album:** Crisis? What Crisis?
+
+📅 2023-03-10 21:41:54
+
+
+# **It's Raining Again** / Supertramp
+
+![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
+
+**Album:** Famous Last Words (Remastered)
+
+📅 2023-03-10 21:40:47
+
+
 # **Dreamer** / Supertramp
 
 ![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-03-10 10:14:15
-
-
-# **Four Three** / All India Radio
-
-![Foto del album: Echo Other](https://i.scdn.co/image/ab67616d00001e0241d2db61f8390fc91dd84707)
-
-**Album:** Echo Other
-
-📅 2023-03-10 09:45:58
-
-
-# **All Mine** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2023-03-10 09:41:55
-
-
-# **Connection** / Télépopmusik|Young & Sick
-
-![Foto del album: Everybody Breaks the Line](https://i.scdn.co/image/ab67616d00001e02a873d71fb820b7a3961166a7)
-
-**Album:** Everybody Breaks the Line
-
-📅 2023-03-10 09:37:53
-
-
-# **6 Underground** / Sneaker Pimps
-
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
-
-**Album:** Becoming X
-
-📅 2023-03-10 09:34:06
