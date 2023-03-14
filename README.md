@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Renaissance Affair** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-14 09:06:22
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-14 09:02:57
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-14 08:59:08
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-14 08:55:17
+
+
+# **People in the City** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-13 12:24:45
+
+
 # **Sex Born Poison** / Air
 
 ![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Chronologic
 
 📅 2023-03-12 19:16:38
-
-
-# **Moonshine** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:12:34
-
-
-# **About You** / Caravan Palace|Charles X
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:09:00
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-10 22:28:20
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-10 22:28:14
-
-
-# **Easy Does It** / Supertramp
-
-![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
-
-**Album:** Crisis? What Crisis?
-
-📅 2023-03-10 21:41:54
