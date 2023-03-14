@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Sex Born Poison** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-13 12:20:49
+
+
+# **Lucky and Unhappy** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-13 12:14:29
+
+
+# **Radio Number 1** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-13 12:09:23
+
+
+# **How Does It Make You Feel?** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-13 12:04:32
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-03-13 10:52:48
+
+
+# **Plume** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2023-03-13 10:02:18
+
+
+# **Melancolia** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2023-03-13 09:59:27
+
+
+# **Frigate birds** / Cosmo Sheldrake
+
+![Foto del album: Galápagos (Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02472b63810d933240b1ba5acb)
+
+**Album:** Galápagos (Original Series Soundtrack)
+
+📅 2023-03-12 19:37:54
+
+
 # **How to Get What You Want** / Elise Trouw
 
 ![Foto del album: How to Get What You Want](https://i.scdn.co/image/ab67616d00001e020e5b93a6db7168b116eb1b08)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Crisis? What Crisis?
 
 📅 2023-03-10 21:41:54
-
-
-# **It's Raining Again** / Supertramp
-
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
-
-**Album:** Famous Last Words (Remastered)
-
-📅 2023-03-10 21:40:47
-
-
-# **Dreamer** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-03-10 21:36:21
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-10 21:32:48
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-10 21:27:39
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-10 16:09:32
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-10 15:58:01
-
-
-# **Andar Conmigo** / Julieta Venegas
-
-![Foto del album: Si](https://i.scdn.co/image/ab67616d00001e02c0071a27b79e46c09eef7caa)
-
-**Album:** Si
-
-📅 2023-03-10 13:08:47
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-03-10 13:05:48
