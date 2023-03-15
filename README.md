@@ -13,6 +13,150 @@ Nombre: **lotario1999**
 
 
 
+# **Sex Born Poison** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-14 17:20:30
+
+
+# **Lucky and Unhappy** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-14 17:14:10
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:40:55
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:40:41
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:36:06
+
+
+# **Elephant** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:32:15
+
+
+# **Rain** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:28:20
+
+
+# **Fool** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:24:24
+
+
+# **Twilight** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:19:16
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-14 16:15:26
+
+
+# **Dreamer** / Supertramp
+
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+
+**Album:** Crime Of The Century (Remastered)
+
+📅 2023-03-14 12:56:48
+
+
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-03-14 12:56:44
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-03-14 12:51:35
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-14 09:43:11
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-14 09:41:57
+
+
+# **Boomerang** / Hooverphonic
+
+![Foto del album: Reflection](https://i.scdn.co/image/ab67616d00001e02bade97c6c0675c92d5ca7ed5)
+
+**Album:** Reflection
+
+📅 2023-03-14 09:06:36
+
+
 # **Renaissance Affair** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -47,147 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-03-14 08:55:17
-
-
-# **People in the City** / Air
-
-![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
-
-**Album:** 10 000 Hz Legend
-
-📅 2023-03-13 12:24:45
-
-
-# **Sex Born Poison** / Air
-
-![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
-
-**Album:** 10 000 Hz Legend
-
-📅 2023-03-13 12:20:49
-
-
-# **Lucky and Unhappy** / Air
-
-![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
-
-**Album:** 10 000 Hz Legend
-
-📅 2023-03-13 12:14:29
-
-
-# **Radio Number 1** / Air
-
-![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
-
-**Album:** 10 000 Hz Legend
-
-📅 2023-03-13 12:09:23
-
-
-# **How Does It Make You Feel?** / Air
-
-![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
-
-**Album:** 10 000 Hz Legend
-
-📅 2023-03-13 12:04:32
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-13 10:52:48
-
-
-# **Plume** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-13 10:02:18
-
-
-# **Melancolia** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-13 09:59:27
-
-
-# **Frigate birds** / Cosmo Sheldrake
-
-![Foto del album: Galápagos (Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02472b63810d933240b1ba5acb)
-
-**Album:** Galápagos (Original Series Soundtrack)
-
-📅 2023-03-12 19:37:54
-
-
-# **How to Get What You Want** / Elise Trouw
-
-![Foto del album: How to Get What You Want](https://i.scdn.co/image/ab67616d00001e020e5b93a6db7168b116eb1b08)
-
-**Album:** How to Get What You Want
-
-📅 2023-03-12 19:36:12
-
-
-# **April** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:32:49
-
-
-# **Ghosts** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:29:04
-
-
-# **Supersonics** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:27:35
-
-
-# **Leena** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:24:13
-
-
-# **Waterguns** / Caravan Palace|Tom Bailey
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:20:28
-
-
-# **Melancolia** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-03-12 19:16:38
