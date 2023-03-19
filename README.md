@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-18 23:50:32
+
+
 # **Don't Be Light** / Air
 
 ![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Strange Cousins From the West
 
 📅 2023-03-16 12:53:28
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-03-16 12:50:06
