@@ -19,7 +19,34 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
+📅 2023-03-19 21:18:33
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-19 21:14:06
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
 📅 2023-03-18 23:50:32
+
+
+# **Caramel Prisoner** / Air
+
+![Foto del album: 10 000 Hz Legend](https://i.scdn.co/image/ab67616d00001e025c2d2f43471655dbbf3d6284)
+
+**Album:** 10 000 Hz Legend
+
+📅 2023-03-17 12:44:41
 
 
 # **Don't Be Light** / Air
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2023-03-16 13:24:06
-
-
-# **Fool** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-16 13:20:09
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-03-16 13:11:47
-
-
-# **Freakonomics** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-03-16 12:53:28
