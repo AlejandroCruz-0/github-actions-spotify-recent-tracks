@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Fool** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 08:50:16
+
+
+# **Twilight** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 08:45:05
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 08:41:16
+
+
+# **Dinner** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-03-27 18:46:04
+
+
 # **Pool Walk** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-03-27 12:14:44
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-27 12:02:39
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-27 11:58:30
-
-
-# **Buon Giorno** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2023-03-27 09:45:54
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2023-03-27 09:45:43
