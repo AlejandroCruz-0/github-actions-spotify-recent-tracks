@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Dinner** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-26 18:50:59
-
-
 # **Pool Walk** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-26 18:47:00
+📅 2023-03-27 18:25:59
 
 
 # **Rejuvenated** / Cristobal Tapia De Veer
@@ -37,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-26 18:45:45
+📅 2023-03-27 18:24:44
 
 
 # **Jungle Fever** / Cristobal Tapia De Veer
@@ -46,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-26 18:44:49
+📅 2023-03-27 18:23:48
 
 
 # **Pineapple Suite** / Cristobal Tapia De Veer
@@ -55,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-26 18:44:18
+📅 2023-03-27 18:23:18
 
 
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
@@ -64,130 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-26 18:41:41
+📅 2023-03-27 18:20:39
 
 
-# **Rejuvenated** / Cristobal Tapia De Veer
+# **School** / Supertramp
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Crime Of The Century (Remastered)
 
-📅 2023-03-25 21:40:23
+📅 2023-03-27 13:19:24
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **Easy Does It** / Supertramp
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Crisis? What Crisis?
 
-📅 2023-03-25 21:30:00
+📅 2023-03-27 13:16:58
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **It's Raining Again** / Supertramp
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Famous Last Words (Remastered)
 
-📅 2023-03-25 21:29:30
+📅 2023-03-27 13:14:39
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Dreamer** / Supertramp
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Crime Of The Century (Remastered)
 
-📅 2023-03-25 21:26:52
+📅 2023-03-27 13:10:15
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-03-25 21:25:26
+📅 2023-03-27 13:06:40
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-03-25 09:57:18
+📅 2023-03-27 13:01:30
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-03-25 09:57:09
+📅 2023-03-27 12:39:56
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Don't Think** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Don't Think](https://i.scdn.co/image/ab67616d00001e02967bf2430413fdeea897f4e0)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Don't Think
 
-📅 2023-03-25 09:54:31
+📅 2023-03-27 12:25:17
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-03-25 09:52:39
+📅 2023-03-27 12:22:45
 
 
-# **Pool Walk** / Cristobal Tapia De Veer
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-03-25 00:41:41
+📅 2023-03-27 12:18:36
 
 
-# **Rejuvenated** / Cristobal Tapia De Veer
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-03-25 00:21:57
+📅 2023-03-27 12:14:44
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-03-25 00:21:03
+📅 2023-03-27 12:02:39
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-03-25 00:20:32
+📅 2023-03-27 11:58:30
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Buon Giorno** / Cristobal Tapia De Veer
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
 
-📅 2023-03-25 00:17:54
+📅 2023-03-27 09:45:54
+
+
+# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2023-03-27 09:45:43
