@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 12:12:16
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:56:32
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:53:51
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:49:15
+
+
+# **Welcome** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:35:38
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:35:27
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:32:45
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 11:28:10
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-28 08:52:50
+
+
 # **Fool** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Crisis? What Crisis?
 
 📅 2023-03-27 13:16:58
-
-
-# **It's Raining Again** / Supertramp
-
-![Foto del album: Famous Last Words (Remastered)](https://i.scdn.co/image/ab67616d00001e02093c6e7d6069b3c958071f73)
-
-**Album:** Famous Last Words (Remastered)
-
-📅 2023-03-27 13:14:39
-
-
-# **Dreamer** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-03-27 13:10:15
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-27 13:06:40
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-03-27 13:01:30
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-27 12:39:56
-
-
-# **Don't Think** / Hooverphonic
-
-![Foto del album: Don't Think](https://i.scdn.co/image/ab67616d00001e02967bf2430413fdeea897f4e0)
-
-**Album:** Don't Think
-
-📅 2023-03-27 12:25:17
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-27 12:22:45
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-27 12:18:36
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-03-27 12:14:44
