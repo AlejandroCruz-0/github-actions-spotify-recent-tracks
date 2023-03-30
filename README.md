@@ -13,22 +13,130 @@ Nombre: **lotario1999**
 
 
 
-# **Scoring** / bôa
+# **Mer du Japon** / Air
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Pocket Symphony](https://i.scdn.co/image/ab67616d00001e02b33ffd3900f46e9008344b79)
 
-**Album:** Twilight
+**Album:** Pocket Symphony
 
-📅 2023-03-28 12:12:16
+📅 2023-03-29 19:16:46
 
 
-# **One Day** / bôa
+# **Tonight** / Koop
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Waltz for Koop](https://i.scdn.co/image/ab67616d00001e026798d5690ddeb528cee0fb0a)
 
-**Album:** Twilight
+**Album:** Waltz for Koop
 
-📅 2023-03-28 11:56:32
+📅 2023-03-29 19:13:40
+
+
+# **Lonely** / Bebel Gilberto
+
+![Foto del album: Tanto Tempo](https://i.scdn.co/image/ab67616d00001e02137dfa74b0c51b7dbea199d8)
+
+**Album:** Tanto Tempo
+
+📅 2023-03-29 19:10:45
+
+
+# **Undenied** / Portishead
+
+![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+
+**Album:** Portishead
+
+📅 2023-03-29 19:08:20
+
+
+# **Oscar feat. Anna Clementi** / Tosca
+
+![Foto del album: Dehli 9](https://i.scdn.co/image/ab67616d00001e02409cf79e8f269705ee38cfa5)
+
+**Album:** Dehli 9
+
+📅 2023-03-29 19:03:59
+
+
+# **Elle et moi** / Lemongrass
+
+![Foto del album: Filmothèque](https://i.scdn.co/image/ab67616d00001e02cb535a2c749af6e4a4a52cba)
+
+**Album:** Filmothèque
+
+📅 2023-03-29 18:58:19
+
+
+# **6 Underground** / Sneaker Pimps
+
+![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+
+**Album:** Becoming X
+
+📅 2023-03-29 18:55:10
+
+
+# **Renaissance Affair** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 18:51:21
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 18:47:56
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 18:44:08
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 18:40:16
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 18:36:16
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 17:02:19
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-03-29 16:52:05
 
 
 # **Deeply** / bôa
@@ -37,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2023-03-28 11:53:51
+📅 2023-03-29 16:34:17
 
 
 # **Scoring** / bôa
@@ -46,7 +154,25 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2023-03-28 11:49:15
+📅 2023-03-29 16:33:31
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-29 16:07:15
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-29 16:02:40
 
 
 # **Welcome** / bôa
@@ -55,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2023-03-28 11:35:38
+📅 2023-03-29 15:50:07
 
 
 # **One Day** / bôa
@@ -64,130 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2023-03-28 11:35:27
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-28 11:32:45
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-28 11:28:10
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-28 08:52:50
-
-
-# **Fool** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-28 08:50:16
-
-
-# **Twilight** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-28 08:45:05
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-28 08:41:16
-
-
-# **Dinner** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-27 18:46:04
-
-
-# **Pool Walk** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-27 18:25:59
-
-
-# **Rejuvenated** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-27 18:24:44
-
-
-# **Jungle Fever** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-27 18:23:48
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-27 18:23:18
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-27 18:20:39
-
-
-# **School** / Supertramp
-
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
-
-**Album:** Crime Of The Century (Remastered)
-
-📅 2023-03-27 13:19:24
-
-
-# **Easy Does It** / Supertramp
-
-![Foto del album: Crisis? What Crisis?](https://i.scdn.co/image/ab67616d00001e02816e8b3e3e4b8fd048e8c55d)
-
-**Album:** Crisis? What Crisis?
-
-📅 2023-03-27 13:16:58
+📅 2023-03-29 15:45:01
