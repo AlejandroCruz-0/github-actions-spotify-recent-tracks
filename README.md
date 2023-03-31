@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Mer du Japon** / Air
+# **Pool Walk** / Cristobal Tapia De Veer
 
-![Foto del album: Pocket Symphony](https://i.scdn.co/image/ab67616d00001e02b33ffd3900f46e9008344b79)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Pocket Symphony
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-29 19:16:46
+📅 2023-03-30 19:09:07
 
 
-# **Tonight** / Koop
+# **Rejuvenated** / Cristobal Tapia De Veer
 
-![Foto del album: Waltz for Koop](https://i.scdn.co/image/ab67616d00001e026798d5690ddeb528cee0fb0a)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Waltz for Koop
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-29 19:13:40
+📅 2023-03-30 19:07:52
 
 
-# **Lonely** / Bebel Gilberto
+# **Jungle Fever** / Cristobal Tapia De Veer
 
-![Foto del album: Tanto Tempo](https://i.scdn.co/image/ab67616d00001e02137dfa74b0c51b7dbea199d8)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Tanto Tempo
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-29 19:10:45
+📅 2023-03-30 19:06:56
 
 
-# **Undenied** / Portishead
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Portishead
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-29 19:08:20
+📅 2023-03-30 19:06:14
 
 
-# **Oscar feat. Anna Clementi** / Tosca
+# **Mannish Boy** / Muddy Waters
 
-![Foto del album: Dehli 9](https://i.scdn.co/image/ab67616d00001e02409cf79e8f269705ee38cfa5)
+![Foto del album: King Of The Electric Blues](https://i.scdn.co/image/ab67616d00001e021063bd72c8de25474308ccc9)
 
-**Album:** Dehli 9
+**Album:** King Of The Electric Blues
 
-📅 2023-03-29 19:03:59
+📅 2023-03-30 15:58:40
 
 
-# **Elle et moi** / Lemongrass
+# **Smokestack Lightnin'** / Howlin' Wolf
 
-![Foto del album: Filmothèque](https://i.scdn.co/image/ab67616d00001e02cb535a2c749af6e4a4a52cba)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Filmothèque
+**Album:** Moanin' In The Moonlight
 
-📅 2023-03-29 18:58:19
+📅 2023-03-30 15:54:52
 
 
-# **6 Underground** / Sneaker Pimps
+# **Going Down** / Freddie King
 
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+![Foto del album: Getting Ready... (World)](https://i.scdn.co/image/ab67616d00001e02be4c277f6b8f6bedf7135496)
 
-**Album:** Becoming X
+**Album:** Getting Ready... (World)
 
-📅 2023-03-29 18:55:10
+📅 2023-03-30 15:51:43
 
 
-# **Renaissance Affair** / Hooverphonic
+# **Black Magic Woman** / Fleetwood Mac
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: English Rose](https://i.scdn.co/image/ab67616d00001e02f66822e32a6f77adf31ccc1b)
 
-**Album:** The Magnificent Tree
+**Album:** English Rose
 
-📅 2023-03-29 18:51:21
+📅 2023-03-30 15:48:18
 
 
-# **L'Odeur Animale** / Hooverphonic
+# **Freakonomics** / Clutch
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
-**Album:** The Magnificent Tree
+**Album:** Strange Cousins From the West
 
-📅 2023-03-29 18:47:56
+📅 2023-03-30 15:44:11
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Let a Poor Man Be** / Clutch
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
-**Album:** The Magnificent Tree
+**Album:** Strange Cousins From the West
 
-📅 2023-03-29 18:44:08
+📅 2023-03-30 15:40:49
 
 
-# **Out Of Sight** / Hooverphonic
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** The Magnificent Tree
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-29 18:40:16
+📅 2023-03-30 13:45:57
 
 
-# **Mad About You** / Hooverphonic
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** The Magnificent Tree
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-29 18:36:16
+📅 2023-03-30 13:45:51
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Liquid Smooth** / Mitski
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Lush](https://i.scdn.co/image/ab67616d00001e0218bbdba0da26e4ae050fb1b8)
 
-**Album:** The Magnificent Tree
+**Album:** Lush
 
-📅 2023-03-29 17:02:19
+📅 2023-03-30 13:20:03
 
 
-# **Out Of Sight** / Hooverphonic
+# **Posing in Bondage** / Japanese Breakfast
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Polyvinyl 4-Track Singles Series, Vol. 3](https://i.scdn.co/image/ab67616d00001e0252e926a40c21e50ff724533f)
 
-**Album:** The Magnificent Tree
+**Album:** Polyvinyl 4-Track Singles Series, Vol. 3
 
-📅 2023-03-29 16:52:05
+📅 2023-03-30 13:19:56
 
 
-# **Deeply** / bôa
+# **Duvet - Slowed Down Version** / bôa
+
+![Foto del album: Duvet](https://i.scdn.co/image/ab67616d00001e02786d2ae38a7a469bf4218d4a)
+
+**Album:** Duvet
+
+📅 2023-03-30 13:17:48
+
+
+# **Sour Switchblade** / Elita
+
+![Foto del album: Sour Switchblade](https://i.scdn.co/image/ab67616d00001e021f2fc24fed90fdbf37a0d9f0)
+
+**Album:** Sour Switchblade
+
+📅 2023-03-30 13:13:29
+
+
+# **Drinking** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2023-03-29 16:34:17
+📅 2023-03-30 13:11:00
 
 
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-29 16:33:31
-
-
-# **Deeply** / bôa
+# **Little Miss** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2023-03-29 16:07:15
+📅 2023-03-30 13:06:46
 
 
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-29 16:02:40
-
-
-# **Welcome** / bôa
+# **Duvet - Acoustic** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2023-03-29 15:50:07
+📅 2023-03-30 13:02:53
 
 
-# **One Day** / bôa
+# **Anna Maria** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2023-03-29 15:45:01
+📅 2023-03-30 12:57:38
