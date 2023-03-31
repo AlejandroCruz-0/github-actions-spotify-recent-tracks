@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Dinner** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-03-30 19:25:41
+
+
 # **Pool Walk** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2023-03-30 13:02:53
-
-
-# **Anna Maria** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-30 12:57:38
