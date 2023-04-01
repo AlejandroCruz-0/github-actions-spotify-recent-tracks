@@ -13,13 +13,139 @@ Nombre: **lotario1999**
 
 
 
+# **Sucker for the Witch** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-03-31 12:09:32
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-03-31 12:06:12
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-03-31 12:02:14
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-03-31 11:59:13
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2023-03-31 11:55:03
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 11:39:35
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 11:26:02
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 11:05:35
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 11:00:59
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 10:56:45
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 10:54:03
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-03-31 10:49:28
+
+
+# **Special Chosen Baby Child** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-03-31 10:41:51
+
+
+# **Courtship** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-03-31 10:40:42
+
+
 # **Dinner** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-30 19:25:41
+📅 2023-03-31 10:39:22
 
 
 # **Pool Walk** / Cristobal Tapia De Veer
@@ -28,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-30 19:09:07
+📅 2023-03-31 10:35:23
 
 
 # **Rejuvenated** / Cristobal Tapia De Veer
@@ -37,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-30 19:07:52
+📅 2023-03-31 10:34:09
 
 
 # **Jungle Fever** / Cristobal Tapia De Veer
@@ -46,70 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-30 19:06:56
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-03-30 19:06:14
-
-
-# **Mannish Boy** / Muddy Waters
-
-![Foto del album: King Of The Electric Blues](https://i.scdn.co/image/ab67616d00001e021063bd72c8de25474308ccc9)
-
-**Album:** King Of The Electric Blues
-
-📅 2023-03-30 15:58:40
-
-
-# **Smokestack Lightnin'** / Howlin' Wolf
-
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
-
-**Album:** Moanin' In The Moonlight
-
-📅 2023-03-30 15:54:52
-
-
-# **Going Down** / Freddie King
-
-![Foto del album: Getting Ready... (World)](https://i.scdn.co/image/ab67616d00001e02be4c277f6b8f6bedf7135496)
-
-**Album:** Getting Ready... (World)
-
-📅 2023-03-30 15:51:43
-
-
-# **Black Magic Woman** / Fleetwood Mac
-
-![Foto del album: English Rose](https://i.scdn.co/image/ab67616d00001e02f66822e32a6f77adf31ccc1b)
-
-**Album:** English Rose
-
-📅 2023-03-30 15:48:18
-
-
-# **Freakonomics** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-03-30 15:44:11
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-03-30 15:40:49
+📅 2023-03-31 10:33:12
 
 
 # **Pineapple Suite** / Cristobal Tapia De Veer
@@ -118,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-30 13:45:57
+📅 2023-03-31 10:32:41
 
 
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
@@ -127,67 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-03-30 13:45:51
-
-
-# **Liquid Smooth** / Mitski
-
-![Foto del album: Lush](https://i.scdn.co/image/ab67616d00001e0218bbdba0da26e4ae050fb1b8)
-
-**Album:** Lush
-
-📅 2023-03-30 13:20:03
-
-
-# **Posing in Bondage** / Japanese Breakfast
-
-![Foto del album: Polyvinyl 4-Track Singles Series, Vol. 3](https://i.scdn.co/image/ab67616d00001e0252e926a40c21e50ff724533f)
-
-**Album:** Polyvinyl 4-Track Singles Series, Vol. 3
-
-📅 2023-03-30 13:19:56
-
-
-# **Duvet - Slowed Down Version** / bôa
-
-![Foto del album: Duvet](https://i.scdn.co/image/ab67616d00001e02786d2ae38a7a469bf4218d4a)
-
-**Album:** Duvet
-
-📅 2023-03-30 13:17:48
-
-
-# **Sour Switchblade** / Elita
-
-![Foto del album: Sour Switchblade](https://i.scdn.co/image/ab67616d00001e021f2fc24fed90fdbf37a0d9f0)
-
-**Album:** Sour Switchblade
-
-📅 2023-03-30 13:13:29
-
-
-# **Drinking** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-30 13:11:00
-
-
-# **Little Miss** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-30 13:06:46
-
-
-# **Duvet - Acoustic** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-03-30 13:02:53
+📅 2023-03-31 10:30:03
