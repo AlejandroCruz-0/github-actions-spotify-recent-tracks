@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Honeymoon** / Cristobal Tapia De Veer
+# **Bossa 50** / Rosalia De Souza
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: D'Improvviso](https://i.scdn.co/image/ab67616d00001e02e11b97ec58418421047f424f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** D'Improvviso
 
-📅 2023-04-02 21:15:19
+📅 2023-04-03 12:15:19
 
 
-# **Special Chosen Baby Child** / Cristobal Tapia De Veer
+# **Muito À Vontade** / João Donato E Seu Trio
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Muito À Vontade](https://i.scdn.co/image/ab67616d00001e02d618d53ba6009d15643aaf2c)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Muito À Vontade
 
-📅 2023-04-02 21:03:56
+📅 2023-04-03 12:10:52
 
 
-# **Courtship** / Cristobal Tapia De Veer
+# **Cendre** / Fennesz|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Cendre](https://i.scdn.co/image/ab67616d00001e0224e79c517426325a9fc8717b)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Cendre
 
-📅 2023-04-02 21:02:38
+📅 2023-04-03 12:08:15
 
 
-# **Dinner** / Cristobal Tapia De Veer
+# **Dancing In the Sky** / Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Koko](https://i.scdn.co/image/ab67616d00001e025ca33d78b76bde35b544223d)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Koko
 
-📅 2023-04-02 21:01:18
+📅 2023-04-03 12:05:05
 
 
-# **Pool Walk** / Cristobal Tapia De Veer
+# **SEM VOCE** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-02 20:57:19
+📅 2023-04-03 12:03:54
 
 
-# **Rejuvenated** / Cristobal Tapia De Veer
+# **ESPERANCA PERDIDA / I WAS JUST ONE MORE FOR YOU-** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-02 20:56:04
+📅 2023-04-03 11:56:39
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **DERRADEIRA PRIMAVERA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-02 20:55:08
+📅 2023-04-03 11:52:34
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **TEMA PARA ANA - Instrumental** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-02 20:54:38
+📅 2023-04-03 11:50:13
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **CANCAO EM MODO MENOR** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-02 20:51:59
+📅 2023-04-03 11:48:05
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **O GRANDE AMOR** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-01 11:33:37
+📅 2023-04-03 11:46:03
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **ESTRADA BRANCA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** CASA
 
-📅 2023-04-01 11:33:34
+📅 2023-04-03 11:41:30
 
 
-# **Sucker for the Witch** / Clutch
+# **IMAGINA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Psychic Warfare
+**Album:** CASA
 
-📅 2023-03-31 12:09:32
+📅 2023-04-03 11:37:27
 
 
-# **A Quick Death in Texas** / Clutch
+# **FOTOGRAFIA -Photograph-** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Psychic Warfare
+**Album:** CASA
 
-📅 2023-03-31 12:06:12
+📅 2023-04-03 11:35:09
 
 
-# **Firebirds** / Clutch
+# **BONITA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Psychic Warfare
+**Album:** CASA
 
-📅 2023-03-31 12:02:14
+📅 2023-04-03 11:30:50
 
 
-# **X-Ray Visions** / Clutch
+# **BONITA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Psychic Warfare
+**Album:** CASA
 
-📅 2023-03-31 11:59:13
+📅 2023-04-03 09:27:18
 
 
-# **Unto the Breach** / Clutch
+# **CHANSON POUR MICHELLE - Instrumental** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Earth Rocker
+**Album:** CASA
 
-📅 2023-03-31 11:55:03
+📅 2023-04-03 09:23:59
 
 
-# **Scoring** / bôa
+# **SABIA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Twilight
+**Album:** CASA
 
-📅 2023-03-31 11:39:35
+📅 2023-04-03 09:20:48
 
 
-# **Duvet** / bôa
+# **SABIA** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Twilight
+**Album:** CASA
 
-📅 2023-03-31 11:26:02
+📅 2023-04-03 08:58:15
 
 
-# **Deeply** / bôa
+# **INUTIL PAISAGEM** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Twilight
+**Album:** CASA
 
-📅 2023-03-31 11:05:35
+📅 2023-04-03 08:55:21
 
 
-# **Scoring** / bôa
+# **VIVO SONHANDO-Dreamer** / Morelenbaum2|Ryuichi Sakamoto
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
 
-**Album:** Twilight
+**Album:** CASA
 
-📅 2023-03-31 11:00:59
+📅 2023-04-03 08:50:51
