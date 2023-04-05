@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Bossa 50** / Rosalia De Souza
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: D'Improvviso](https://i.scdn.co/image/ab67616d00001e02e11b97ec58418421047f424f)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** D'Improvviso
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2023-04-03 12:15:19
+📅 2023-04-04 19:15:07
 
 
-# **Muito À Vontade** / João Donato E Seu Trio
+# **Congregation** / Low
 
-![Foto del album: Muito À Vontade](https://i.scdn.co/image/ab67616d00001e02d618d53ba6009d15643aaf2c)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Muito À Vontade
+**Album:** Ones and Sixes
 
-📅 2023-04-03 12:10:52
+📅 2023-04-04 19:10:57
 
 
-# **Cendre** / Fennesz|Ryuichi Sakamoto
+# **Oh I Wept** / Free
 
-![Foto del album: Cendre](https://i.scdn.co/image/ab67616d00001e0224e79c517426325a9fc8717b)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Cendre
+**Album:** Fire And Water
 
-📅 2023-04-03 12:08:15
+📅 2023-04-04 19:07:05
 
 
-# **Dancing In the Sky** / Ryuichi Sakamoto
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Koko](https://i.scdn.co/image/ab67616d00001e025ca33d78b76bde35b544223d)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Koko
+**Album:** The Magnificent Tree
 
-📅 2023-04-03 12:05:05
+📅 2023-04-04 19:02:37
 
 
-# **SEM VOCE** / Morelenbaum2|Ryuichi Sakamoto
+# **I Love You** / Woodkid
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** CASA
+**Album:** The Golden Age
 
-📅 2023-04-03 12:03:54
+📅 2023-04-04 18:58:40
 
 
-# **ESPERANCA PERDIDA / I WAS JUST ONE MORE FOR YOU-** / Morelenbaum2|Ryuichi Sakamoto
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** CASA
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-04-03 11:56:39
+📅 2023-04-04 18:54:50
 
 
-# **DERRADEIRA PRIMAVERA** / Morelenbaum2|Ryuichi Sakamoto
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** CASA
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-04-03 11:52:34
+📅 2023-04-04 18:53:29
 
 
-# **TEMA PARA ANA - Instrumental** / Morelenbaum2|Ryuichi Sakamoto
+# **Hollywood Forever Cemetery Sings** / Father John Misty
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Fear Fun](https://i.scdn.co/image/ab67616d00001e02d5a452acd98e9f820ba1d11c)
 
-**Album:** CASA
+**Album:** Fear Fun
 
-📅 2023-04-03 11:50:13
+📅 2023-04-04 18:42:33
 
 
-# **CANCAO EM MODO MENOR** / Morelenbaum2|Ryuichi Sakamoto
+# **Run To Your Mama** / Goat
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
 
-**Album:** CASA
+**Album:** World Music
 
-📅 2023-04-03 11:48:05
+📅 2023-04-04 18:42:16
 
 
-# **O GRANDE AMOR** / Morelenbaum2|Ryuichi Sakamoto
+# **Let a Poor Man Be** / Clutch
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
-**Album:** CASA
+**Album:** Strange Cousins From the West
 
-📅 2023-04-03 11:46:03
+📅 2023-04-04 18:18:50
 
 
-# **ESTRADA BRANCA** / Morelenbaum2|Ryuichi Sakamoto
+# **Gangs in the Garden** / Black Moth Super Rainbow
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Cobra Juicy](https://i.scdn.co/image/ab67616d00001e02167b208eb24d7a21b0cd9185)
 
-**Album:** CASA
+**Album:** Cobra Juicy
 
-📅 2023-04-03 11:41:30
+📅 2023-04-04 17:58:55
 
 
-# **IMAGINA** / Morelenbaum2|Ryuichi Sakamoto
+# **Run To Your Mama** / Goat
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
 
-**Album:** CASA
+**Album:** World Music
 
-📅 2023-04-03 11:37:27
+📅 2023-04-04 17:58:51
 
 
-# **FOTOGRAFIA -Photograph-** / Morelenbaum2|Ryuichi Sakamoto
+# **Run To Your Mama** / Goat
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
 
-**Album:** CASA
+**Album:** World Music
 
-📅 2023-04-03 11:35:09
+📅 2023-04-04 17:55:46
 
 
-# **BONITA** / Morelenbaum2|Ryuichi Sakamoto
+# **Scoring** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 11:30:50
+📅 2023-04-04 17:53:22
 
 
-# **BONITA** / Morelenbaum2|Ryuichi Sakamoto
+# **Rain** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 09:27:18
+📅 2023-04-04 16:40:37
 
 
-# **CHANSON POUR MICHELLE - Instrumental** / Morelenbaum2|Ryuichi Sakamoto
+# **Fool** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 09:23:59
+📅 2023-04-04 16:29:26
 
 
-# **SABIA** / Morelenbaum2|Ryuichi Sakamoto
+# **Twilight** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 09:20:48
+📅 2023-04-04 16:24:18
 
 
-# **SABIA** / Morelenbaum2|Ryuichi Sakamoto
+# **Duvet** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 08:58:15
+📅 2023-04-04 16:20:28
 
 
-# **INUTIL PAISAGEM** / Morelenbaum2|Ryuichi Sakamoto
+# **Welcome** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 08:55:21
+📅 2023-04-04 16:13:23
 
 
-# **VIVO SONHANDO-Dreamer** / Morelenbaum2|Ryuichi Sakamoto
+# **One Day** / bôa
 
-![Foto del album: CASA](https://i.scdn.co/image/ab67616d00001e0264bec83ddf31f3675dc9860e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** CASA
+**Album:** Twilight
 
-📅 2023-04-03 08:50:51
+📅 2023-04-04 16:08:17
