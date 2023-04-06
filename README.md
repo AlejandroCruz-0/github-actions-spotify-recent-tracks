@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Run To Your Mama** / Goat
+
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
+
+**Album:** World Music
+
+📅 2023-04-05 19:00:13
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-04-05 12:45:53
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-04-05 12:43:31
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-04-05 12:41:55
+
+
+# **Signal 30** / Public Service Broadcasting
+
+![Foto del album: Inform - Educate - Entertain](https://i.scdn.co/image/ab67616d00001e029aa5346780e4f9706ecb3256)
+
+**Album:** Inform - Educate - Entertain
+
+📅 2023-04-05 12:30:31
+
+
+# **Run To Your Mama** / Goat
+
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
+
+**Album:** World Music
+
+📅 2023-04-05 12:27:37
+
+
+# **Doused** / DIIV
+
+![Foto del album: Oshin](https://i.scdn.co/image/ab67616d00001e02f4f20ea3da1968d5bf48d362)
+
+**Album:** Oshin
+
+📅 2023-04-05 12:24:48
+
+
+# **No Werewolf** / Allah-Las
+
+![Foto del album: Worship the Sun](https://i.scdn.co/image/ab67616d00001e0217fbd53c45afa1a90846aa28)
+
+**Album:** Worship the Sun
+
+📅 2023-04-05 12:21:05
+
+
+# **Hail Bop** / Django Django
+
+![Foto del album: Django Django](https://i.scdn.co/image/ab67616d00001e02dcd678d0ffcaf5fc2cf02e2f)
+
+**Album:** Django Django
+
+📅 2023-04-05 12:18:37
+
+
+# **Your Life Your Call** / Junip
+
+![Foto del album: Junip](https://i.scdn.co/image/ab67616d00001e02eaff1784d05f5be2773c59e8)
+
+**Album:** Junip
+
+📅 2023-04-05 12:14:32
+
+
+# **Run To Your Mama** / Goat
+
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
+
+**Album:** World Music
+
+📅 2023-04-05 12:10:25
+
+
 # **Pineapple Suite** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fear Fun
 
 📅 2023-04-04 18:42:33
-
-
-# **Run To Your Mama** / Goat
-
-![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
-
-**Album:** World Music
-
-📅 2023-04-04 18:42:16
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-04-04 18:18:50
-
-
-# **Gangs in the Garden** / Black Moth Super Rainbow
-
-![Foto del album: Cobra Juicy](https://i.scdn.co/image/ab67616d00001e02167b208eb24d7a21b0cd9185)
-
-**Album:** Cobra Juicy
-
-📅 2023-04-04 17:58:55
-
-
-# **Run To Your Mama** / Goat
-
-![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
-
-**Album:** World Music
-
-📅 2023-04-04 17:58:51
-
-
-# **Run To Your Mama** / Goat
-
-![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
-
-**Album:** World Music
-
-📅 2023-04-04 17:55:46
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-04 17:53:22
-
-
-# **Rain** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-04 16:40:37
-
-
-# **Fool** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-04 16:29:26
-
-
-# **Twilight** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-04 16:24:18
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-04 16:20:28
-
-
-# **Welcome** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-04 16:13:23
