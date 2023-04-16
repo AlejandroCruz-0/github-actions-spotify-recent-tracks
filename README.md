@@ -19,6 +19,15 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
+📅 2023-04-15 21:27:15
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
 📅 2023-04-13 12:34:16
 
 
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Golden Age
 
 📅 2023-04-12 12:10:37
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-04-12 12:06:47
