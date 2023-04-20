@@ -521,3 +521,4 @@
 2023-04-19 00:40:18,769 - __main__ - INFO - Operación completada
 2023-04-19 12:14:22,035 - __main__ - ERROR - Server error '500 Internal Server Error' for url 'https://api.spotify.com/v1/me/player/recently-played'
 For more information check: https://httpstatuses.com/500
+2023-04-20 00:38:10,196 - __main__ - INFO - Operación completada

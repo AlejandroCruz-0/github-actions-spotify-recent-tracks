@@ -13,31 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **Sally Go Round the Sun** / Elephant Stone
+# **Deeply** / bôa
 
-![Foto del album: Elephant Stone](https://i.scdn.co/image/ab67616d00001e02dda8174e13d259a7b4f51169)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Elephant Stone
+**Album:** Twilight
 
-📅 2023-04-18 16:41:57
-
-
-# **Walk Like a Motherfucker** / Ghost Funk Orchestra
-
-![Foto del album: A Song For Paul](https://i.scdn.co/image/ab67616d00001e0205ca63c4ea9702eb9dfa85a7)
-
-**Album:** A Song For Paul
-
-📅 2023-04-18 16:40:11
+📅 2023-04-19 17:48:14
 
 
-# **Floating Features** / La Luz
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: Floating Features](https://i.scdn.co/image/ab67616d00001e026489389497ef6b54bec100e7)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Floating Features
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-04-18 16:37:05
+📅 2023-04-19 17:43:39
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-04-19 17:41:00
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-04-19 17:37:08
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-04-19 10:12:10
+
+
+# **Dinner** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-04-19 10:08:46
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-04-19 10:04:47
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-04-19 10:00:08
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-04-19 09:56:01
+
+
+# **Pool Walk** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-04-19 09:52:15
 
 
 # **Run To Your Mama** / Goat
@@ -46,124 +109,16 @@ Nombre: **lotario1999**
 
 **Album:** World Music
 
-📅 2023-04-18 16:34:51
+📅 2023-04-19 09:50:59
 
 
-# **One Day** / bôa
+# **Let a Poor Man Be** / Clutch
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
-**Album:** Twilight
+**Album:** Strange Cousins From the West
 
-📅 2023-04-18 16:32:09
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-18 16:29:28
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-18 16:24:52
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-18 16:20:43
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-18 16:16:08
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-04-18 12:19:26
-
-
-# **6 Underground** / Sneaker Pimps
-
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
-
-**Album:** Becoming X
-
-📅 2023-04-18 12:19:24
-
-
-# **Special - 2018 - Remaster** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02f14d41b4c7e37e090774a639)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2023-04-18 12:15:35
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-04-18 12:10:03
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-04-18 11:57:54
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-18 11:28:48
-
-
-# **Anna Maria** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-16 21:06:56
-
-
-# **For Jasmine** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-04-16 21:05:58
+📅 2023-04-19 09:48:36
 
 
 # **Welcome** / bôa
@@ -172,22 +127,67 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2023-04-16 21:00:40
+📅 2023-04-19 09:43:05
 
 
-# **One Day** / bôa
+# **Rejuvenated** / Cristobal Tapia De Veer
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Twilight
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-04-16 20:55:33
+📅 2023-04-19 09:37:59
 
 
-# **Deeply** / bôa
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Twilight
+**Album:** Land Animal
 
-📅 2023-04-16 20:52:53
+📅 2023-04-19 09:37:02
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-04-19 09:31:29
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-04-19 09:28:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-04-19 09:26:43
+
+
+# **Lotus Flower** / Radiohead
+
+![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+
+**Album:** The King Of Limbs
+
+📅 2023-04-19 09:05:54
+
+
+# **Lotus Flower** / Radiohead
+
+![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+
+**Album:** The King Of Limbs
+
+📅 2023-04-19 08:42:10
