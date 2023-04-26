@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-04-25 18:27:38
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-04-25 18:23:19
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-04-25 18:19:17
+
+
 # **I Love You** / Woodkid
 
 ![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
 📅 2023-04-24 10:52:16
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-04-24 10:51:46
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-04-24 10:49:08
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-04-24 09:50:53
