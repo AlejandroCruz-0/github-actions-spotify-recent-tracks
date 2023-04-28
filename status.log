@@ -538,3 +538,4 @@ For more information check: https://httpstatuses.com/500
 2023-04-27 00:41:48,072 - __main__ - INFO - Operación completada
 2023-04-27 12:13:45,340 - __main__ - ERROR - Server error '503 Service Unavailable' for url 'https://accounts.spotify.com/api/token'
 For more information check: https://httpstatuses.com/503
+2023-04-28 00:40:35,822 - __main__ - INFO - Operación completada

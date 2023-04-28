@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Elephant** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-04-26 20:50:55
+
+
+# **6 Underground** / Sneaker Pimps
+
+![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+
+**Album:** Becoming X
+
+📅 2023-04-26 17:06:13
+
+
 # **Renaissance Affair** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** A New Stereophonic Sound Spectacular
 
 📅 2023-04-26 10:13:00
-
-
-# **Badly Broken Butterflies** / Yonderboi
-
-![Foto del album: Splendid Isolation](https://i.scdn.co/image/ab67616d00001e024f04a3441e26e2eda6645255)
-
-**Album:** Splendid Isolation
-
-📅 2023-04-26 10:09:29
-
-
-# **Dear Anne Sexton** / Vanessa Daou
-
-![Foto del album: Zipless (Songs from the Works of Erica Jong)](https://i.scdn.co/image/ab67616d00001e022fc85cd3dc975623dadb2f9a)
-
-**Album:** Zipless (Songs from the Works of Erica Jong)
-
-📅 2023-04-26 10:06:08
