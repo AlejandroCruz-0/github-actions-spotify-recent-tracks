@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Wicked Game - Recorded Live at St Canice Cathedral, Kilkenny** / James Vincent McMorrow
+
+![Foto del album: Wicked Game (Recorded Live at St Canice Cathedral, Kilkenny)](https://i.scdn.co/image/ab67616d00001e02539fcb735ac334d6fd57f373)
+
+**Album:** Wicked Game (Recorded Live at St Canice Cathedral, Kilkenny)
+
+📅 2023-04-29 12:42:18
+
+
+# **Mad World - Recorded at Metropolis Studios, London** / Lily Allen
+
+![Foto del album: Spotify Singles](https://i.scdn.co/image/ab67616d00001e02af64be52736d547a9ca9de51)
+
+**Album:** Spotify Singles
+
+📅 2023-04-29 12:37:46
+
+
+# **Fuck Love** / Rosalie Cunningham
+
+![Foto del album: Rosalie Cunningham](https://i.scdn.co/image/ab67616d00001e026e92c1aae79002394ec98cf2)
+
+**Album:** Rosalie Cunningham
+
+📅 2023-04-28 18:44:44
+
+
 # **Waltz #2 (XO)** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** It's Raining After All
 
 📅 2023-04-28 09:47:32
-
-
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
-
-**Album:** iv
-
-📅 2023-04-28 09:44:17
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-04-28 09:40:29
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-04-28 09:36:21
