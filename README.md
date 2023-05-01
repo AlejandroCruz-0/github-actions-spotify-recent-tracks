@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-04-30 12:18:57
+
+
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+
+**Album:** Saudade
+
+📅 2023-04-30 12:15:00
+
+
+# **Time After Time** / Iron & Wine
+
+![Foto del album: Time After Time](https://i.scdn.co/image/ab67616d00001e02c399112d7620b5942f925a7f)
+
+**Album:** Time After Time
+
+📅 2023-04-29 12:42:35
+
+
 # **Wicked Game - Recorded Live at St Canice Cathedral, Kilkenny** / James Vincent McMorrow
 
 ![Foto del album: Wicked Game (Recorded Live at St Canice Cathedral, Kilkenny)](https://i.scdn.co/image/ab67616d00001e02539fcb735ac334d6fd57f373)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-04-28 09:58:51
-
-
-# **Relight My Fire - Single Version** / Dan Hartman
-
-![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
-
-**Album:** 70s Gems
-
-📅 2023-04-28 09:55:07
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-04-28 09:51:23
-
-
-# **I'm getting on the bus to the other world, see ya!** / TUYU
-
-![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
-
-**Album:** It's Raining After All
-
-📅 2023-04-28 09:47:32
