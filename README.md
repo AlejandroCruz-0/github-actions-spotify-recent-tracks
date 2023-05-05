@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-04 12:34:18
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-04 12:31:40
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-04 12:24:01
+
+
+# **Fool** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-04 11:13:50
+
+
+# **Twilight** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-04 11:11:33
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-04 11:07:44
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-04 10:57:37
+
+
+# **So What'Cha Want** / Beastie Boys
+
+![Foto del album: Anthology: The Sounds Of Science](https://i.scdn.co/image/ab67616d00001e0296c3a9e140c8ff0ab0d8a91e)
+
+**Album:** Anthology: The Sounds Of Science
+
+📅 2023-05-03 19:13:54
+
+
 # **Sure Shot** / Beastie Boys
 
 ![Foto del album: Ill Communication](https://i.scdn.co/image/ab67616d00001e02436a305db8bd85b820da3e5a)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hello Nasty (Deluxe Edition/Remastered)
 
 📅 2023-05-02 11:30:39
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-02 11:27:53
-
-
-# **Body Movin' - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-02 11:24:01
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-02 11:19:51
-
-
-# **Sabotage** / Beastie Boys
-
-![Foto del album: Ill Communication](https://i.scdn.co/image/ab67616d00001e02436a305db8bd85b820da3e5a)
-
-**Album:** Ill Communication
-
-📅 2023-05-02 11:15:33
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-02 09:35:25
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-02 08:58:56
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-02 08:54:08
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-01 12:04:20
