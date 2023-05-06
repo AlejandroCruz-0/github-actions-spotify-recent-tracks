@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-05 10:31:05
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-04 12:35:17
+
+
 # **Pineapple Suite** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hello Nasty (Deluxe Edition/Remastered)
 
 📅 2023-05-02 11:35:34
-
-
-# **Putting Shame In Your Game - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-02 11:34:16
-
-
-# **Sneakin' Out The Hospital - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-02 11:30:39
