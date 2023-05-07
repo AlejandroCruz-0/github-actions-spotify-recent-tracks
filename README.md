@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Give Us the Gold** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-06 22:35:48
+
+
+# **Bone Rage** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-06 22:31:56
+
+
+# **Cradle of Rocks** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-06 15:23:06
+
+
 # **Egg Replacer** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
 📅 2023-05-04 12:24:01
-
-
-# **Fool** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-05-04 11:13:50
-
-
-# **Twilight** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-05-04 11:11:33
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-05-04 11:07:44
