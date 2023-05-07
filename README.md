@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **Egg Replacer** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-06 15:22:26
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-06 15:19:15
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-06 15:13:53
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-05-06 14:55:18
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-06 14:52:49
+
+
+# **Six-Year Sentence** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2023-05-06 14:36:19
+
+
+# **Tourists Don't Run** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2023-05-06 14:34:34
+
+
+# **Niamos! (Galaxy Mix)** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+
+**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+
+📅 2023-05-06 14:32:32
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2023-05-06 14:28:42
+
+
+# **About You** / Caravan Palace|Charles X
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2023-05-06 14:25:09
+
+
+# **Miracle** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2023-05-06 14:21:27
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-05 10:42:59
+
+
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2023-05-04 11:07:44
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-05-04 10:57:37
-
-
-# **So What'Cha Want** / Beastie Boys
-
-![Foto del album: Anthology: The Sounds Of Science](https://i.scdn.co/image/ab67616d00001e0296c3a9e140c8ff0ab0d8a91e)
-
-**Album:** Anthology: The Sounds Of Science
-
-📅 2023-05-03 19:13:54
-
-
-# **Sure Shot** / Beastie Boys
-
-![Foto del album: Ill Communication](https://i.scdn.co/image/ab67616d00001e02436a305db8bd85b820da3e5a)
-
-**Album:** Ill Communication
-
-📅 2023-05-03 19:12:48
-
-
-# **Flute Loop - Remastered 2009** / Beastie Boys
-
-![Foto del album: Ill Communication (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02e308a6ed654588fcc801f261)
-
-**Album:** Ill Communication (Deluxe Edition/Remastered)
-
-📅 2023-05-03 19:09:24
-
-
-# **Brass Monkey** / Beastie Boys
-
-![Foto del album: Licensed To Ill](https://i.scdn.co/image/ab67616d00001e02a7ea08ab3914c5fb2084a8ac)
-
-**Album:** Licensed To Ill
-
-📅 2023-05-03 19:07:28
-
-
-# **No Sleep Till Brooklyn** / Beastie Boys
-
-![Foto del album: Licensed To Ill](https://i.scdn.co/image/ab67616d00001e02a7ea08ab3914c5fb2084a8ac)
-
-**Album:** Licensed To Ill
-
-📅 2023-05-03 19:04:51
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-03 19:00:35
-
-
-# **Fight For Your Right** / Beastie Boys
-
-![Foto del album: Licensed To Ill](https://i.scdn.co/image/ab67616d00001e02a7ea08ab3914c5fb2084a8ac)
-
-**Album:** Licensed To Ill
-
-📅 2023-05-03 18:56:42
-
-
-# **Sabotage** / Beastie Boys
-
-![Foto del album: Ill Communication](https://i.scdn.co/image/ab67616d00001e02436a305db8bd85b820da3e5a)
-
-**Album:** Ill Communication
-
-📅 2023-05-03 18:53:13
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-03 18:49:29
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-03 18:45:06
-
-
-# **Flowin' Prose - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-02 11:35:34
