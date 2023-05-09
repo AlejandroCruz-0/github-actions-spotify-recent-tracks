@@ -13,40 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Give Us the Gold** / Bent Knee
+# **Time Deer** / Bent Knee
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** You Know What They Mean
+**Album:** Land Animal
 
-📅 2023-05-06 22:35:48
-
-
-# **Bone Rage** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-05-06 22:31:56
-
-
-# **Cradle of Rocks** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-05-06 15:23:06
-
-
-# **Egg Replacer** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-05-06 15:22:26
+📅 2023-05-08 18:12:05
 
 
 # **Hold Me In** / Bent Knee
@@ -55,25 +28,52 @@ Nombre: **lotario1999**
 
 **Album:** You Know What They Mean
 
-📅 2023-05-06 15:19:15
+📅 2023-05-08 18:07:45
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Catch Light** / Bent Knee
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** You Know What They Mean
 
-📅 2023-05-06 15:13:53
+📅 2023-05-08 18:02:54
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **These Hands** / Bent Knee
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Land Animal
 
-📅 2023-05-06 14:55:18
+📅 2023-05-08 17:58:15
+
+
+# **Land Animal** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-05-08 17:52:38
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-05-08 17:47:24
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-05-08 17:41:49
 
 
 # **Mad About You** / Hooverphonic
@@ -82,79 +82,79 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-06 14:52:49
+📅 2023-05-08 16:07:49
 
 
-# **Six-Year Sentence** / Nicholas Britell
+# **Heart Stop (Radio Edit) - Bonus** / Wax Tailor|Jennifer Charles
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: Dusty Rainbow from the Dark](https://i.scdn.co/image/ab67616d00001e02d4f244fef5b790a62e3aaaeb)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** Dusty Rainbow from the Dark
 
-📅 2023-05-06 14:36:19
-
-
-# **Tourists Don't Run** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
-
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
-
-📅 2023-05-06 14:34:34
+📅 2023-05-08 12:00:18
 
 
-# **Niamos! (Galaxy Mix)** / Nicholas Britell
+# **Renaissance Affair** / Hooverphonic
 
-![Foto del album: Andor: Vol. 2 (Episodes 5-8) [Original Score]](https://i.scdn.co/image/ab67616d00001e02110cee513b7edc4a13d6c4cf)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Andor: Vol. 2 (Episodes 5-8) [Original Score]
+**Album:** The Magnificent Tree
 
-📅 2023-05-06 14:32:32
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-06 14:28:42
+📅 2023-05-08 12:00:01
 
 
-# **About You** / Caravan Palace|Charles X
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Chronologic
+**Album:** The Magnificent Tree
 
-📅 2023-05-06 14:25:09
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-05-06 14:21:27
+📅 2023-05-08 11:56:36
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-05-05 10:42:59
+📅 2023-05-08 11:52:49
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-05-05 10:31:05
+📅 2023-05-08 11:48:57
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-08 11:44:21
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-08 11:40:07
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-08 11:33:05
 
 
 # **Waves** / Hooverphonic
@@ -163,31 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-04 12:35:17
+📅 2023-05-08 11:28:45
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-05-04 12:34:18
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-04 12:31:40
+📅 2023-05-08 11:24:43
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Deeply** / bôa
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Twilight
 
-📅 2023-05-04 12:24:01
+📅 2023-05-08 11:08:24
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-08 11:03:49
