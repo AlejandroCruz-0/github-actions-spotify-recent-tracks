@@ -13,6 +13,168 @@ Nombre: **lotario1999**
 
 
 
+# **Welcome** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-11 13:44:08
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2023-05-11 13:39:02
+
+
+# **Run To Your Mama** / Goat
+
+![Foto del album: World Music](https://i.scdn.co/image/ab67616d00001e02ebf02812d8fefef1841b768b)
+
+**Album:** World Music
+
+📅 2023-05-11 13:33:31
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-11 13:31:07
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-11 13:27:06
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-11 13:22:15
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-05-11 13:17:40
+
+
+# **Intergalactic - Remastered 2009** / Beastie Boys
+
+![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
+
+**Album:** Hello Nasty (Deluxe Edition/Remastered)
+
+📅 2023-05-11 13:13:54
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2023-05-11 13:10:02
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-11 13:05:23
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-05-11 13:02:45
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2023-05-11 12:58:38
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-05-11 12:54:28
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-05-11 12:51:01
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-05-11 12:47:11
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-05-11 12:41:37
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-05-11 12:37:45
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-05-10 10:07:11
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -29,165 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2023-05-10 09:52:59
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-10 09:49:09
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-05-10 09:47:43
-
-
-# **You're No Good** / Betty Everett
-
-![Foto del album: Hot to Hold](https://i.scdn.co/image/ab67616d00001e02933ee730d7acde25cca720cb)
-
-**Album:** Hot to Hold
-
-📅 2023-05-10 09:32:43
-
-
-# **Bad Asteroid** / The Aristocrats
-
-![Foto del album: The Aristocrats](https://i.scdn.co/image/ab67616d00001e02d15a9723e51f21cf52317fff)
-
-**Album:** The Aristocrats
-
-📅 2023-05-10 09:31:15
-
-
-# **White Room** / Cream
-
-![Foto del album: Wheels Of Fire](https://i.scdn.co/image/ab67616d00001e025c7731f5acdcb2d02d78b7ee)
-
-**Album:** Wheels Of Fire
-
-📅 2023-05-10 09:25:18
-
-
-# **Going Down** / Freddie King
-
-![Foto del album: Getting Ready... (World)](https://i.scdn.co/image/ab67616d00001e02be4c277f6b8f6bedf7135496)
-
-**Album:** Getting Ready... (World)
-
-📅 2023-05-10 09:20:18
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-05-10 09:16:38
-
-
-# **Mannish Boy** / Muddy Waters
-
-![Foto del album: King Of The Electric Blues](https://i.scdn.co/image/ab67616d00001e021063bd72c8de25474308ccc9)
-
-**Album:** King Of The Electric Blues
-
-📅 2023-05-10 09:12:11
-
-
-# **Black Magic Woman** / Fleetwood Mac
-
-![Foto del album: English Rose](https://i.scdn.co/image/ab67616d00001e02f66822e32a6f77adf31ccc1b)
-
-**Album:** English Rose
-
-📅 2023-05-10 09:06:38
-
-
-# **Spanish Moon** / Little Feat
-
-![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e022eeed88541975d891c03e3b1)
-
-**Album:** Feats Don't Fail Me Now
-
-📅 2023-05-10 09:03:50
-
-
-# **Smokestack Lightnin'** / Howlin' Wolf
-
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
-
-**Album:** Moanin' In The Moonlight
-
-📅 2023-05-10 09:00:44
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-10 08:49:50
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-10 08:45:48
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-10 08:41:18
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2023-05-09 10:48:32
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-09 10:47:41
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-09 10:45:03
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-09 10:35:12
