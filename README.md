@@ -13,6 +13,132 @@ Nombre: **lotario1999**
 
 
 
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-19 12:38:36
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-19 12:38:32
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-19 12:33:56
+
+
+# **Twilight** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-19 12:29:47
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-19 12:25:58
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-05-19 11:41:30
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-05-19 11:40:33
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-19 11:36:06
+
+
+# **Stand Up Jamrock** / Bob Marley & The Wailers|Damian Marley
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-19 09:02:27
+
+
+# **Rocky Mountain Way** / Joe Walsh
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-19 08:57:31
+
+
+# **I Want You** / C.J.
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-19 08:52:16
+
+
+# **Rocky Mountain Way** / Joe Walsh
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-19 08:48:28
+
+
+# **I Want You** / C.J.
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-19 08:43:12
+
+
+# **Hyper-ballad** / Björk
+
+![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025092260f47e0d95717b834c3)
+
+**Album:** Post
+
+📅 2023-05-18 17:06:53
+
+
 # **Army Of Me** / Björk
 
 ![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025092260f47e0d95717b834c3)
@@ -65,129 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-05-18 11:56:37
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 11:32:26
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 11:31:45
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 11:27:54
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 11:23:21
-
-
-# **Jungle Fever** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-18 10:49:52
-
-
-# **Pool Walk** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-18 10:48:38
-
-
-# **Rejuvenated** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-18 10:47:23
-
-
-# **Jungle Fever** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-18 10:46:26
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-18 10:45:55
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-18 10:43:18
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-17 20:49:46
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-17 20:49:42
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-16 18:25:39
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-16 18:09:47
