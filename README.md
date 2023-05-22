@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Big Exit** / PJ Harvey
+
+![Foto del album: Stories From The City, Stories From The Sea](https://i.scdn.co/image/ab67616d00001e0209e4ac9a68d9ea5ef0ad9b05)
+
+**Album:** Stories From The City, Stories From The Sea
+
+📅 2023-05-21 20:26:18
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-21 20:24:07
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-21 19:41:25
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-21 19:41:20
+
+
+# **On A Journey** / Electrik Funk
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-21 13:14:27
+
+
+# **No Sex For Ben** / The Rapture
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-21 13:11:39
+
+
+# **I Want You** / C.J.
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-21 13:07:22
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-20 09:46:40
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Music of Grand Theft Auto IV
 
 📅 2023-05-19 08:52:16
-
-
-# **Rocky Mountain Way** / Joe Walsh
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-05-19 08:48:28
-
-
-# **I Want You** / C.J.
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-05-19 08:43:12
-
-
-# **Hyper-ballad** / Björk
-
-![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025092260f47e0d95717b834c3)
-
-**Album:** Post
-
-📅 2023-05-18 17:06:53
-
-
-# **Army Of Me** / Björk
-
-![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025092260f47e0d95717b834c3)
-
-**Album:** Post
-
-📅 2023-05-18 17:01:33
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 14:03:33
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 14:03:12
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 13:58:52
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-18 13:54:50
