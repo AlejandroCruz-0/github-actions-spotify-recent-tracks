@@ -19,7 +19,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-05-24 18:42:15
+📅 2023-05-25 16:06:59
 
 
 # **Out Of Sight** / Hooverphonic
@@ -28,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-24 18:39:29
+📅 2023-05-25 16:06:49
 
 
 # **Depth Of My Soul** / Thievery Corporation|Shana Halligan
@@ -37,106 +37,70 @@ Nombre: **lotario1999**
 
 **Album:** Saudade
 
-📅 2023-05-24 18:35:32
+📅 2023-05-25 16:02:53
 
 
-# **Vagabond** / Greenskeepers
+# **Elle et moi** / Lemongrass
 
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+![Foto del album: Filmothèque](https://i.scdn.co/image/ab67616d00001e02cb535a2c749af6e4a4a52cba)
 
-**Album:** The Music of Grand Theft Auto IV
+**Album:** Filmothèque
 
-📅 2023-05-24 12:41:45
-
-
-# **Liberty City: The Invasion** / Seryoga
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-05-24 12:40:19
+📅 2023-05-25 13:19:55
 
 
-# **Stand Up Jamrock** / Bob Marley & The Wailers|Damian Marley
+# **Shadows of Ourselves** / Thievery Corporation
 
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+![Foto del album: Mirror Conspiracy](https://i.scdn.co/image/ab67616d00001e0289af70e8b52389ed4c626698)
 
-**Album:** The Music of Grand Theft Auto IV
+**Album:** Mirror Conspiracy
 
-📅 2023-05-24 12:36:27
-
-
-# **Rocky Mountain Way** / Joe Walsh
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-05-24 12:30:40
+📅 2023-05-25 13:18:55
 
 
-# **I Want You** / C.J.
+# **Harry Dean** / Tosca
 
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+![Foto del album: Outta Here](https://i.scdn.co/image/ab67616d00001e02ad4c2b66035c10162c821d77)
 
-**Album:** The Music of Grand Theft Auto IV
+**Album:** Outta Here
 
-📅 2023-05-24 12:25:25
-
-
-# **Rocky Mountain Way** / Joe Walsh
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-05-24 12:08:17
+📅 2023-05-25 13:15:16
 
 
-# **I Want You** / C.J.
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-05-24 12:08:01
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-05-23 20:15:42
-
-
-# **This Mess We're In** / PJ Harvey|Thom Yorke
-
-![Foto del album: Stories From The City, Stories From The Sea](https://i.scdn.co/image/ab67616d00001e0209e4ac9a68d9ea5ef0ad9b05)
-
-**Album:** Stories From The City, Stories From The Sea
-
-📅 2023-05-23 20:11:57
-
-
-# **The Magnificent Tree** / Hooverphonic
+# **Renaissance Affair** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-23 18:31:52
+📅 2023-05-25 13:12:07
 
 
-# **Jackie Cane** / Hooverphonic
+# **L'Odeur Animale** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-23 18:31:36
+📅 2023-05-25 13:08:42
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-25 13:04:54
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-25 13:01:03
 
 
 # **Waves** / Hooverphonic
@@ -145,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-23 18:27:10
+📅 2023-05-25 12:54:40
 
 
 # **Mad About You** / Hooverphonic
@@ -154,40 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-23 18:23:08
+📅 2023-05-25 12:50:37
 
 
-# **Deeply** / bôa
+# **Open Arms** / Tina Turner
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Open Arms](https://i.scdn.co/image/ab67616d00001e02978678d1096f59955518e316)
 
-**Album:** Twilight
+**Album:** Open Arms
 
-📅 2023-05-23 16:17:12
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-05-23 16:12:50
+📅 2023-05-25 12:09:03
 
 
-# **Teardrop** / Massive Attack
+# **Be Tender with Me Baby** / Tina Turner
 
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
 
-**Album:** Mezzanine
+**Album:** Foreign Affair
 
-📅 2023-05-23 13:43:51
+📅 2023-05-25 12:08:57
 
 
-# **Badly Broken Butterflies** / Yonderboi
+# **Let's Dance (With David Bowie) - Live** / Tina Turner|David Bowie
 
-![Foto del album: Splendid Isolation](https://i.scdn.co/image/ab67616d00001e024f04a3441e26e2eda6645255)
+![Foto del album: Tina Live in Europe](https://i.scdn.co/image/ab67616d00001e0258546a5fe963764a466e79e8)
 
-**Album:** Splendid Isolation
+**Album:** Tina Live in Europe
 
-📅 2023-05-23 13:40:53
+📅 2023-05-25 12:04:39
+
+
+# **What You Get Is What You See** / Tina Turner
+
+![Foto del album: Break Every Rule](https://i.scdn.co/image/ab67616d00001e02642b5e9d9636c51504d5efe2)
+
+**Album:** Break Every Rule
+
+📅 2023-05-25 12:01:11
+
+
+# **I Don't Wanna Fight** / Tina Turner
+
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+
+**Album:** What's Love Got to Do with It?
+
+📅 2023-05-25 11:56:39
+
+
+# **Goldeneye - Single Edit** / Tina Turner
+
+![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+
+**Album:** Wildest Dreams
+
+📅 2023-05-25 11:50:29
+
+
+# **What's Love Got to Do with It - 2015 Remaster** / Tina Turner
+
+![Foto del album: Private Dancer (30th Anniversary Issue)](https://i.scdn.co/image/ab67616d00001e028858cc9df4f43fd5954e5132)
+
+**Album:** Private Dancer (30th Anniversary Issue)
+
+📅 2023-05-25 11:46:34
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2023-05-25 11:42:01
