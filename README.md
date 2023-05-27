@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+
+**Album:** The Future
+
+📅 2023-05-26 09:40:24
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2023-05-26 09:30:17
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-05-26 09:25:02
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-05-26 09:20:55
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2023-05-26 09:17:04
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-26 09:11:38
+
+
+# **Relight My Fire - Single Version** / Dan Hartman
+
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+
+**Album:** 70s Gems
+
+📅 2023-05-26 09:07:54
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-05-26 09:04:09
+
+
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+
+**Album:** Saudade
+
+📅 2023-05-26 08:59:44
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-26 08:54:02
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-26 08:49:42
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-05-26 08:45:39
+
+
 # **Breakfast In America - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-05-25 13:08:42
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 13:04:54
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 13:01:03
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 12:54:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 12:50:37
-
-
-# **Open Arms** / Tina Turner
-
-![Foto del album: Open Arms](https://i.scdn.co/image/ab67616d00001e02978678d1096f59955518e316)
-
-**Album:** Open Arms
-
-📅 2023-05-25 12:09:03
-
-
-# **Be Tender with Me Baby** / Tina Turner
-
-![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
-
-**Album:** Foreign Affair
-
-📅 2023-05-25 12:08:57
-
-
-# **Let's Dance (With David Bowie) - Live** / Tina Turner|David Bowie
-
-![Foto del album: Tina Live in Europe](https://i.scdn.co/image/ab67616d00001e0258546a5fe963764a466e79e8)
-
-**Album:** Tina Live in Europe
-
-📅 2023-05-25 12:04:39
-
-
-# **What You Get Is What You See** / Tina Turner
-
-![Foto del album: Break Every Rule](https://i.scdn.co/image/ab67616d00001e02642b5e9d9636c51504d5efe2)
-
-**Album:** Break Every Rule
-
-📅 2023-05-25 12:01:11
-
-
-# **I Don't Wanna Fight** / Tina Turner
-
-![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
-
-**Album:** What's Love Got to Do with It?
-
-📅 2023-05-25 11:56:39
-
-
-# **Goldeneye - Single Edit** / Tina Turner
-
-![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
-
-**Album:** Wildest Dreams
-
-📅 2023-05-25 11:50:29
-
-
-# **What's Love Got to Do with It - 2015 Remaster** / Tina Turner
-
-![Foto del album: Private Dancer (30th Anniversary Issue)](https://i.scdn.co/image/ab67616d00001e028858cc9df4f43fd5954e5132)
-
-**Album:** Private Dancer (30th Anniversary Issue)
-
-📅 2023-05-25 11:46:34
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-25 11:42:01
