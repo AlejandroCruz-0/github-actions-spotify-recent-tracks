@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Goldeneye - Single Edit** / Tina Turner
+
+![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+
+**Album:** Wildest Dreams
+
+📅 2023-05-27 20:08:01
+
+
+# **Steamy Windows** / Tina Turner
+
+![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
+
+**Album:** Foreign Affair
+
+📅 2023-05-27 11:46:56
+
+
+# **I Don't Wanna Fight** / Tina Turner
+
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+
+**Album:** What's Love Got to Do with It?
+
+📅 2023-05-27 11:40:15
+
+
+# **Goldeneye - Single Edit** / Tina Turner
+
+![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+
+**Album:** Wildest Dreams
+
+📅 2023-05-27 11:34:06
+
+
 # **Closing Time** / Leonard Cohen
 
 ![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Filmothèque
 
 📅 2023-05-25 13:19:55
-
-
-# **Shadows of Ourselves** / Thievery Corporation
-
-![Foto del album: Mirror Conspiracy](https://i.scdn.co/image/ab67616d00001e0289af70e8b52389ed4c626698)
-
-**Album:** Mirror Conspiracy
-
-📅 2023-05-25 13:18:55
-
-
-# **Harry Dean** / Tosca
-
-![Foto del album: Outta Here](https://i.scdn.co/image/ab67616d00001e02ad4c2b66035c10162c821d77)
-
-**Album:** Outta Here
-
-📅 2023-05-25 13:15:16
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 13:12:07
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 13:08:42
