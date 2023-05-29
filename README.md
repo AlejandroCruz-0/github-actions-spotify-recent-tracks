@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **I Don't Wanna Fight** / Tina Turner
+
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+
+**Album:** What's Love Got to Do with It?
+
+📅 2023-05-28 20:25:23
+
+
+# **Goldeneye - Single Edit** / Tina Turner
+
+![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+
+**Album:** Wildest Dreams
+
+📅 2023-05-28 20:19:13
+
+
+# **Rejuvenated** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-28 11:59:23
+
+
+# **Jungle Fever** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-28 11:58:42
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-28 11:58:11
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-28 11:55:33
+
+
+# **I Don't Wanna Fight** / Tina Turner
+
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+
+**Album:** What's Love Got to Do with It?
+
+📅 2023-05-27 20:08:03
+
+
 # **Goldeneye - Single Edit** / Tina Turner
 
 ![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
@@ -47,6 +110,15 @@ Nombre: **lotario1999**
 **Album:** Wildest Dreams
 
 📅 2023-05-27 11:34:06
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-26 12:26:26
 
 
 # **Closing Time** / Leonard Cohen
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Golden Age
 
 📅 2023-05-26 09:04:09
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2023-05-26 08:59:44
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-26 08:54:02
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-26 08:49:42
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-26 08:45:39
-
-
-# **Breakfast In America - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2023-05-25 16:06:59
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-25 16:06:49
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2023-05-25 16:02:53
-
-
-# **Elle et moi** / Lemongrass
-
-![Foto del album: Filmothèque](https://i.scdn.co/image/ab67616d00001e02cb535a2c749af6e4a4a52cba)
-
-**Album:** Filmothèque
-
-📅 2023-05-25 13:19:55
