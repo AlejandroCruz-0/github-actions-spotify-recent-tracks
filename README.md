@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **We Don't Need Another Hero (Thunderdome)** / Tina Turner
+
+![Foto del album: Private Dancer (30th Anniversary Issue)](https://i.scdn.co/image/ab67616d00001e028858cc9df4f43fd5954e5132)
+
+**Album:** Private Dancer (30th Anniversary Issue)
+
+📅 2023-05-28 23:26:38
+
+
+# **Proud Mary** / Tina Turner
+
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+
+**Album:** What's Love Got to Do with It?
+
+📅 2023-05-28 21:49:17
+
+
+# **What's Love Got to Do with It - 2015 Remaster** / Tina Turner
+
+![Foto del album: Private Dancer (30th Anniversary Issue)](https://i.scdn.co/image/ab67616d00001e028858cc9df4f43fd5954e5132)
+
+**Album:** Private Dancer (30th Anniversary Issue)
+
+📅 2023-05-28 21:43:49
+
+
+# **The Best** / Tina Turner
+
+![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
+
+**Album:** Foreign Affair
+
+📅 2023-05-28 21:39:59
+
+
 # **I Don't Wanna Fight** / Tina Turner
 
 ![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2023-05-26 09:20:55
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2023-05-26 09:17:04
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-05-26 09:11:38
-
-
-# **Relight My Fire - Single Version** / Dan Hartman
-
-![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
-
-**Album:** 70s Gems
-
-📅 2023-05-26 09:07:54
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-05-26 09:04:09
