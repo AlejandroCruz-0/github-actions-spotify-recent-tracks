@@ -13,40 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **We Don't Need Another Hero (Thunderdome)** / Tina Turner
-
-![Foto del album: Private Dancer (30th Anniversary Issue)](https://i.scdn.co/image/ab67616d00001e028858cc9df4f43fd5954e5132)
-
-**Album:** Private Dancer (30th Anniversary Issue)
-
-📅 2023-05-28 23:26:38
-
-
-# **Proud Mary** / Tina Turner
+# **I Don't Wanna Fight** / Tina Turner
 
 ![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
 
 **Album:** What's Love Got to Do with It?
 
-📅 2023-05-28 21:49:17
+📅 2023-05-29 19:49:51
 
 
-# **What's Love Got to Do with It - 2015 Remaster** / Tina Turner
+# **Rocky Mountain Way** / Joe Walsh
 
-![Foto del album: Private Dancer (30th Anniversary Issue)](https://i.scdn.co/image/ab67616d00001e028858cc9df4f43fd5954e5132)
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
 
-**Album:** Private Dancer (30th Anniversary Issue)
+**Album:** The Music of Grand Theft Auto IV
 
-📅 2023-05-28 21:43:49
+📅 2023-05-29 16:59:38
 
 
-# **The Best** / Tina Turner
+# **I Want You** / C.J.
 
-![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
 
-**Album:** Foreign Affair
+**Album:** The Music of Grand Theft Auto IV
 
-📅 2023-05-28 21:39:59
+📅 2023-05-29 16:58:45
+
+
+# **What You Get Is What You See** / Tina Turner
+
+![Foto del album: Break Every Rule](https://i.scdn.co/image/ab67616d00001e02642b5e9d9636c51504d5efe2)
+
+**Album:** Break Every Rule
+
+📅 2023-05-29 16:53:52
 
 
 # **I Don't Wanna Fight** / Tina Turner
@@ -55,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** What's Love Got to Do with It?
 
-📅 2023-05-28 20:25:23
+📅 2023-05-29 16:49:19
 
 
 # **Goldeneye - Single Edit** / Tina Turner
@@ -64,130 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** Wildest Dreams
 
-📅 2023-05-28 20:19:13
+📅 2023-05-29 16:43:10
 
 
-# **Rejuvenated** / Cristobal Tapia De Veer
+# **Don't Dream It's Over** / Crowded House
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Crowded House](https://i.scdn.co/image/ab67616d00001e023ce3e2272e25916844f10d86)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Crowded House
 
-📅 2023-05-28 11:59:23
+📅 2023-05-29 13:46:57
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **Don't Bring Me Down** / Electric Light Orchestra
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Discovery](https://i.scdn.co/image/ab67616d00001e02c18cc9d6fcea1478b1257678)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Discovery
 
-📅 2023-05-28 11:58:42
+📅 2023-05-29 13:28:40
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Rock the Casbah - Remastered** / The Clash
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Combat Rock (Remastered)
 
-📅 2023-05-28 11:58:11
+📅 2023-05-29 13:24:35
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Miss You - Remastered** / The Rolling Stones
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Some Girls](https://i.scdn.co/image/ab67616d00001e0205c7aec05eabf142cc33b936)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Some Girls
 
-📅 2023-05-28 11:55:33
+📅 2023-05-29 13:20:53
 
 
-# **I Don't Wanna Fight** / Tina Turner
+# **Never Tear Us Apart** / INXS
 
-![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
 
-**Album:** What's Love Got to Do with It?
+**Album:** Kick (Remastered 2011)
 
-📅 2023-05-27 20:08:03
+📅 2023-05-29 13:16:04
 
 
-# **Goldeneye - Single Edit** / Tina Turner
+# **Breakfast In America - 2010 Remastered** / Supertramp
 
-![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Wildest Dreams
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-05-27 20:08:01
+📅 2023-05-29 13:12:58
 
 
-# **Steamy Windows** / Tina Turner
+# **How Long** / Ace
 
-![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
+![Foto del album: Five-A-Side](https://i.scdn.co/image/ab67616d00001e0230f294a645cd542afd5af5b2)
 
-**Album:** Foreign Affair
+**Album:** Five-A-Side
 
-📅 2023-05-27 11:46:56
+📅 2023-05-29 13:10:19
 
 
-# **I Don't Wanna Fight** / Tina Turner
+# **Golden Brown** / The Stranglers
 
-![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+![Foto del album: La Folie](https://i.scdn.co/image/ab67616d00001e02a713f9b06accedba5d963d61)
 
-**Album:** What's Love Got to Do with It?
+**Album:** La Folie
 
-📅 2023-05-27 11:40:15
+📅 2023-05-29 13:06:54
 
 
-# **Goldeneye - Single Edit** / Tina Turner
+# **Sledgehammer** / Peter Gabriel
 
-![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+![Foto del album: So (Remastered)](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
 
-**Album:** Wildest Dreams
+**Album:** So (Remastered)
 
-📅 2023-05-27 11:34:06
+📅 2023-05-29 13:03:27
 
 
-# **Duvet** / bôa
+# **Blue Monday '88** / New Order
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Best of New Order](https://i.scdn.co/image/ab67616d00001e02c621e025f32cc28a1ec86e3b)
 
-**Album:** Twilight
+**Album:** The Best of New Order
 
-📅 2023-05-26 12:26:26
+📅 2023-05-29 12:58:13
 
 
-# **Closing Time** / Leonard Cohen
+# **Turn to Stone** / Electric Light Orchestra
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: Out of the Blue](https://i.scdn.co/image/ab67616d00001e028c4e95986c803791125e8991)
 
-**Album:** The Future
+**Album:** Out of the Blue
 
-📅 2023-05-26 09:40:24
+📅 2023-05-29 12:54:07
 
 
-# **Electric Worry** / Clutch
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** From Beale Street to Oblivion
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-05-26 09:30:17
+📅 2023-05-29 12:50:18
 
 
-# **Will Do** / TV On The Radio
+# **Sledgehammer - Remastered** / Peter Gabriel
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
 
-**Album:** Nine Types of Light
+**Album:** So (Special Edition)
 
-📅 2023-05-26 09:25:02
+📅 2023-05-29 12:44:26
 
 
-# **Congregation** / Low
+# **Sledgehammer - Remastered** / Peter Gabriel
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
 
-**Album:** Ones and Sixes
+**Album:** So (Special Edition)
 
-📅 2023-05-26 09:20:55
+📅 2023-05-29 12:28:31
