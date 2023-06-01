@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Goldeneye - Single Edit** / Tina Turner
-
-![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
-
-**Album:** Wildest Dreams
-
-📅 2023-05-30 22:55:11
-
-
-# **Book, Saddle, & Go** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:56:24
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:52:38
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:48:16
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:43:54
-
-
-# **D.C. Sound Attack!** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:40:23
-
-
-# **Mr. Freedom** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:35:44
-
-
-# **Crucial Velocity** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:33:00
-
-
-# **Earth Rocker** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2023-05-30 17:28:59
-
-
-# **Mysterious - Shades Of Green Remix** / Hooverphonic
-
-![Foto del album: Mysterious](https://i.scdn.co/image/ab67616d00001e02e4b8761db2ec468d38fc89cb)
-
-**Album:** Mysterious
-
-📅 2023-05-30 14:03:21
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-05-30 14:03:00
-
-
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
-
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
-
-**Album:** Galaxias
-
-📅 2023-05-30 13:58:20
-
-
-# **Drink & Industry** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2023-05-30 13:54:23
-
-
 # **Breakfast In America - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-05-30 13:52:12
+📅 2023-05-31 18:32:02
 
 
-# **Out Of Sight** / Hooverphonic
+# **Far From Any Road** / The Handsome Family
+
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+
+**Album:** Singing Bones
+
+📅 2023-05-31 18:29:16
+
+
+# **The Passenger** / Iggy Pop
+
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+
+**Album:** Lust For Life
+
+📅 2023-05-31 18:26:29
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-31 18:11:08
+
+
+# **Intergalactic - Remastered 2009** / Beastie Boys
+
+![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
+
+**Album:** Hello Nasty (Deluxe Edition/Remastered)
+
+📅 2023-05-31 18:07:45
+
+
+# **I Want You** / C.J.
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-05-31 18:03:34
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-31 18:00:07
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-05-31 15:46:28
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-05-31 15:35:54
+
+
+# **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-05-30 13:49:32
+📅 2023-05-31 15:33:15
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **I Want You** / C.J.
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
 
-**Album:** Saudade
+**Album:** The Music of Grand Theft Auto IV
 
-📅 2023-05-30 13:45:35
-
-
-# **Volcano Girls** / Veruca Salt
-
-![Foto del album: Eight Arms To Hold You](https://i.scdn.co/image/ab67616d00001e0280d0a4548d430c84888ef1cc)
-
-**Album:** Eight Arms To Hold You
-
-📅 2023-05-30 13:22:26
+📅 2023-05-31 15:29:31
 
 
-# **Special - 2018 - Remaster** / Garbage
+# **Scoring** / bôa
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02f14d41b4c7e37e090774a639)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Twilight
 
-📅 2023-05-30 13:21:59
-
-
-# **Smoke Banshee** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2023-05-30 13:18:15
+📅 2023-05-31 14:59:05
 
 
-# **Unto the Breach** / Clutch
+# **Si Estás Pensando Mal de Mí** / Los Bunkers
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: La Velocidad de la Luz](https://i.scdn.co/image/ab67616d00001e02a5d2418a94c6d9ea86ed906a)
 
-**Album:** Earth Rocker
+**Album:** La Velocidad de la Luz
 
-📅 2023-05-30 13:14:54
+📅 2023-05-31 12:01:23
+
+
+# **Quizás con quien** / Los Tres
+
+![Foto del album: Quizás con quien](https://i.scdn.co/image/ab67616d00001e02f0ad0222ea669794c259b9d3)
+
+**Album:** Quizás con quien
+
+📅 2023-05-31 12:00:35
+
+
+# **Carnaval** / Lucybell
+
+![Foto del album: Viajar](https://i.scdn.co/image/ab67616d00001e02f4114e0a24bc274ddbaf6bc0)
+
+**Album:** Viajar
+
+📅 2023-05-31 11:56:24
+
+
+# **Déjate Caer** / Los Tres
+
+![Foto del album: La Espada & la Pared](https://i.scdn.co/image/ab67616d00001e0278310de37af0875569acc411)
+
+**Album:** La Espada & la Pared
+
+📅 2023-05-31 11:51:59
+
+
+# **Afroman** / Plastilina Mosh
+
+![Foto del album: Aquamosh](https://i.scdn.co/image/ab67616d00001e02ef93f4ddf5a296281f88dbb8)
+
+**Album:** Aquamosh
+
+📅 2023-05-31 11:48:36
+
+
+# **Puntos Cardinales** / Café Tacvba
+
+![Foto del album: Cuatro Caminos](https://i.scdn.co/image/ab67616d00001e02624927252564ef4625307897)
+
+**Album:** Cuatro Caminos
+
+📅 2023-05-31 11:44:56
+
+
+# **Peligro** / Ely Guerra
+
+![Foto del album: Pa´Morirse De Amor](https://i.scdn.co/image/ab67616d00001e0237640fbe723ff8043bdc4b48)
+
+**Album:** Pa´Morirse De Amor
+
+📅 2023-05-31 11:40:13
+
+
+# **Bolero Falaz** / Aterciopelados
+
+![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
+
+**Album:** Originales - 20 Exitos
+
+📅 2023-05-31 11:36:29
