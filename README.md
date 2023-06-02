@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Breakfast In America - 2010 Remastered** / Supertramp
+# **Trip to California** / Lucian|Sylvie Cox
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Trip to California](https://i.scdn.co/image/ab67616d00001e021b1b3807e9f68ace00975605)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Trip to California
 
-📅 2023-05-31 18:32:02
+📅 2023-06-01 18:59:50
 
 
-# **Far From Any Road** / The Handsome Family
+# **Tranz** / Gorillaz
 
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+![Foto del album: The Now Now](https://i.scdn.co/image/ab67616d00001e024d9f7b88e82db31d13ac6668)
 
-**Album:** Singing Bones
+**Album:** The Now Now
 
-📅 2023-05-31 18:29:16
+📅 2023-06-01 18:57:35
 
 
-# **The Passenger** / Iggy Pop
+# **April** / Caravan Palace
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Lust For Life
+**Album:** Chronologic
 
-📅 2023-05-31 18:26:29
+📅 2023-06-01 18:54:51
 
 
-# **Duvet** / bôa
+# **Ghosts** / Caravan Palace
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Twilight
+**Album:** Chronologic
 
-📅 2023-05-31 18:11:08
+📅 2023-06-01 18:51:06
 
 
-# **Intergalactic - Remastered 2009** / Beastie Boys
+# **Supersonics** / Caravan Palace
 
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
+**Album:** Chronologic
 
-📅 2023-05-31 18:07:45
+📅 2023-06-01 18:49:34
 
 
-# **I Want You** / C.J.
+# **Leena** / Caravan Palace
 
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The Music of Grand Theft Auto IV
+**Album:** Chronologic
 
-📅 2023-05-31 18:03:34
+📅 2023-06-01 18:46:11
 
 
-# **Scoring** / bôa
+# **Waterguns** / Caravan Palace|Tom Bailey
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Twilight
+**Album:** Chronologic
 
-📅 2023-05-31 18:00:07
+📅 2023-06-01 18:42:26
 
 
-# **Deeply** / bôa
+# **Fargo** / Caravan Palace
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Twilight
+**Album:** Chronologic
 
-📅 2023-05-31 15:46:28
+📅 2023-06-01 18:38:21
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Plume** / Caravan Palace
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Chronologic
 
-📅 2023-05-31 15:35:54
+📅 2023-06-01 18:37:01
 
 
-# **Mad About You** / Hooverphonic
+# **Melancolia** / Caravan Palace
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The Magnificent Tree
+**Album:** Chronologic
 
-📅 2023-05-31 15:33:15
+📅 2023-06-01 18:33:54
 
 
-# **I Want You** / C.J.
+# **Moonshine** / Caravan Palace
 
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** The Music of Grand Theft Auto IV
+**Album:** Chronologic
 
-📅 2023-05-31 15:29:31
+📅 2023-06-01 18:29:37
 
 
-# **Scoring** / bôa
+# **About You** / Caravan Palace|Charles X
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Twilight
+**Album:** Chronologic
 
-📅 2023-05-31 14:59:05
+📅 2023-06-01 18:26:02
 
 
-# **Si Estás Pensando Mal de Mí** / Los Bunkers
+# **April** / Caravan Palace
 
-![Foto del album: La Velocidad de la Luz](https://i.scdn.co/image/ab67616d00001e02a5d2418a94c6d9ea86ed906a)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** La Velocidad de la Luz
+**Album:** Chronologic
 
-📅 2023-05-31 12:01:23
+📅 2023-06-01 12:40:27
 
 
-# **Quizás con quien** / Los Tres
+# **Ghosts** / Caravan Palace
 
-![Foto del album: Quizás con quien](https://i.scdn.co/image/ab67616d00001e02f0ad0222ea669794c259b9d3)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Quizás con quien
+**Album:** Chronologic
 
-📅 2023-05-31 12:00:35
+📅 2023-06-01 12:39:39
 
 
-# **Carnaval** / Lucybell
+# **Supersonics** / Caravan Palace
 
-![Foto del album: Viajar](https://i.scdn.co/image/ab67616d00001e02f4114e0a24bc274ddbaf6bc0)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Viajar
+**Album:** Chronologic
 
-📅 2023-05-31 11:56:24
+📅 2023-06-01 12:38:11
 
 
-# **Déjate Caer** / Los Tres
+# **Leena** / Caravan Palace
 
-![Foto del album: La Espada & la Pared](https://i.scdn.co/image/ab67616d00001e0278310de37af0875569acc411)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** La Espada & la Pared
+**Album:** Chronologic
 
-📅 2023-05-31 11:51:59
+📅 2023-06-01 12:34:48
 
 
-# **Afroman** / Plastilina Mosh
+# **Waterguns** / Caravan Palace|Tom Bailey
 
-![Foto del album: Aquamosh](https://i.scdn.co/image/ab67616d00001e02ef93f4ddf5a296281f88dbb8)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Aquamosh
+**Album:** Chronologic
 
-📅 2023-05-31 11:48:36
+📅 2023-06-01 12:31:03
 
 
-# **Puntos Cardinales** / Café Tacvba
+# **Fargo** / Caravan Palace
 
-![Foto del album: Cuatro Caminos](https://i.scdn.co/image/ab67616d00001e02624927252564ef4625307897)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Cuatro Caminos
+**Album:** Chronologic
 
-📅 2023-05-31 11:44:56
+📅 2023-06-01 12:27:32
 
 
-# **Peligro** / Ely Guerra
+# **Plume** / Caravan Palace
 
-![Foto del album: Pa´Morirse De Amor](https://i.scdn.co/image/ab67616d00001e0237640fbe723ff8043bdc4b48)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Pa´Morirse De Amor
+**Album:** Chronologic
 
-📅 2023-05-31 11:40:13
+📅 2023-06-01 12:26:11
 
 
-# **Bolero Falaz** / Aterciopelados
+# **Melancolia** / Caravan Palace
 
-![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Originales - 20 Exitos
+**Album:** Chronologic
 
-📅 2023-05-31 11:36:29
+📅 2023-06-01 12:23:06
