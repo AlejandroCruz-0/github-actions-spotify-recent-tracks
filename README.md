@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Trip to California** / Lucian|Sylvie Cox
+# **You Give Me Something** / Jamiroquai
 
-![Foto del album: Trip to California](https://i.scdn.co/image/ab67616d00001e021b1b3807e9f68ace00975605)
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
 
-**Album:** Trip to California
+**Album:** A Funk Odyssey
 
-📅 2023-06-01 18:59:50
+📅 2023-06-02 19:29:33
 
 
-# **Tranz** / Gorillaz
+# **Little L** / Jamiroquai
 
-![Foto del album: The Now Now](https://i.scdn.co/image/ab67616d00001e024d9f7b88e82db31d13ac6668)
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
 
-**Album:** The Now Now
+**Album:** A Funk Odyssey
 
-📅 2023-06-01 18:57:35
+📅 2023-06-02 18:48:02
 
 
-# **April** / Caravan Palace
+# **Canned Heat** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Chronologic
+**Album:** Synkronized
 
-📅 2023-06-01 18:54:51
+📅 2023-06-02 18:43:06
 
 
-# **Ghosts** / Caravan Palace
+# **Canned Heat** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Chronologic
+**Album:** Synkronized
 
-📅 2023-06-01 18:51:06
+📅 2023-06-02 12:12:47
 
 
-# **Supersonics** / Caravan Palace
+# **Cosmic Girl - Remastered** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
 
-**Album:** Chronologic
+**Album:** Travelling Without Moving (Remastered)
 
-📅 2023-06-01 18:49:34
+📅 2023-06-02 12:12:41
 
 
-# **Leena** / Caravan Palace
+# **Canned Heat** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Chronologic
+**Album:** Synkronized
 
-📅 2023-06-01 18:46:11
+📅 2023-06-02 12:07:43
 
 
-# **Waterguns** / Caravan Palace|Tom Bailey
+# **Points of Authority** / Linkin Park
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
 
-**Album:** Chronologic
+**Album:** Hybrid Theory (Bonus Edition)
 
-📅 2023-06-01 18:42:26
+📅 2023-06-02 11:14:38
 
 
-# **Fargo** / Caravan Palace
+# **Are You Gonna Go My Way** / Lenny Kravitz
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Are You Gonna Go My Way](https://i.scdn.co/image/ab67616d00001e02542d87e4d1512bf7facb3860)
 
-**Album:** Chronologic
+**Album:** Are You Gonna Go My Way
 
-📅 2023-06-01 18:38:21
+📅 2023-06-02 10:28:37
 
 
-# **Plume** / Caravan Palace
+# **Bonito** / Jarabe De Palo
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Bonito](https://i.scdn.co/image/ab67616d00001e024c60ea841024590b90908755)
 
-**Album:** Chronologic
+**Album:** Bonito
 
-📅 2023-06-01 18:37:01
+📅 2023-06-02 10:15:18
 
 
-# **Melancolia** / Caravan Palace
+# **Me haces tanto bien** / Amistades Peligrosas
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: La Ultima Tentación](https://i.scdn.co/image/ab67616d00001e02527e09404841b0b5f4dcd140)
 
-**Album:** Chronologic
+**Album:** La Ultima Tentación
 
-📅 2023-06-01 18:33:54
+📅 2023-06-02 10:11:04
 
 
-# **Moonshine** / Caravan Palace
+# **Your Woman** / White Town
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Women In Technology](https://i.scdn.co/image/ab67616d00001e02f1ad059f340b79a88f85ae64)
 
-**Album:** Chronologic
+**Album:** Women In Technology
 
-📅 2023-06-01 18:29:37
+📅 2023-06-02 10:07:07
 
 
-# **About You** / Caravan Palace|Charles X
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Chronologic
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-06-01 18:26:02
+📅 2023-06-02 10:02:47
 
 
-# **April** / Caravan Palace
+# **Glory Box** / Portishead
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Chronologic
+**Album:** Dummy
 
-📅 2023-06-01 12:40:27
+📅 2023-06-02 09:58:13
 
 
-# **Ghosts** / Caravan Palace
+# **Erase / Rewind** / The Cardigans
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Chronologic
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-06-01 12:39:39
+📅 2023-06-02 09:53:04
 
 
-# **Supersonics** / Caravan Palace
+# **You Give Me Something** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
 
-**Album:** Chronologic
+**Album:** A Funk Odyssey
 
-📅 2023-06-01 12:38:11
+📅 2023-06-02 09:49:25
 
 
-# **Leena** / Caravan Palace
+# **Little L** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
 
-**Album:** Chronologic
+**Album:** A Funk Odyssey
 
-📅 2023-06-01 12:34:48
+📅 2023-06-02 09:45:09
 
 
-# **Waterguns** / Caravan Palace|Tom Bailey
+# **Canned Heat** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Chronologic
+**Album:** Synkronized
 
-📅 2023-06-01 12:31:03
+📅 2023-06-02 09:40:14
 
 
-# **Fargo** / Caravan Palace
+# **Cosmic Girl - Remastered** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
 
-**Album:** Chronologic
+**Album:** Travelling Without Moving (Remastered)
 
-📅 2023-06-01 12:27:32
+📅 2023-06-02 09:34:42
 
 
-# **Plume** / Caravan Palace
+# **Virtual Insanity - Remastered** / Jamiroquai
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Chronologic
+**Album:** Driving Songs
 
-📅 2023-06-01 12:26:11
+📅 2023-06-02 09:30:37
 
 
-# **Melancolia** / Caravan Palace
+# **Passin Through** / Jack and the Other
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Circles](https://i.scdn.co/image/ab67616d00001e02e419eff3aa9fbfd4b449ca34)
 
-**Album:** Chronologic
+**Album:** Circles
 
-📅 2023-06-01 12:23:06
+📅 2023-06-01 19:01:05
