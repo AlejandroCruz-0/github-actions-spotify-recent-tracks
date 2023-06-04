@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Canned Heat** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2023-06-03 10:37:24
+
+
 # **You Give Me Something** / Jamiroquai
 
 ![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Driving Songs
 
 📅 2023-06-02 09:30:37
-
-
-# **Passin Through** / Jack and the Other
-
-![Foto del album: Circles](https://i.scdn.co/image/ab67616d00001e02e419eff3aa9fbfd4b449ca34)
-
-**Album:** Circles
-
-📅 2023-06-01 19:01:05
