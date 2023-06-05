@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Little L** / Jamiroquai
+
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
+
+**Album:** A Funk Odyssey
+
+📅 2023-06-03 10:47:27
+
+
 # **Canned Heat** / Jamiroquai
 
 ![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Travelling Without Moving (Remastered)
 
 📅 2023-06-02 09:34:42
-
-
-# **Virtual Insanity - Remastered** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2023-06-02 09:30:37
