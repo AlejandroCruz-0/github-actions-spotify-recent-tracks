@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Canned Heat** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2023-06-04 10:00:14
+
+
 # **Little L** / Jamiroquai
 
 ![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Synkronized
 
 📅 2023-06-02 09:40:14
-
-
-# **Cosmic Girl - Remastered** / Jamiroquai
-
-![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
-
-**Album:** Travelling Without Moving (Remastered)
-
-📅 2023-06-02 09:34:42
