@@ -13,31 +13,121 @@ Nombre: **lotario1999**
 
 
 
-# **Canned Heat** / Jamiroquai
+# **Too Young to Die** / Jamiroquai
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Emergency on Planet Earth (Remastered)](https://i.scdn.co/image/ab67616d00001e02b6f13e40fbd883767da606bc)
 
-**Album:** Synkronized
+**Album:** Emergency on Planet Earth (Remastered)
 
-📅 2023-06-04 10:00:14
+📅 2023-06-05 18:26:18
 
 
-# **Little L** / Jamiroquai
+# **Break My Heart / Cosmic Girl (Dimitri From Paris Edit) [Mixed]** / Dua Lipa|The Blessed Madonna|Jamiroquai|Dimitri From Paris
+
+![Foto del album: Club Future Nostalgia (DJ Mix)](https://i.scdn.co/image/ab67616d00001e02ac5db6adf5520c8eef3fd65e)
+
+**Album:** Club Future Nostalgia (DJ Mix)
+
+📅 2023-06-05 18:20:11
+
+
+# **Corner of the Earth** / Jamiroquai
 
 ![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
 
 **Album:** A Funk Odyssey
 
-📅 2023-06-03 10:47:27
+📅 2023-06-05 18:17:11
 
 
-# **Canned Heat** / Jamiroquai
+# **Didjital Vibrations - Remastered** / Jamiroquai
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
 
-**Album:** Synkronized
+**Album:** Travelling Without Moving (Remastered)
 
-📅 2023-06-03 10:37:24
+📅 2023-06-05 18:11:31
+
+
+# **White Knuckle Ride** / Jamiroquai
+
+![Foto del album: Rock Dust Light Star (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e83cc2b7bfc379d4a959bdcd)
+
+**Album:** Rock Dust Light Star (Deluxe Version)
+
+📅 2023-06-05 18:05:41
+
+
+# **When You Gonna Learn?** / Jamiroquai
+
+![Foto del album: Emergency on Planet Earth (Remastered)](https://i.scdn.co/image/ab67616d00001e02b6f13e40fbd883767da606bc)
+
+**Album:** Emergency on Planet Earth (Remastered)
+
+📅 2023-06-05 18:02:07
+
+
+# **Talullah** / Jamiroquai
+
+![Foto del album: Dynamite](https://i.scdn.co/image/ab67616d00001e02951fbcfd4b08a3a19f158ab5)
+
+**Album:** Dynamite
+
+📅 2023-06-05 17:58:16
+
+
+# **Love Foolosophy - Radio Edit** / Jamiroquai
+
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
+
+**Album:** A Funk Odyssey
+
+📅 2023-06-05 17:52:13
+
+
+# **Drifting Along - Remastered** / Jamiroquai
+
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
+
+**Album:** Travelling Without Moving (Remastered)
+
+📅 2023-06-05 17:48:29
+
+
+# **Space Cowboy** / Jamiroquai
+
+![Foto del album: The Return of the Space Cowboy (Remastered)](https://i.scdn.co/image/ab67616d00001e0215b3727c6abdcfe4826f91ff)
+
+**Album:** The Return of the Space Cowboy (Remastered)
+
+📅 2023-06-05 17:44:22
+
+
+# **Cloud 9** / Jamiroquai
+
+![Foto del album: Automaton](https://i.scdn.co/image/ab67616d00001e026402119159b968bdb926ea0f)
+
+**Album:** Automaton
+
+📅 2023-06-05 17:37:55
+
+
+# **Alright - Remastered** / Jamiroquai
+
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
+
+**Album:** Travelling Without Moving (Remastered)
+
+📅 2023-06-05 17:33:58
+
+
+# **Seven Days in Sunny June** / Jamiroquai
+
+![Foto del album: Dynamite](https://i.scdn.co/image/ab67616d00001e02951fbcfd4b08a3a19f158ab5)
+
+**Album:** Dynamite
+
+📅 2023-06-05 17:29:33
 
 
 # **You Give Me Something** / Jamiroquai
@@ -46,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** A Funk Odyssey
 
-📅 2023-06-02 19:29:33
+📅 2023-06-05 17:25:35
 
 
 # **Little L** / Jamiroquai
@@ -55,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** A Funk Odyssey
 
-📅 2023-06-02 18:48:02
+📅 2023-06-05 17:22:14
 
 
 # **Canned Heat** / Jamiroquai
@@ -64,16 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Synkronized
 
-📅 2023-06-02 18:43:06
-
-
-# **Canned Heat** / Jamiroquai
-
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
-
-**Album:** Synkronized
-
-📅 2023-06-02 12:12:47
+📅 2023-06-05 17:17:19
 
 
 # **Cosmic Girl - Remastered** / Jamiroquai
@@ -82,112 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Travelling Without Moving (Remastered)
 
-📅 2023-06-02 12:12:41
+📅 2023-06-05 17:11:46
 
 
-# **Canned Heat** / Jamiroquai
+# **Virtual Insanity - Remastered** / Jamiroquai
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Synkronized
+**Album:** Driving Songs
 
-📅 2023-06-02 12:07:43
-
-
-# **Points of Authority** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2023-06-02 11:14:38
+📅 2023-06-05 17:07:42
 
 
-# **Are You Gonna Go My Way** / Lenny Kravitz
+# **Deeply** / bôa
 
-![Foto del album: Are You Gonna Go My Way](https://i.scdn.co/image/ab67616d00001e02542d87e4d1512bf7facb3860)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Are You Gonna Go My Way
+**Album:** Twilight
 
-📅 2023-06-02 10:28:37
-
-
-# **Bonito** / Jarabe De Palo
-
-![Foto del album: Bonito](https://i.scdn.co/image/ab67616d00001e024c60ea841024590b90908755)
-
-**Album:** Bonito
-
-📅 2023-06-02 10:15:18
+📅 2023-06-05 16:56:58
 
 
-# **Me haces tanto bien** / Amistades Peligrosas
+# **Scoring** / bôa
 
-![Foto del album: La Ultima Tentación](https://i.scdn.co/image/ab67616d00001e02527e09404841b0b5f4dcd140)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** La Ultima Tentación
+**Album:** Twilight
 
-📅 2023-06-02 10:11:04
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women In Technology](https://i.scdn.co/image/ab67616d00001e02f1ad059f340b79a88f85ae64)
-
-**Album:** Women In Technology
-
-📅 2023-06-02 10:07:07
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-06-02 10:02:47
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2023-06-02 09:58:13
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-06-02 09:53:04
-
-
-# **You Give Me Something** / Jamiroquai
-
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
-
-**Album:** A Funk Odyssey
-
-📅 2023-06-02 09:49:25
-
-
-# **Little L** / Jamiroquai
-
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
-
-**Album:** A Funk Odyssey
-
-📅 2023-06-02 09:45:09
-
-
-# **Canned Heat** / Jamiroquai
-
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
-
-**Album:** Synkronized
-
-📅 2023-06-02 09:40:14
+📅 2023-06-05 16:56:49
