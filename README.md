@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **You Want It Darker** / Leonard Cohen
+
+![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+
+**Album:** You Want It Darker
+
+📅 2023-06-07 00:09:01
+
+
+# **Nevermind** / Leonard Cohen
+
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
+
+**Album:** Popular Problems
+
+📅 2023-06-07 00:03:32
+
+
 # **Breakfast In America - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2023-06-06 16:05:12
-
-
-# **Stolen Car** / Beth Orton
-
-![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
-
-**Album:** Central Reservation
-
-📅 2023-06-06 16:01:20
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-06-06 15:55:54
