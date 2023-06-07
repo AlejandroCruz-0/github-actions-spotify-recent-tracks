@@ -13,139 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Too Young to Die** / Jamiroquai
+# **Breakfast In America - 2010 Remastered** / Supertramp
 
-![Foto del album: Emergency on Planet Earth (Remastered)](https://i.scdn.co/image/ab67616d00001e02b6f13e40fbd883767da606bc)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Emergency on Planet Earth (Remastered)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-06-05 18:26:18
+📅 2023-06-06 18:33:52
 
 
-# **Break My Heart / Cosmic Girl (Dimitri From Paris Edit) [Mixed]** / Dua Lipa|The Blessed Madonna|Jamiroquai|Dimitri From Paris
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Club Future Nostalgia (DJ Mix)](https://i.scdn.co/image/ab67616d00001e02ac5db6adf5520c8eef3fd65e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Club Future Nostalgia (DJ Mix)
+**Album:** The Magnificent Tree
 
-📅 2023-06-05 18:20:11
+📅 2023-06-06 18:31:12
 
 
-# **Corner of the Earth** / Jamiroquai
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** A Funk Odyssey
+**Album:** Saudade
 
-📅 2023-06-05 18:17:11
+📅 2023-06-06 18:27:11
 
 
-# **Didjital Vibrations - Remastered** / Jamiroquai
+# **I Love You** / Woodkid
 
-![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Travelling Without Moving (Remastered)
+**Album:** The Golden Age
 
-📅 2023-06-05 18:11:31
-
-
-# **White Knuckle Ride** / Jamiroquai
-
-![Foto del album: Rock Dust Light Star (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e02e83cc2b7bfc379d4a959bdcd)
-
-**Album:** Rock Dust Light Star (Deluxe Version)
-
-📅 2023-06-05 18:05:41
-
-
-# **When You Gonna Learn?** / Jamiroquai
-
-![Foto del album: Emergency on Planet Earth (Remastered)](https://i.scdn.co/image/ab67616d00001e02b6f13e40fbd883767da606bc)
-
-**Album:** Emergency on Planet Earth (Remastered)
-
-📅 2023-06-05 18:02:07
-
-
-# **Talullah** / Jamiroquai
-
-![Foto del album: Dynamite](https://i.scdn.co/image/ab67616d00001e02951fbcfd4b08a3a19f158ab5)
-
-**Album:** Dynamite
-
-📅 2023-06-05 17:58:16
-
-
-# **Love Foolosophy - Radio Edit** / Jamiroquai
-
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
-
-**Album:** A Funk Odyssey
-
-📅 2023-06-05 17:52:13
-
-
-# **Drifting Along - Remastered** / Jamiroquai
-
-![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
-
-**Album:** Travelling Without Moving (Remastered)
-
-📅 2023-06-05 17:48:29
-
-
-# **Space Cowboy** / Jamiroquai
-
-![Foto del album: The Return of the Space Cowboy (Remastered)](https://i.scdn.co/image/ab67616d00001e0215b3727c6abdcfe4826f91ff)
-
-**Album:** The Return of the Space Cowboy (Remastered)
-
-📅 2023-06-05 17:44:22
-
-
-# **Cloud 9** / Jamiroquai
-
-![Foto del album: Automaton](https://i.scdn.co/image/ab67616d00001e026402119159b968bdb926ea0f)
-
-**Album:** Automaton
-
-📅 2023-06-05 17:37:55
-
-
-# **Alright - Remastered** / Jamiroquai
-
-![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
-
-**Album:** Travelling Without Moving (Remastered)
-
-📅 2023-06-05 17:33:58
-
-
-# **Seven Days in Sunny June** / Jamiroquai
-
-![Foto del album: Dynamite](https://i.scdn.co/image/ab67616d00001e02951fbcfd4b08a3a19f158ab5)
-
-**Album:** Dynamite
-
-📅 2023-06-05 17:29:33
-
-
-# **You Give Me Something** / Jamiroquai
-
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
-
-**Album:** A Funk Odyssey
-
-📅 2023-06-05 17:25:35
-
-
-# **Little L** / Jamiroquai
-
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
-
-**Album:** A Funk Odyssey
-
-📅 2023-06-05 17:22:14
+📅 2023-06-06 18:00:04
 
 
 # **Canned Heat** / Jamiroquai
@@ -154,40 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** Synkronized
 
-📅 2023-06-05 17:17:19
+📅 2023-06-06 17:57:19
 
 
-# **Cosmic Girl - Remastered** / Jamiroquai
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Travelling Without Moving (Remastered)
+**Album:** The Magnificent Tree
 
-📅 2023-06-05 17:11:46
-
-
-# **Virtual Insanity - Remastered** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2023-06-05 17:07:42
+📅 2023-06-06 17:51:47
 
 
-# **Deeply** / bôa
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2023-06-05 16:56:58
+📅 2023-06-06 16:47:28
 
 
-# **Scoring** / bôa
+# **Intergalactic - Remastered 2009** / Beastie Boys
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
 
-**Album:** Twilight
+**Album:** Hello Nasty (Deluxe Edition/Remastered)
 
-📅 2023-06-05 16:56:49
+📅 2023-06-06 16:47:01
+
+
+# **I Want You** / C.J.
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-06-06 16:43:09
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-06-06 16:32:27
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-06-06 16:32:13
+
+
+# **Bottle Up And Explode!** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2023-06-06 16:28:27
+
+
+# **The Suburbs** / Arcade Fire
+
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+
+**Album:** The Suburbs (Deluxe)
+
+📅 2023-06-06 16:25:29
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-06-06 16:20:13
+
+
+# **Semi-Automatic** / O Mer
+
+![Foto del album: Everything Is Everyone's Fault](https://i.scdn.co/image/ab67616d00001e02057d624209422fb2c1929c2f)
+
+**Album:** Everything Is Everyone's Fault
+
+📅 2023-06-06 16:14:39
+
+
+# **Holding On** / Aloboi
+
+![Foto del album: Holding on](https://i.scdn.co/image/ab67616d00001e0292041d2058b7c44dc86af399)
+
+**Album:** Holding on
+
+📅 2023-06-06 16:10:17
+
+
+# **Ode to Odd** / 20syl
+
+![Foto del album: 36 (Beats & Types)](https://i.scdn.co/image/ab67616d00001e02872e9ffacf8b5e611710968a)
+
+**Album:** 36 (Beats & Types)
+
+📅 2023-06-06 16:06:13
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-06-06 16:05:12
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2023-06-06 16:01:20
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-06-06 15:55:54
