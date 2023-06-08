@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Hallelujah** / Leonard Cohen
+
+![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+
+**Album:** Various Positions
+
+📅 2023-06-07 21:09:30
+
+
+# **Night Comes On** / Leonard Cohen
+
+![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+
+**Album:** Various Positions
+
+📅 2023-06-07 21:04:52
+
+
+# **The Law** / Leonard Cohen
+
+![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+
+**Album:** Various Positions
+
+📅 2023-06-07 21:00:11
+
+
+# **Coming Back to You** / Leonard Cohen
+
+![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+
+**Album:** Various Positions
+
+📅 2023-06-07 20:55:45
+
+
+# **Dance Me to the End of Love** / Leonard Cohen
+
+![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+
+**Album:** Various Positions
+
+📅 2023-06-07 20:52:12
+
+
+# **Nevermind** / Leonard Cohen
+
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
+
+**Album:** Popular Problems
+
+📅 2023-06-07 20:47:06
+
+
 # **In My Secret Life** / Leonard Cohen
 
 ![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hello Nasty (Deluxe Edition/Remastered)
 
 📅 2023-06-06 16:47:01
-
-
-# **I Want You** / C.J.
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-06-06 16:43:09
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-06-06 16:32:27
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-06-06 16:32:13
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-06-06 16:28:27
-
-
-# **The Suburbs** / Arcade Fire
-
-![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
-
-**Album:** The Suburbs (Deluxe)
-
-📅 2023-06-06 16:25:29
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-06-06 16:20:13
