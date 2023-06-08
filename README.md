@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **In My Secret Life** / Leonard Cohen
+
+![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
+
+**Album:** Ten New Songs
+
+📅 2023-06-07 20:41:48
+
+
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+
+**Album:** The Future
+
+📅 2023-06-07 20:36:53
+
+
+# **You Want It Darker** / Leonard Cohen
+
+![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+
+**Album:** You Want It Darker
+
+📅 2023-06-07 20:30:02
+
+
 # **You Want It Darker** / Leonard Cohen
 
 ![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
@@ -29,6 +56,15 @@ Nombre: **lotario1999**
 **Album:** Popular Problems
 
 📅 2023-06-07 00:03:32
+
+
+# **Drink & Industry** / Dabu|Simon Swerwer
+
+![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+
+**Album:** Dwarf Fortress (Original Game Soundtrack)
+
+📅 2023-06-06 18:35:33
 
 
 # **Breakfast In America - 2010 Remastered** / Supertramp
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2023-06-06 16:20:13
-
-
-# **Semi-Automatic** / O Mer
-
-![Foto del album: Everything Is Everyone's Fault](https://i.scdn.co/image/ab67616d00001e02057d624209422fb2c1929c2f)
-
-**Album:** Everything Is Everyone's Fault
-
-📅 2023-06-06 16:14:39
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding on](https://i.scdn.co/image/ab67616d00001e0292041d2058b7c44dc86af399)
-
-**Album:** Holding on
-
-📅 2023-06-06 16:10:17
-
-
-# **Ode to Odd** / 20syl
-
-![Foto del album: 36 (Beats & Types)](https://i.scdn.co/image/ab67616d00001e02872e9ffacf8b5e611710968a)
-
-**Album:** 36 (Beats & Types)
-
-📅 2023-06-06 16:06:13
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-06-06 16:05:12
