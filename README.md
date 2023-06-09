@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Hallelujah** / Leonard Cohen
+# **Deeply** / bôa
 
-![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Various Positions
+**Album:** Twilight
 
-📅 2023-06-07 21:09:30
+📅 2023-06-08 20:30:37
 
 
-# **Night Comes On** / Leonard Cohen
+# **Scoring** / bôa
 
-![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Various Positions
+**Album:** Twilight
 
-📅 2023-06-07 21:04:52
+📅 2023-06-08 20:26:02
 
 
-# **The Law** / Leonard Cohen
+# **Heavy Soul** / The Black Keys
 
-![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+![Foto del album: The Big Come Up](https://i.scdn.co/image/ab67616d00001e02afe910b3a05b26a193e92851)
 
-**Album:** Various Positions
+**Album:** The Big Come Up
 
-📅 2023-06-07 21:00:11
+📅 2023-06-08 17:12:35
 
 
-# **Coming Back to You** / Leonard Cohen
+# **Things Ain't Like They Used to Be** / The Black Keys
 
-![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Various Positions
+**Album:** Attack & Release
 
-📅 2023-06-07 20:55:45
+📅 2023-06-08 17:10:28
 
 
-# **Dance Me to the End of Love** / Leonard Cohen
+# **Oceans & Streams** / The Black Keys
 
-![Foto del album: Various Positions](https://i.scdn.co/image/ab67616d00001e028c56267153920f9c0df36c5b)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Various Positions
+**Album:** Attack & Release
 
-📅 2023-06-07 20:52:12
+📅 2023-06-08 17:05:52
 
 
-# **Nevermind** / Leonard Cohen
+# **So He Won't Break** / The Black Keys
 
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Popular Problems
+**Album:** Attack & Release
 
-📅 2023-06-07 20:47:06
+📅 2023-06-08 17:02:25
 
 
-# **In My Secret Life** / Leonard Cohen
+# **Oceans & Streams** / The Black Keys
 
-![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Ten New Songs
+**Album:** Attack & Release
 
-📅 2023-06-07 20:41:48
+📅 2023-06-08 14:02:50
 
 
-# **Closing Time** / Leonard Cohen
+# **So He Won't Break** / The Black Keys
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** The Future
+**Album:** Attack & Release
 
-📅 2023-06-07 20:36:53
+📅 2023-06-08 14:02:48
 
 
-# **You Want It Darker** / Leonard Cohen
+# **Suffocation Blues** / Black Pistol Fire
 
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+![Foto del album: Black Pistol Fire](https://i.scdn.co/image/ab67616d00001e02d4390b4ffae7c240a645d90e)
 
-**Album:** You Want It Darker
+**Album:** Black Pistol Fire
 
-📅 2023-06-07 20:30:02
+📅 2023-06-08 13:51:06
 
 
-# **You Want It Darker** / Leonard Cohen
+# **Lonely Boy** / The Black Keys
 
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** You Want It Darker
+**Album:** El Camino
 
-📅 2023-06-07 00:09:01
+📅 2023-06-08 13:25:45
 
 
-# **Nevermind** / Leonard Cohen
+# **Tessellate** / alt-J
 
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
+![Foto del album: An Awesome Wave](https://i.scdn.co/image/ab67616d00001e02bcbec7d1bae62a13b14de1e5)
 
-**Album:** Popular Problems
+**Album:** An Awesome Wave
 
-📅 2023-06-07 00:03:32
+📅 2023-06-08 13:22:31
 
 
-# **Drink & Industry** / Dabu|Simon Swerwer
+# **The Ghost Inside** / Broken Bells
 
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
+![Foto del album: Broken Bells](https://i.scdn.co/image/ab67616d00001e02e198b6b9c5bfe013458e8ec9)
 
-**Album:** Dwarf Fortress (Original Game Soundtrack)
+**Album:** Broken Bells
 
-📅 2023-06-06 18:35:33
+📅 2023-06-08 13:19:29
 
 
-# **Breakfast In America - 2010 Remastered** / Supertramp
+# **Haunted Heart** / little hurricane
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Homewrecker](https://i.scdn.co/image/ab67616d00001e024434aef3026f9cd77717ccdf)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Homewrecker
 
-📅 2023-06-06 18:33:52
+📅 2023-06-08 13:16:11
 
 
-# **Out Of Sight** / Hooverphonic
+# **Heartbroken, In Disrepair** / Dan Auerbach
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Keep It Hid](https://i.scdn.co/image/ab67616d00001e028d958dbe6d20025e40a04c3f)
 
-**Album:** The Magnificent Tree
+**Album:** Keep It Hid
 
-📅 2023-06-06 18:31:12
+📅 2023-06-08 13:13:25
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **Will Do** / TV On The Radio
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Saudade
+**Album:** Nine Types of Light
 
-📅 2023-06-06 18:27:11
+📅 2023-06-08 13:10:03
 
 
-# **I Love You** / Woodkid
+# **Heavy Soul** / The Black Keys
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: The Big Come Up](https://i.scdn.co/image/ab67616d00001e02afe910b3a05b26a193e92851)
 
-**Album:** The Golden Age
+**Album:** The Big Come Up
 
-📅 2023-06-06 18:00:04
+📅 2023-06-08 13:06:18
 
 
-# **Canned Heat** / Jamiroquai
+# **Things Ain't Like They Used to Be** / The Black Keys
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Synkronized
+**Album:** Attack & Release
 
-📅 2023-06-06 17:57:19
+📅 2023-06-08 13:04:08
 
 
-# **Out Of Sight** / Hooverphonic
+# **Oceans & Streams** / The Black Keys
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** The Magnificent Tree
+**Album:** Attack & Release
 
-📅 2023-06-06 17:51:47
+📅 2023-06-08 12:59:31
 
 
-# **Out Of Sight** / Hooverphonic
+# **So He Won't Break** / The Black Keys
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** The Magnificent Tree
+**Album:** Attack & Release
 
-📅 2023-06-06 16:47:28
+📅 2023-06-08 12:56:05
 
 
-# **Intergalactic - Remastered 2009** / Beastie Boys
+# **Haunted Heart** / little hurricane
 
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
+![Foto del album: Homewrecker](https://i.scdn.co/image/ab67616d00001e024434aef3026f9cd77717ccdf)
 
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
+**Album:** Homewrecker
 
-📅 2023-06-06 16:47:01
+📅 2023-06-08 12:49:34
