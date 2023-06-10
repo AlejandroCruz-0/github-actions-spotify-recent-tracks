@@ -13,40 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-06-08 20:30:37
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-06-08 20:26:02
-
-
-# **Heavy Soul** / The Black Keys
-
-![Foto del album: The Big Come Up](https://i.scdn.co/image/ab67616d00001e02afe910b3a05b26a193e92851)
-
-**Album:** The Big Come Up
-
-📅 2023-06-08 17:12:35
-
-
 # **Things Ain't Like They Used to Be** / The Black Keys
 
 ![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
 **Album:** Attack & Release
 
-📅 2023-06-08 17:10:28
+📅 2023-06-09 17:03:46
 
 
 # **Oceans & Streams** / The Black Keys
@@ -55,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Attack & Release
 
-📅 2023-06-08 17:05:52
+📅 2023-06-09 16:59:09
 
 
 # **So He Won't Break** / The Black Keys
@@ -64,130 +37,157 @@ Nombre: **lotario1999**
 
 **Album:** Attack & Release
 
-📅 2023-06-08 17:02:25
+📅 2023-06-09 16:55:43
 
 
-# **Oceans & Streams** / The Black Keys
+# **Lungs** / Townes Van Zandt
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Townes Van Zandt](https://i.scdn.co/image/ab67616d00001e023c883be3287c02f857e91c06)
 
-**Album:** Attack & Release
+**Album:** Townes Van Zandt
 
-📅 2023-06-08 14:02:50
+📅 2023-06-09 15:46:19
 
 
-# **So He Won't Break** / The Black Keys
+# **You Got Me Singing** / Leonard Cohen
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
 
-**Album:** Attack & Release
+**Album:** Popular Problems
 
-📅 2023-06-08 14:02:48
+📅 2023-06-09 15:34:53
 
 
-# **Suffocation Blues** / Black Pistol Fire
+# **Born in Chains** / Leonard Cohen
 
-![Foto del album: Black Pistol Fire](https://i.scdn.co/image/ab67616d00001e02d4390b4ffae7c240a645d90e)
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
 
-**Album:** Black Pistol Fire
+**Album:** Popular Problems
 
-📅 2023-06-08 13:51:06
+📅 2023-06-09 15:31:20
 
 
-# **Lonely Boy** / The Black Keys
+# **Nevermind** / Leonard Cohen
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
 
-**Album:** El Camino
+**Album:** Popular Problems
 
-📅 2023-06-08 13:25:45
+📅 2023-06-09 15:26:24
 
 
-# **Tessellate** / alt-J
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: An Awesome Wave](https://i.scdn.co/image/ab67616d00001e02bcbec7d1bae62a13b14de1e5)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** An Awesome Wave
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-06-08 13:22:31
+📅 2023-06-09 13:14:29
 
 
-# **The Ghost Inside** / Broken Bells
+# **Golden Hour** / The Electric Swing Circus
 
-![Foto del album: Broken Bells](https://i.scdn.co/image/ab67616d00001e02e198b6b9c5bfe013458e8ec9)
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
-**Album:** Broken Bells
+**Album:** It Flew By
 
-📅 2023-06-08 13:19:29
+📅 2023-06-09 13:04:04
 
 
-# **Haunted Heart** / little hurricane
+# **Hybrid** / Swingrowers
 
-![Foto del album: Homewrecker](https://i.scdn.co/image/ab67616d00001e024434aef3026f9cd77717ccdf)
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
 
-**Album:** Homewrecker
+**Album:** Hybrid
 
-📅 2023-06-08 13:16:11
+📅 2023-06-09 13:01:14
 
 
-# **Heartbroken, In Disrepair** / Dan Auerbach
+# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
 
-![Foto del album: Keep It Hid](https://i.scdn.co/image/ab67616d00001e028d958dbe6d20025e40a04c3f)
+![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
 
-**Album:** Keep It Hid
+**Album:** Lost In The Rhythm
 
-📅 2023-06-08 13:13:25
+📅 2023-06-09 12:58:12
 
 
-# **Will Do** / TV On The Radio
+# **Cafe Noir** / LVDS
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Golden Days](https://i.scdn.co/image/ab67616d00001e02b733f3e082369098ff6bb7fe)
 
-**Album:** Nine Types of Light
+**Album:** Golden Days
 
-📅 2023-06-08 13:10:03
+📅 2023-06-09 12:55:05
 
 
-# **Heavy Soul** / The Black Keys
+# **Immaculate Taste** / Engelwood
 
-![Foto del album: The Big Come Up](https://i.scdn.co/image/ab67616d00001e02afe910b3a05b26a193e92851)
+![Foto del album: Yacht World](https://i.scdn.co/image/ab67616d00001e02a95fb0d23b29af7c95700424)
 
-**Album:** The Big Come Up
+**Album:** Yacht World
 
-📅 2023-06-08 13:06:18
+📅 2023-06-09 12:52:09
 
 
-# **Things Ain't Like They Used to Be** / The Black Keys
+# **Mushroom Picker Dance** / Floex
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Samorost 3 Soundtrack](https://i.scdn.co/image/ab67616d00001e0223fb8d68bfcc857f8d9875d8)
 
-**Album:** Attack & Release
+**Album:** Samorost 3 Soundtrack
 
-📅 2023-06-08 13:04:08
+📅 2023-06-09 12:50:23
 
 
-# **Oceans & Streams** / The Black Keys
+# **Goliath** / Woodkid
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: S16](https://i.scdn.co/image/ab67616d00001e029693fc6279d5c77d467c3c3b)
 
-**Album:** Attack & Release
+**Album:** S16
 
-📅 2023-06-08 12:59:31
+📅 2023-06-09 12:48:33
 
 
-# **So He Won't Break** / The Black Keys
+# **Bittern** / Cosmo Sheldrake
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Wake Up Calls](https://i.scdn.co/image/ab67616d00001e026b48c3209730db86931ab54b)
 
-**Album:** Attack & Release
+**Album:** Wake Up Calls
 
-📅 2023-06-08 12:56:05
+📅 2023-06-09 12:44:42
 
 
-# **Haunted Heart** / little hurricane
+# **Mais Non - 1920 Version** / Klischée
 
-![Foto del album: Homewrecker](https://i.scdn.co/image/ab67616d00001e024434aef3026f9cd77717ccdf)
+![Foto del album: Mais Non (1920 Version)](https://i.scdn.co/image/ab67616d00001e0267cbece5e17a55c040ad3cdc)
 
-**Album:** Homewrecker
+**Album:** Mais Non (1920 Version)
 
-📅 2023-06-08 12:49:34
+📅 2023-06-09 12:43:20
+
+
+# **1925** / LVDS
+
+![Foto del album: Golden Days](https://i.scdn.co/image/ab67616d00001e02b733f3e082369098ff6bb7fe)
+
+**Album:** Golden Days
+
+📅 2023-06-09 12:40:07
+
+
+# **April** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2023-06-09 12:37:22
+
+
+# **Ghosts** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2023-06-09 12:33:38
