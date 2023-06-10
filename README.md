@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-09 23:22:04
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2023-06-09 23:16:42
+
+
+# **Red** / Elbow
+
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
+
+**Album:** Asleep In The Back (Deluxe Edition)
+
+📅 2023-06-09 23:12:58
+
+
+# **Otherwise** / Morcheeba
+
+![Foto del album: The Platinum Collection](https://i.scdn.co/image/ab67616d00001e024d434d1e896f86efbeb02361)
+
+**Album:** The Platinum Collection
+
+📅 2023-06-09 23:06:33
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-06-09 23:02:02
+
+
+# **The Departure** / Max Richter
+
+![Foto del album: The Leftovers: Season 1 (Music from the HBO Series)](https://i.scdn.co/image/ab67616d00001e0249f6cc2b9a5828ae0210fd46)
+
+**Album:** The Leftovers: Season 1 (Music from the HBO Series)
+
+📅 2023-06-09 22:57:26
+
+
+# **Go To Sleep** / Radiohead
+
+![Foto del album: Hail To the Thief](https://i.scdn.co/image/ab67616d00001e020da53e8f58e59f28a79c10c7)
+
+**Album:** Hail To the Thief
+
+📅 2023-06-09 22:55:43
+
+
+# **Paper Sun** / Traffic
+
+![Foto del album: The Best Of Traffic](https://i.scdn.co/image/ab67616d00001e02e94c7c8b7fdd44e46d984e1f)
+
+**Album:** The Best Of Traffic
+
+📅 2023-06-09 22:49:00
+
+
+# **Paper Bag** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-06-09 22:44:12
+
+
+# **Limp** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-06-09 22:39:06
+
+
+# **Caminar Sola** / Julieta Venegas
+
+![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
+
+**Album:** Caminar Sola
+
+📅 2023-06-09 22:34:32
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2023-06-09 22:31:05
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2023-06-09 21:28:21
+
+
 # **Things Ain't Like They Used to Be** / The Black Keys
 
 ![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Popular Problems
 
 📅 2023-06-09 15:26:24
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-06-09 13:14:29
-
-
-# **Golden Hour** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-06-09 13:04:04
-
-
-# **Hybrid** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-06-09 13:01:14
-
-
-# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
-
-![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
-
-**Album:** Lost In The Rhythm
-
-📅 2023-06-09 12:58:12
-
-
-# **Cafe Noir** / LVDS
-
-![Foto del album: Golden Days](https://i.scdn.co/image/ab67616d00001e02b733f3e082369098ff6bb7fe)
-
-**Album:** Golden Days
-
-📅 2023-06-09 12:55:05
-
-
-# **Immaculate Taste** / Engelwood
-
-![Foto del album: Yacht World](https://i.scdn.co/image/ab67616d00001e02a95fb0d23b29af7c95700424)
-
-**Album:** Yacht World
-
-📅 2023-06-09 12:52:09
-
-
-# **Mushroom Picker Dance** / Floex
-
-![Foto del album: Samorost 3 Soundtrack](https://i.scdn.co/image/ab67616d00001e0223fb8d68bfcc857f8d9875d8)
-
-**Album:** Samorost 3 Soundtrack
-
-📅 2023-06-09 12:50:23
-
-
-# **Goliath** / Woodkid
-
-![Foto del album: S16](https://i.scdn.co/image/ab67616d00001e029693fc6279d5c77d467c3c3b)
-
-**Album:** S16
-
-📅 2023-06-09 12:48:33
-
-
-# **Bittern** / Cosmo Sheldrake
-
-![Foto del album: Wake Up Calls](https://i.scdn.co/image/ab67616d00001e026b48c3209730db86931ab54b)
-
-**Album:** Wake Up Calls
-
-📅 2023-06-09 12:44:42
-
-
-# **Mais Non - 1920 Version** / Klischée
-
-![Foto del album: Mais Non (1920 Version)](https://i.scdn.co/image/ab67616d00001e0267cbece5e17a55c040ad3cdc)
-
-**Album:** Mais Non (1920 Version)
-
-📅 2023-06-09 12:43:20
-
-
-# **1925** / LVDS
-
-![Foto del album: Golden Days](https://i.scdn.co/image/ab67616d00001e02b733f3e082369098ff6bb7fe)
-
-**Album:** Golden Days
-
-📅 2023-06-09 12:40:07
-
-
-# **April** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-06-09 12:37:22
-
-
-# **Ghosts** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-06-09 12:33:38
