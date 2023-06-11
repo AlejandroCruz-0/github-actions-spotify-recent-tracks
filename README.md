@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Fugitive Motel** / Elbow
+
+![Foto del album: Cast Of Thousands (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e023a9c5b341de0decba2483494)
+
+**Album:** Cast Of Thousands (Deluxe Edition)
+
+📅 2023-06-10 12:15:36
+
+
+# **with love** / Elbow
+
+![Foto del album: build a rocket boys!](https://i.scdn.co/image/ab67616d00001e0200fc05dd845fe011ae13901b)
+
+**Album:** build a rocket boys!
+
+📅 2023-06-10 12:09:17
+
+
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-10 12:03:56
+
+
+# **I'm Not the One** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-06-10 10:10:11
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2023-06-10 10:05:27
+
+
 # **Forget Myself** / Elbow
 
 ![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
@@ -130,6 +175,15 @@ Nombre: **lotario1999**
 📅 2023-06-09 21:28:21
 
 
+# **Heavy Soul** / The Black Keys
+
+![Foto del album: The Big Come Up](https://i.scdn.co/image/ab67616d00001e02afe910b3a05b26a193e92851)
+
+**Album:** The Big Come Up
+
+📅 2023-06-09 17:05:21
+
+
 # **Things Ain't Like They Used to Be** / The Black Keys
 
 ![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Attack & Release
 
 📅 2023-06-09 17:03:46
-
-
-# **Oceans & Streams** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2023-06-09 16:59:09
-
-
-# **So He Won't Break** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2023-06-09 16:55:43
-
-
-# **Lungs** / Townes Van Zandt
-
-![Foto del album: Townes Van Zandt](https://i.scdn.co/image/ab67616d00001e023c883be3287c02f857e91c06)
-
-**Album:** Townes Van Zandt
-
-📅 2023-06-09 15:46:19
-
-
-# **You Got Me Singing** / Leonard Cohen
-
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
-
-**Album:** Popular Problems
-
-📅 2023-06-09 15:34:53
-
-
-# **Born in Chains** / Leonard Cohen
-
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
-
-**Album:** Popular Problems
-
-📅 2023-06-09 15:31:20
-
-
-# **Nevermind** / Leonard Cohen
-
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
-
-**Album:** Popular Problems
-
-📅 2023-06-09 15:26:24
