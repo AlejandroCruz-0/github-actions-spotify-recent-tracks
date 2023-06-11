@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Unknown Brother** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-06-10 23:57:41
+
+
+# **I'm Not the One** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-06-10 23:53:41
+
+
+# **Sinister Kid** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-06-10 23:48:36
+
+
 # **Fugitive Motel** / Elbow
 
 ![Foto del album: Cast Of Thousands (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e023a9c5b341de0decba2483494)
@@ -38,6 +65,15 @@ Nombre: **lotario1999**
 **Album:** Leaders Of The Free World
 
 📅 2023-06-10 12:03:56
+
+
+# **Unknown Brother** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-06-10 10:20:23
 
 
 # **I'm Not the One** / The Black Keys
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Caminar Sola
 
 📅 2023-06-09 22:34:32
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2023-06-09 22:31:05
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2023-06-09 21:28:21
-
-
-# **Heavy Soul** / The Black Keys
-
-![Foto del album: The Big Come Up](https://i.scdn.co/image/ab67616d00001e02afe910b3a05b26a193e92851)
-
-**Album:** The Big Come Up
-
-📅 2023-06-09 17:05:21
-
-
-# **Things Ain't Like They Used to Be** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2023-06-09 17:03:46
