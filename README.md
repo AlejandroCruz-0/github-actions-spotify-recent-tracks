@@ -13,31 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Molly's Chambers** / Kings of Leon
+# **The High Road** / Broken Bells
 
-![Foto del album: Youth And Young Manhood](https://i.scdn.co/image/ab67616d00001e02b2df9dc89c5c0cfbe79c129d)
+![Foto del album: Broken Bells](https://i.scdn.co/image/ab67616d00001e02e198b6b9c5bfe013458e8ec9)
 
-**Album:** Youth And Young Manhood
+**Album:** Broken Bells
 
-📅 2023-06-12 18:49:22
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-06-12 18:48:42
+📅 2023-06-13 17:22:11
 
 
-# **She's Long Gone** / The Black Keys
+# **Frank Sinatra** / CAKE
+
+![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0200df6727e2cfe905baa75c1e)
+
+**Album:** Fashion Nugget
+
+📅 2023-06-13 17:18:19
+
+
+# **The Suburbs** / Arcade Fire
+
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+
+**Album:** The Suburbs (Deluxe)
+
+📅 2023-06-13 17:14:17
+
+
+# **Tighten Up** / The Black Keys
 
 ![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
 
 **Album:** Brothers (Deluxe Remastered Anniversary Edition)
 
-📅 2023-06-12 18:44:57
+📅 2023-06-13 17:09:01
+
+
+# **The Vampyre of Time and Memory** / Queens of the Stone Age
+
+![Foto del album: ...Like Clockwork](https://i.scdn.co/image/ab67616d00001e02eee7c041844e45dd76469fa0)
+
+**Album:** ...Like Clockwork
+
+📅 2023-06-13 17:05:30
 
 
 # **Things Ain't Like They Used to Be** / The Black Keys
@@ -46,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Attack & Release
 
-📅 2023-06-12 18:41:50
+📅 2023-06-13 17:01:55
 
 
 # **Oceans & Streams** / The Black Keys
@@ -55,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Attack & Release
 
-📅 2023-06-12 18:36:22
+📅 2023-06-13 16:57:18
 
 
 # **So He Won't Break** / The Black Keys
@@ -64,130 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** Attack & Release
 
-📅 2023-06-12 18:32:56
+📅 2023-06-13 16:53:51
 
 
-# **Dinner** / Cristobal Tapia De Veer
+# **Criminal** / Fiona Apple
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Tidal
 
-📅 2023-06-12 17:25:16
+📅 2023-06-13 14:38:18
 
 
-# **Pool Walk** / Cristobal Tapia De Veer
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Stop Making Sense (Live)
 
-📅 2023-06-12 17:25:03
+📅 2023-06-13 14:34:41
 
 
-# **Rejuvenated** / Cristobal Tapia De Veer
+# **No One Knows** / Queens of the Stone Age
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Songs For The Deaf
 
-📅 2023-06-12 17:23:48
+📅 2023-06-13 14:30:34
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **Two Weeks** / FKA twigs
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** LP1
 
-📅 2023-06-12 17:22:52
+📅 2023-06-13 14:25:55
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Mountain Will Fall
 
-📅 2023-06-12 17:22:21
+📅 2023-06-13 14:21:46
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **I'll Keep Coming** / Low Roar
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** 0
 
-📅 2023-06-12 17:19:43
+📅 2023-06-13 14:15:14
 
 
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+# **Will Do** / TV On The Radio
 
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** iv
+**Album:** Nine Types of Light
 
-📅 2023-06-12 16:49:20
+📅 2023-06-13 14:09:21
 
 
-# **Fever** / The Black Keys
+# **Hells Bells** / AC/DC
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
 
-**Album:** Turn Blue
+**Album:** Back In Black
 
-📅 2023-06-12 16:48:09
+📅 2023-06-13 14:05:36
 
 
-# **Oh I Wept** / Free
+# **Immigrant Song - Remaster** / Led Zeppelin
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
 
-**Album:** Fire And Water
+**Album:** Led Zeppelin III (Remaster)
 
-📅 2023-06-12 16:44:02
+📅 2023-06-13 14:00:24
 
 
-# **Sound & Color** / Alabama Shakes
+# **Electric Worry** / Clutch
 
-![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
 
-**Album:** Sound & Color (Deluxe Edition)
+**Album:** From Beale Street to Oblivion
 
-📅 2023-06-12 16:39:35
+📅 2023-06-13 13:57:56
 
 
-# **Mysterious - Shades Of Green Remix** / Hooverphonic
+# **Criminal** / Fiona Apple
 
-![Foto del album: Mysterious](https://i.scdn.co/image/ab67616d00001e02e4b8761db2ec468d38fc89cb)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Mysterious
+**Album:** Tidal
 
-📅 2023-06-12 16:36:32
+📅 2023-06-13 13:52:42
 
 
-# **Catch Light** / Bent Knee
+# **Forget Myself** / Elbow
 
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+![Foto del album: Leaders Of The Free World (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0241415c22f5952f6c5566a393)
 
-**Album:** You Know What They Mean
+**Album:** Leaders Of The Free World (Deluxe Edition)
 
-📅 2023-06-12 16:33:15
-
-
-# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
-
-![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
-
-**Album:** Galaxias
-
-📅 2023-06-12 16:28:35
-
-
-# **Drink & Industry** / Dabu|Simon Swerwer
-
-![Foto del album: Dwarf Fortress (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c761f67c34841a739842c8df)
-
-**Album:** Dwarf Fortress (Original Game Soundtrack)
-
-📅 2023-06-12 16:24:39
+📅 2023-06-13 13:43:06
