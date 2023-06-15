@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Grounds for Divorce** / Elbow
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: The Best Of (Deluxe)](https://i.scdn.co/image/ab67616d00001e02469040cc19c6627510a8ef23)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The Best Of (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-06-13 21:26:21
+📅 2023-06-14 18:14:09
 
 
-# **Forget Myself** / Elbow
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** Leaders Of The Free World
+**Album:** Saudade
 
-📅 2023-06-13 21:21:05
+📅 2023-06-14 18:10:13
 
 
-# **The High Road** / Broken Bells
+# **Child Psychology** / Black Box Recorder
 
-![Foto del album: Broken Bells](https://i.scdn.co/image/ab67616d00001e02e198b6b9c5bfe013458e8ec9)
+![Foto del album: England Made Me](https://i.scdn.co/image/ab67616d00001e0268e8d2ccea9adb0dcdc0e08e)
 
-**Album:** Broken Bells
+**Album:** England Made Me
 
-📅 2023-06-13 17:22:11
+📅 2023-06-14 14:32:30
 
 
-# **Frank Sinatra** / CAKE
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0200df6727e2cfe905baa75c1e)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Fashion Nugget
+**Album:** El Camino
 
-📅 2023-06-13 17:18:19
+📅 2023-06-14 14:30:57
 
 
-# **The Suburbs** / Arcade Fire
+# **New Sensation** / INXS
 
-![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
 
-**Album:** The Suburbs (Deluxe)
+**Album:** Kick (Remastered 2011)
 
-📅 2023-06-13 17:14:17
+📅 2023-06-14 14:27:16
 
 
-# **Tighten Up** / The Black Keys
+# **Sledgehammer - Remastered** / Peter Gabriel
 
-![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
 
-**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+**Album:** So (Special Edition)
 
-📅 2023-06-13 17:09:01
+📅 2023-06-14 14:23:35
 
 
-# **The Vampyre of Time and Memory** / Queens of the Stone Age
+# **Down By The Water** / PJ Harvey
 
-![Foto del album: ...Like Clockwork](https://i.scdn.co/image/ab67616d00001e02eee7c041844e45dd76469fa0)
+![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
 
-**Album:** ...Like Clockwork
+**Album:** To Bring You My Love
 
-📅 2023-06-13 17:05:30
+📅 2023-06-14 14:16:23
 
 
-# **Things Ain't Like They Used to Be** / The Black Keys
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** Attack & Release
+**Album:** iii
 
-📅 2023-06-13 17:01:55
+📅 2023-06-14 14:13:08
 
 
-# **Oceans & Streams** / The Black Keys
+# **Rock the Casbah - Remastered** / The Clash
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
 
-**Album:** Attack & Release
+**Album:** Combat Rock (Remastered)
 
-📅 2023-06-13 16:57:18
+📅 2023-06-14 14:09:35
 
 
-# **So He Won't Break** / The Black Keys
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Attack & Release
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-06-13 16:53:51
+📅 2023-06-14 14:05:51
 
 
-# **Criminal** / Fiona Apple
+# **Legendary** / Welshly Arms
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Tidal
+**Album:** No Place Is Home
 
-📅 2023-06-13 14:38:18
+📅 2023-06-14 14:02:11
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **Legendary** / Welshly Arms
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Stop Making Sense (Live)
+**Album:** No Place Is Home
 
-📅 2023-06-13 14:34:41
+📅 2023-06-14 13:56:49
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Beetlebum - 2012 Remaster** / Blur
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
 
-**Album:** Songs For The Deaf
+**Album:** Blur (Special Edition)
 
-📅 2023-06-13 14:30:34
+📅 2023-06-14 13:55:35
 
 
-# **Two Weeks** / FKA twigs
+# **Plug in Baby** / Muse
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
 
-**Album:** LP1
+**Album:** Origin of Symmetry
 
-📅 2023-06-13 14:25:55
+📅 2023-06-14 13:50:29
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
+# **Tom The Model** / Beth Gibbons|Rustin Man
 
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
 
-**Album:** The Mountain Will Fall
+**Album:** Out Of Season
 
-📅 2023-06-13 14:21:46
+📅 2023-06-14 13:46:51
 
 
-# **I'll Keep Coming** / Low Roar
+# **Burn the Witch** / Radiohead
 
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** 0
+**Album:** A Moon Shaped Pool
 
-📅 2023-06-13 14:15:14
+📅 2023-06-14 13:43:13
 
 
-# **Will Do** / TV On The Radio
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Nine Types of Light
+**Album:** Panic
 
-📅 2023-06-13 14:09:21
+📅 2023-06-14 13:39:32
 
 
-# **Hells Bells** / AC/DC
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Back In Black
+**Album:** <I°_°I>
 
-📅 2023-06-13 14:05:36
+📅 2023-06-14 13:36:20
 
 
-# **Immigrant Song - Remaster** / Led Zeppelin
+# **Sweet Love For Planet Earth** / Fuck Buttons
 
-![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
+![Foto del album: Street Horrrsing](https://i.scdn.co/image/ab67616d00001e02bfe588a5425a2f1d65d28615)
 
-**Album:** Led Zeppelin III (Remaster)
+**Album:** Street Horrrsing
 
-📅 2023-06-13 14:00:24
+📅 2023-06-14 12:04:19
 
 
-# **Electric Worry** / Clutch
+# **Retrograde** / James Blake
 
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
 
-**Album:** From Beale Street to Oblivion
+**Album:** Overgrown
 
-📅 2023-06-13 13:57:56
+📅 2023-06-14 12:04:14
