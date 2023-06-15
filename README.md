@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Let's Dance (With David Bowie) - Live** / Tina Turner|David Bowie
+
+![Foto del album: Tina Live in Europe](https://i.scdn.co/image/ab67616d00001e0258546a5fe963764a466e79e8)
+
+**Album:** Tina Live in Europe
+
+📅 2023-06-14 23:04:42
+
+
+# **What You Get Is What You See** / Tina Turner
+
+![Foto del album: Break Every Rule](https://i.scdn.co/image/ab67616d00001e02642b5e9d9636c51504d5efe2)
+
+**Album:** Break Every Rule
+
+📅 2023-06-14 23:01:14
+
+
+# **I Don't Wanna Fight** / Tina Turner
+
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+
+**Album:** What's Love Got to Do with It?
+
+📅 2023-06-14 22:56:41
+
+
+# **Goldeneye - Single Edit** / Tina Turner
+
+![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+
+**Album:** Wildest Dreams
+
+📅 2023-06-14 22:50:19
+
+
+# **Relight My Fire - Single Version** / Dan Hartman
+
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+
+**Album:** 70s Gems
+
+📅 2023-06-14 22:35:47
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-06-14 22:35:43
+
+
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+
+**Album:** iv
+
+📅 2023-06-14 22:31:47
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-06-14 22:27:58
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-06-14 18:30:01
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Place Is Home
 
 📅 2023-06-14 14:02:11
-
-
-# **Legendary** / Welshly Arms
-
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
-
-**Album:** No Place Is Home
-
-📅 2023-06-14 13:56:49
-
-
-# **Beetlebum - 2012 Remaster** / Blur
-
-![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
-
-**Album:** Blur (Special Edition)
-
-📅 2023-06-14 13:55:35
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2023-06-14 13:50:29
-
-
-# **Tom The Model** / Beth Gibbons|Rustin Man
-
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
-
-**Album:** Out Of Season
-
-📅 2023-06-14 13:46:51
-
-
-# **Burn the Witch** / Radiohead
-
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
-
-**Album:** A Moon Shaped Pool
-
-📅 2023-06-14 13:43:13
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-06-14 13:39:32
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2023-06-14 13:36:20
-
-
-# **Sweet Love For Planet Earth** / Fuck Buttons
-
-![Foto del album: Street Horrrsing](https://i.scdn.co/image/ab67616d00001e02bfe588a5425a2f1d65d28615)
-
-**Album:** Street Horrrsing
-
-📅 2023-06-14 12:04:19
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2023-06-14 12:04:14
