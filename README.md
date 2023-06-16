@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Let's Dance (With David Bowie) - Live** / Tina Turner|David Bowie
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Tina Live in Europe](https://i.scdn.co/image/ab67616d00001e0258546a5fe963764a466e79e8)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Tina Live in Europe
+**Album:** Panic
 
-📅 2023-06-14 23:04:42
+📅 2023-06-15 13:52:34
 
 
-# **What You Get Is What You See** / Tina Turner
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Break Every Rule](https://i.scdn.co/image/ab67616d00001e02642b5e9d9636c51504d5efe2)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Break Every Rule
+**Album:** <I°_°I>
 
-📅 2023-06-14 23:01:14
+📅 2023-06-15 13:50:22
 
 
-# **I Don't Wanna Fight** / Tina Turner
+# **An Imagined Affair** / Elbow
 
-![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
+![Foto del album: Leaders Of The Free World (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0241415c22f5952f6c5566a393)
 
-**Album:** What's Love Got to Do with It?
+**Album:** Leaders Of The Free World (Deluxe Edition)
 
-📅 2023-06-14 22:56:41
+📅 2023-06-15 12:53:31
 
 
-# **Goldeneye - Single Edit** / Tina Turner
+# **Forget Myself** / Elbow
 
-![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
+![Foto del album: Leaders Of The Free World (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0241415c22f5952f6c5566a393)
 
-**Album:** Wildest Dreams
+**Album:** Leaders Of The Free World (Deluxe Edition)
 
-📅 2023-06-14 22:50:19
+📅 2023-06-15 12:48:40
 
 
-# **Relight My Fire - Single Version** / Dan Hartman
+# **Sad Swing** / Lyre Le Temps
 
-![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
+![Foto del album: Clock Master](https://i.scdn.co/image/ab67616d00001e0217d2dd887bd9f05032ad3c2c)
 
-**Album:** 70s Gems
+**Album:** Clock Master
 
-📅 2023-06-14 22:35:47
+📅 2023-06-15 12:37:36
 
 
-# **I Love You** / Woodkid
+# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
 
-**Album:** The Golden Age
+**Album:** Reluciente, Rechinante y Aterciopelado
 
-📅 2023-06-14 22:35:43
+📅 2023-06-15 12:35:48
 
 
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
+# **Sr. Cobranza** / Bersuit Vergarabat
 
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
+![Foto del album: Libertinaje](https://i.scdn.co/image/ab67616d00001e02a0fc7851f47a216e9a902aa6)
 
-**Album:** iv
+**Album:** Libertinaje
 
-📅 2023-06-14 22:31:47
+📅 2023-06-15 12:30:55
 
 
-# **Fever** / The Black Keys
+# **Prelude / Angry Young Man** / Billy Joel
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Turnstiles](https://i.scdn.co/image/ab67616d00001e02d1731f2c0e1c2c8957f35c76)
 
-**Album:** Turn Blue
+**Album:** Turnstiles
 
-📅 2023-06-14 22:27:58
+📅 2023-06-15 12:26:35
 
 
-# **Fever** / The Black Keys
+# **Pressure** / Billy Joel
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
 
-**Album:** Turn Blue
+**Album:** The Nylon Curtain
 
-📅 2023-06-14 18:30:01
+📅 2023-06-15 12:21:19
 
 
-# **Out Of Sight** / Hooverphonic
+# **Ella Usó Mi Cabeza Como Un Revólver - Remasterizado 2007** / Soda Stereo
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Sueño Stereo (Remastered)](https://i.scdn.co/image/ab67616d00001e02b50bb73f2ef9047afa0644a4)
 
-**Album:** The Magnificent Tree
+**Album:** Sueño Stereo (Remastered)
 
-📅 2023-06-14 18:14:09
+📅 2023-06-15 12:16:38
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **Fuck Love** / Rosalie Cunningham
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: Rosalie Cunningham](https://i.scdn.co/image/ab67616d00001e026e92c1aae79002394ec98cf2)
 
-**Album:** Saudade
+**Album:** Rosalie Cunningham
 
-📅 2023-06-14 18:10:13
+📅 2023-06-15 12:12:08
 
 
-# **Child Psychology** / Black Box Recorder
+# **Waltz #2 (XO)** / Elliott Smith
 
-![Foto del album: England Made Me](https://i.scdn.co/image/ab67616d00001e0268e8d2ccea9adb0dcdc0e08e)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** England Made Me
+**Album:** XO
 
-📅 2023-06-14 14:32:30
+📅 2023-06-15 12:07:08
 
 
-# **Dead and Gone** / The Black Keys
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** El Camino
+**Album:** Bueninvento
 
-📅 2023-06-14 14:30:57
+📅 2023-06-15 12:02:27
 
 
-# **New Sensation** / INXS
+# **Will Do** / TV On The Radio
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Kick (Remastered 2011)
+**Album:** Nine Types of Light
 
-📅 2023-06-14 14:27:16
+📅 2023-06-15 11:59:01
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Bottle Up And Explode!** / Elliott Smith
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** So (Special Edition)
+**Album:** XO
 
-📅 2023-06-14 14:23:35
+📅 2023-06-15 11:55:15
 
 
-# **Down By The Water** / PJ Harvey
+# **The Suburbs** / Arcade Fire
 
-![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
 
-**Album:** To Bring You My Love
+**Album:** The Suburbs (Deluxe)
 
-📅 2023-06-14 14:16:23
+📅 2023-06-15 11:52:16
 
 
-# **Genghis Khan** / Miike Snow
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** iii
+**Album:** Land Animal
 
-📅 2023-06-14 14:13:08
+📅 2023-06-15 11:47:02
 
 
-# **Rock the Casbah - Remastered** / The Clash
+# **Semi-Automatic** / O Mer
 
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+![Foto del album: Everything Is Everyone's Fault](https://i.scdn.co/image/ab67616d00001e02057d624209422fb2c1929c2f)
 
-**Album:** Combat Rock (Remastered)
+**Album:** Everything Is Everyone's Fault
 
-📅 2023-06-14 14:09:35
+📅 2023-06-15 11:41:28
 
 
-# **My Favourite Game** / The Cardigans
+# **Holding On** / Aloboi
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Holding on](https://i.scdn.co/image/ab67616d00001e0292041d2058b7c44dc86af399)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Holding on
 
-📅 2023-06-14 14:05:51
+📅 2023-06-15 11:37:05
 
 
-# **Legendary** / Welshly Arms
+# **Ode to Odd** / 20syl
 
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+![Foto del album: 36 (Beats & Types)](https://i.scdn.co/image/ab67616d00001e02872e9ffacf8b5e611710968a)
 
-**Album:** No Place Is Home
+**Album:** 36 (Beats & Types)
 
-📅 2023-06-14 14:02:11
+📅 2023-06-15 11:33:02
