@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-06-16 22:26:43
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-16 22:05:11
+
+
 # **Togetherness I** / Tobias Lilja
 
 ![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
@@ -103,6 +121,15 @@ Nombre: **lotario1999**
 📅 2023-06-16 13:42:04
 
 
+# **Be Tender with Me Baby** / Tina Turner
+
+![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
+
+**Album:** Foreign Affair
+
+📅 2023-06-15 23:39:32
+
+
 # **Rock It for Me** / Caravan Palace
 
 ![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Libertinaje
 
 📅 2023-06-15 12:30:55
-
-
-# **Prelude / Angry Young Man** / Billy Joel
-
-![Foto del album: Turnstiles](https://i.scdn.co/image/ab67616d00001e02d1731f2c0e1c2c8957f35c76)
-
-**Album:** Turnstiles
-
-📅 2023-06-15 12:26:35
-
-
-# **Pressure** / Billy Joel
-
-![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
-
-**Album:** The Nylon Curtain
-
-📅 2023-06-15 12:21:19
-
-
-# **Ella Usó Mi Cabeza Como Un Revólver - Remasterizado 2007** / Soda Stereo
-
-![Foto del album: Sueño Stereo (Remastered)](https://i.scdn.co/image/ab67616d00001e02b50bb73f2ef9047afa0644a4)
-
-**Album:** Sueño Stereo (Remastered)
-
-📅 2023-06-15 12:16:38
