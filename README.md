@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Togetherness I** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2023-06-16 19:51:43
+
+
+# **Teeth and Leaves** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2023-06-16 19:47:29
+
+
+# **Little Nightmares II (Main Theme)** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2023-06-16 19:45:39
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2023-06-16 14:00:19
+
+
+# **Intro** / alt-J
+
+![Foto del album: An Awesome Wave](https://i.scdn.co/image/ab67616d00001e02bcbec7d1bae62a13b14de1e5)
+
+**Album:** An Awesome Wave
+
+📅 2023-06-16 13:59:52
+
+
+# **Shelter Song** / Temples
+
+![Foto del album: Sun Structures](https://i.scdn.co/image/ab67616d00001e0261a7820880944279ad25aab5)
+
+**Album:** Sun Structures
+
+📅 2023-06-16 13:57:14
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-06-16 13:54:04
+
+
+# **No Sex For Ben** / The Rapture
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2023-06-16 13:49:56
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-06-16 13:45:50
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e0293b35dec2ac532dbd99462b1)
+
+**Album:** Dear Science (Bonus Track Version)
+
+📅 2023-06-16 13:42:04
+
+
 # **Rock It for Me** / Caravan Palace
 
 ![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Sueño Stereo (Remastered)
 
 📅 2023-06-15 12:16:38
-
-
-# **Fuck Love** / Rosalie Cunningham
-
-![Foto del album: Rosalie Cunningham](https://i.scdn.co/image/ab67616d00001e026e92c1aae79002394ec98cf2)
-
-**Album:** Rosalie Cunningham
-
-📅 2023-06-15 12:12:08
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-06-15 12:07:08
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-06-15 12:02:27
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-06-15 11:59:01
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-06-15 11:55:15
-
-
-# **The Suburbs** / Arcade Fire
-
-![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
-
-**Album:** The Suburbs (Deluxe)
-
-📅 2023-06-15 11:52:16
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-06-15 11:47:02
-
-
-# **Semi-Automatic** / O Mer
-
-![Foto del album: Everything Is Everyone's Fault](https://i.scdn.co/image/ab67616d00001e02057d624209422fb2c1929c2f)
-
-**Album:** Everything Is Everyone's Fault
-
-📅 2023-06-15 11:41:28
-
-
-# **Holding On** / Aloboi
-
-![Foto del album: Holding on](https://i.scdn.co/image/ab67616d00001e0292041d2058b7c44dc86af399)
-
-**Album:** Holding on
-
-📅 2023-06-15 11:37:05
-
-
-# **Ode to Odd** / 20syl
-
-![Foto del album: 36 (Beats & Types)](https://i.scdn.co/image/ab67616d00001e02872e9ffacf8b5e611710968a)
-
-**Album:** 36 (Beats & Types)
-
-📅 2023-06-15 11:33:02
