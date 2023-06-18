@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Mrs. Massey** / The Newton Brothers
+
+![Foto del album: Stephen King's Doctor Sleep (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e028876902a5ddb74e6413ebf7f)
+
+**Album:** Stephen King's Doctor Sleep (Original Motion Picture Soundtrack)
+
+📅 2023-06-17 20:10:42
+
+
+# **End of the Hall** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2023-06-17 20:09:34
+
+
+# **Little Nightmares II (Main Theme)** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2023-06-17 20:05:50
+
+
+# **Deeper Underground** / Jamiroquai
+
+![Foto del album: Godzilla - The Album](https://i.scdn.co/image/ab67616d00001e02ef0efe27d0f1aa0ff44e048d)
+
+**Album:** Godzilla - The Album
+
+📅 2023-06-17 20:01:14
+
+
+# **What a Fool Believes** / The Doobie Brothers
+
+![Foto del album: Best of The Doobies, Volume II](https://i.scdn.co/image/ab67616d00001e02c6c33db3521f22786d3e1e0e)
+
+**Album:** Best of The Doobies, Volume II
+
+📅 2023-06-17 19:37:32
+
+
+# **Kiss on My List** / Daryl Hall & John Oates
+
+![Foto del album: The Essential Daryl Hall & John Oates](https://i.scdn.co/image/ab67616d00001e02e49b4b79f376c0bc6e0c079b)
+
+**Album:** The Essential Daryl Hall & John Oates
+
+📅 2023-06-17 19:33:52
+
+
+# **All These Lights** / The Grouch & Eligh
+
+![Foto del album: The Tortoise and The Crow](https://i.scdn.co/image/ab67616d00001e02a78fd5053ecfb1f8dd92ed03)
+
+**Album:** The Tortoise and The Crow
+
+📅 2023-06-17 19:29:19
+
+
+# **I'm Not the One** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-06-17 19:26:34
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2023-06-17 19:22:11
+
+
+# **The Best** / Tina Turner
+
+![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
+
+**Album:** Foreign Affair
+
+📅 2023-06-17 19:18:24
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-06-17 19:16:40
+
+
 # **I Feel You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -29,6 +128,15 @@ Nombre: **lotario1999**
 **Album:** High Times: Singles 1992-2006
 
 📅 2023-06-16 22:05:11
+
+
+# **The Nome in the Attic** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2023-06-16 19:53:17
 
 
 # **Togetherness I** / Tobias Lilja
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Sun Structures
 
 📅 2023-06-16 13:57:14
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-06-16 13:54:04
-
-
-# **No Sex For Ben** / The Rapture
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2023-06-16 13:49:56
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-06-16 13:45:50
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e0293b35dec2ac532dbd99462b1)
-
-**Album:** Dear Science (Bonus Track Version)
-
-📅 2023-06-16 13:42:04
-
-
-# **Be Tender with Me Baby** / Tina Turner
-
-![Foto del album: Foreign Affair](https://i.scdn.co/image/ab67616d00001e02a04b4373fd72bf81c8784adf)
-
-**Album:** Foreign Affair
-
-📅 2023-06-15 23:39:32
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-06-15 13:52:34
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2023-06-15 13:50:22
-
-
-# **An Imagined Affair** / Elbow
-
-![Foto del album: Leaders Of The Free World (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0241415c22f5952f6c5566a393)
-
-**Album:** Leaders Of The Free World (Deluxe Edition)
-
-📅 2023-06-15 12:53:31
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0241415c22f5952f6c5566a393)
-
-**Album:** Leaders Of The Free World (Deluxe Edition)
-
-📅 2023-06-15 12:48:40
-
-
-# **Sad Swing** / Lyre Le Temps
-
-![Foto del album: Clock Master](https://i.scdn.co/image/ab67616d00001e0217d2dd887bd9f05032ad3c2c)
-
-**Album:** Clock Master
-
-📅 2023-06-15 12:37:36
-
-
-# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
-
-![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
-
-**Album:** Reluciente, Rechinante y Aterciopelado
-
-📅 2023-06-15 12:35:48
-
-
-# **Sr. Cobranza** / Bersuit Vergarabat
-
-![Foto del album: Libertinaje](https://i.scdn.co/image/ab67616d00001e02a0fc7851f47a216e9a902aa6)
-
-**Album:** Libertinaje
-
-📅 2023-06-15 12:30:55
