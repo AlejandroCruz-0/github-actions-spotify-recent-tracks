@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **An Audience With The Pope** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2023-06-18 22:18:15
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2023-06-18 22:13:48
+
+
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-18 22:09:46
+
+
 # **Waves** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Little Nightmares II (Original Game Soundtrack)
 
 📅 2023-06-17 20:05:50
-
-
-# **Deeper Underground** / Jamiroquai
-
-![Foto del album: Godzilla - The Album](https://i.scdn.co/image/ab67616d00001e02ef0efe27d0f1aa0ff44e048d)
-
-**Album:** Godzilla - The Album
-
-📅 2023-06-17 20:01:14
-
-
-# **What a Fool Believes** / The Doobie Brothers
-
-![Foto del album: Best of The Doobies, Volume II](https://i.scdn.co/image/ab67616d00001e02c6c33db3521f22786d3e1e0e)
-
-**Album:** Best of The Doobies, Volume II
-
-📅 2023-06-17 19:37:32
-
-
-# **Kiss on My List** / Daryl Hall & John Oates
-
-![Foto del album: The Essential Daryl Hall & John Oates](https://i.scdn.co/image/ab67616d00001e02e49b4b79f376c0bc6e0c079b)
-
-**Album:** The Essential Daryl Hall & John Oates
-
-📅 2023-06-17 19:33:52
