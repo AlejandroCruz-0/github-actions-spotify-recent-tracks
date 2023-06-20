@@ -13,22 +13,103 @@ Nombre: **lotario1999**
 
 
 
-# **An Audience With The Pope** / Elbow
+# **The Sea** / Morcheeba
+
+![Foto del album: The Platinum Collection](https://i.scdn.co/image/ab67616d00001e024d434d1e896f86efbeb02361)
+
+**Album:** The Platinum Collection
+
+📅 2023-06-19 20:42:34
+
+
+# **Otherwise** / Morcheeba
+
+![Foto del album: The Platinum Collection](https://i.scdn.co/image/ab67616d00001e024d434d1e896f86efbeb02361)
+
+**Album:** The Platinum Collection
+
+📅 2023-06-19 20:36:47
+
+
+# **The Bones of You** / Elbow
 
 ![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
 
 **Album:** The Seldom Seen Kid
 
-📅 2023-06-18 22:18:15
+📅 2023-06-19 20:33:05
 
 
-# **Grounds for Divorce** / Elbow
+# **Puncture Repair** / Elbow
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** The Seldom Seen Kid
+**Album:** Leaders Of The Free World
 
-📅 2023-06-18 22:13:48
+📅 2023-06-19 17:40:25
+
+
+# **Great Expectations** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:38:36
+
+
+# **My Very Best** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:33:31
+
+
+# **The Everthere** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:27:57
+
+
+# **Mexican Standoff** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:23:43
+
+
+# **An Imagined Affair** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:19:41
+
+
+# **Leaders of the Free World** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:14:57
+
+
+# **The Stops** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-19 17:08:45
 
 
 # **Forget Myself** / Elbow
@@ -37,16 +118,34 @@ Nombre: **lotario1999**
 
 **Album:** Leaders Of The Free World
 
-📅 2023-06-18 22:09:46
+📅 2023-06-19 17:03:41
 
 
-# **Waves** / Hooverphonic
+# **Weather to Fly** / Elbow
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
 
-**Album:** The Magnificent Tree
+**Album:** The Seldom Seen Kid
 
-📅 2023-06-18 16:24:56
+📅 2023-06-19 16:57:16
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-06-19 13:25:56
+
+
+# **Stolen Car** / Beth Orton
+
+![Foto del album: Central Reservation](https://i.scdn.co/image/ab67616d00001e025d19063ba7b606373b107fed)
+
+**Album:** Central Reservation
+
+📅 2023-06-19 13:25:16
 
 
 # **Mad About You** / Hooverphonic
@@ -55,139 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-06-18 16:24:16
+📅 2023-06-19 13:19:49
 
 
-# **Forget Myself** / Elbow
+# **Relight My Fire - Single Version** / Dan Hartman
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: 70s Gems](https://i.scdn.co/image/ab67616d00001e029d6a490cb45234b1ed2463fc)
 
-**Album:** Leaders Of The Free World
+**Album:** 70s Gems
 
-📅 2023-06-18 16:20:35
+📅 2023-06-19 13:16:05
 
 
-# **I Feel You** / Depeche Mode
+# **I Love You** / Woodkid
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Golden Age
 
-📅 2023-06-18 12:45:37
+📅 2023-06-19 13:12:20
 
 
-# **Mrs. Massey** / The Newton Brothers
+# **I'm getting on the bus to the other world, see ya!** / TUYU
 
-![Foto del album: Stephen King's Doctor Sleep (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e028876902a5ddb74e6413ebf7f)
+![Foto del album: It's Raining After All](https://i.scdn.co/image/ab67616d00001e02ec61804d798b2c42fe23f7c3)
 
-**Album:** Stephen King's Doctor Sleep (Original Motion Picture Soundtrack)
+**Album:** It's Raining After All
 
-📅 2023-06-18 12:40:38
+📅 2023-06-19 13:08:29
 
 
-# **End of the Hall** / Tobias Lilja
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
 
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
 
-**Album:** Little Nightmares II (Original Game Soundtrack)
+**Album:** iv
 
-📅 2023-06-18 12:39:31
-
-
-# **Nothing Lasts Forever** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 12:35:50
-
-
-# **Old Friends Anew** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 12:33:43
-
-
-# **Lost in Transmission** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 12:29:16
-
-
-# **The Nome in the Attic** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 11:20:47
-
-
-# **Togetherness I** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 11:19:16
-
-
-# **Teeth and Leaves** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 11:15:02
-
-
-# **Little Nightmares II (Main Theme)** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 11:13:11
-
-
-# **Lost in Transmission** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-18 11:10:28
-
-
-# **Mrs. Massey** / The Newton Brothers
-
-![Foto del album: Stephen King's Doctor Sleep (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e028876902a5ddb74e6413ebf7f)
-
-**Album:** Stephen King's Doctor Sleep (Original Motion Picture Soundtrack)
-
-📅 2023-06-17 20:10:42
-
-
-# **End of the Hall** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-17 20:09:34
-
-
-# **Little Nightmares II (Main Theme)** / Tobias Lilja
-
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
-
-**Album:** Little Nightmares II (Original Game Soundtrack)
-
-📅 2023-06-17 20:05:50
+📅 2023-06-19 13:05:14
