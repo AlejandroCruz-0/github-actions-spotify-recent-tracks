@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Canned Heat** / Jamiroquai
+# **Season Song** / Blue States
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Man Mountain](https://i.scdn.co/image/ab67616d00001e0209285bb46403ca0751fea8e0)
 
-**Album:** Synkronized
+**Album:** Man Mountain
 
-📅 2023-06-19 22:54:53
-
-
-# **Paper Bag** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-06-19 22:48:54
+📅 2023-06-20 17:24:43
 
 
-# **Limp** / Fiona Apple
+# **It's A Fire** / Portishead
 
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** When The Pawn...
+**Album:** Dummy
 
-📅 2023-06-19 22:45:10
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
-
-**Album:** Return To Cookie Mountain
-
-📅 2023-06-19 22:40:27
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2023-06-19 22:35:45
-
-
-# **Hysteria** / Muse
-
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
-
-**Album:** Absolution
-
-📅 2023-06-19 22:17:55
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-06-19 22:14:08
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-06-19 22:10:22
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-06-19 22:06:15
-
-
-# **Lonely Boy** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-06-19 22:02:08
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2023-06-19 21:58:33
+📅 2023-06-20 17:22:22
 
 
 # **The Sea** / Morcheeba
 
-![Foto del album: The Platinum Collection](https://i.scdn.co/image/ab67616d00001e024d434d1e896f86efbeb02361)
+![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
 
-**Album:** The Platinum Collection
+**Album:** Big Calm
 
-📅 2023-06-19 20:42:34
-
-
-# **Otherwise** / Morcheeba
-
-![Foto del album: The Platinum Collection](https://i.scdn.co/image/ab67616d00001e024d434d1e896f86efbeb02361)
-
-**Album:** The Platinum Collection
-
-📅 2023-06-19 20:36:47
+📅 2023-06-20 17:18:35
 
 
-# **The Bones of You** / Elbow
+# **Erase / Rewind** / The Cardigans
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** The Seldom Seen Kid
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-06-19 20:33:05
-
-
-# **Puncture Repair** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-06-19 17:40:25
+📅 2023-06-20 17:05:27
 
 
-# **Great Expectations** / Elbow
+# **Bachelorette** / Björk
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
 
-**Album:** Leaders Of The Free World
+**Album:** Homogenic
 
-📅 2023-06-19 17:38:36
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-06-19 17:33:31
+📅 2023-06-20 17:04:19
 
 
-# **The Everthere** / Elbow
+# **Army Of Me** / Björk
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025092260f47e0d95717b834c3)
 
-**Album:** Leaders Of The Free World
+**Album:** Post
 
-📅 2023-06-19 17:27:57
-
-
-# **Mexican Standoff** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-06-19 17:23:43
+📅 2023-06-20 16:58:52
 
 
-# **An Imagined Affair** / Elbow
+# **Erase / Rewind** / The Cardigans
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Leaders Of The Free World
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-06-19 17:19:41
+📅 2023-06-20 16:54:57
+
+
+# **Special - 2018 - Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02f14d41b4c7e37e090774a639)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2023-06-20 16:51:18
+
+
+# **Elle et moi** / Lemongrass
+
+![Foto del album: Filmothèque](https://i.scdn.co/image/ab67616d00001e02cb535a2c749af6e4a4a52cba)
+
+**Album:** Filmothèque
+
+📅 2023-06-20 16:28:17
+
+
+# **They Can't Take That Away From Me** / Smoke City
+
+![Foto del album: Red Hot + Rhapsody](https://i.scdn.co/image/ab67616d00001e0291e53dae3a0ff5dd9dc8b2a2)
+
+**Album:** Red Hot + Rhapsody
+
+📅 2023-06-20 16:26:16
+
+
+# **It's A Fire** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-06-20 16:23:26
+
+
+# **All Is Full Of Love** / Björk
+
+![Foto del album: Greatest Hits](https://i.scdn.co/image/ab67616d00001e0285633659209b658fbcb4ea40)
+
+**Album:** Greatest Hits
+
+📅 2023-06-20 16:19:40
+
+
+# **Free** / Thievery Corporation
+
+![Foto del album: Culture Of Fear](https://i.scdn.co/image/ab67616d00001e02dd408cb5b0a5d987aaa54007)
+
+**Album:** Culture Of Fear
+
+📅 2023-06-20 16:14:53
+
+
+# **Badly Broken Butterflies** / Yonderboi
+
+![Foto del album: Splendid Isolation](https://i.scdn.co/image/ab67616d00001e024f04a3441e26e2eda6645255)
+
+**Album:** Splendid Isolation
+
+📅 2023-06-20 16:10:49
+
+
+# **Harry Dean** / Tosca
+
+![Foto del album: Outta Here](https://i.scdn.co/image/ab67616d00001e02ad4c2b66035c10162c821d77)
+
+**Album:** Outta Here
+
+📅 2023-06-20 16:07:28
+
+
+# **Erase / Rewind** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2023-06-20 16:04:19
+
+
+# **Renaissance Affair** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-06-20 16:00:40
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-06-20 15:57:15
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-06-20 15:53:27
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-06-20 15:49:36
