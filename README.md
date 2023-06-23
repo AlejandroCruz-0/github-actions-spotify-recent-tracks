@@ -13,58 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-06-21 23:28:09
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-06-21 23:23:16
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-21 23:07:07
-
-
-# **Too Young to Die - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-21 23:01:48
-
-
-# **When You Gonna Learn?** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-21 22:58:25
-
-
 # **Little L - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 22:54:29
+📅 2023-06-22 18:06:21
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -73,121 +28,166 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 22:50:29
+📅 2023-06-22 18:02:21
 
 
-# **Oh I Wept** / Free
+# **Sing It Back** / Moloko
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Summer MIX MAG Vol.8](https://i.scdn.co/image/ab67616d00001e026e6af7f76060658dad2b3b43)
 
-**Album:** Fire And Water
+**Album:** Summer MIX MAG Vol.8
 
-📅 2023-06-21 13:56:05
+📅 2023-06-22 15:56:15
 
 
-# **Out Of Sight** / Hooverphonic
+# **Beijo (Interlude)** / Earth, Wind & Fire
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: All 'N All](https://i.scdn.co/image/ab67616d00001e02f81891d2e28007ef6b918acd)
 
-**Album:** The Magnificent Tree
+**Album:** All 'N All
 
-📅 2023-06-21 13:51:38
+📅 2023-06-22 15:46:05
 
 
-# **Scoring** / bôa
+# **Cosmic Girl - Remastered** / Jamiroquai
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
 
-**Album:** Twilight
+**Album:** Travelling Without Moving (Remastered)
 
-📅 2023-06-21 13:47:42
+📅 2023-06-22 15:44:44
 
 
-# **This Mess We're In** / PJ Harvey|Thom Yorke
+# **Radio - Remastered** / Jamiroquai
 
-![Foto del album: Stories From The City, Stories From The Sea](https://i.scdn.co/image/ab67616d00001e0209e4ac9a68d9ea5ef0ad9b05)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Stories From The City, Stories From The Sea
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 10:16:20
+📅 2023-06-22 15:40:39
 
 
-# **These Are Our Children** / I Monster
+# **Runaway - Remastered** / Jamiroquai
 
-![Foto del album: Neveroddoreven](https://i.scdn.co/image/ab67616d00001e029a60a37a5ff1efb3ef6d1479)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Neveroddoreven
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 10:16:05
+📅 2023-06-22 15:36:24
 
 
-# **Everytime We Live Together We Die A Bit More** / Hooverphonic
+# **(Don't) Give Hate a Chance - Remastered** / Jamiroquai
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** The Magnificent Tree
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 10:11:57
+📅 2023-06-22 15:32:37
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **Seven Days in Sunny June** / Jamiroquai
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Saudade
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 10:08:24
+📅 2023-06-22 15:28:45
 
 
-# **Come To Me** / Björk
+# **Feels Just Like it Should** / Jamiroquai
 
-![Foto del album: Debut](https://i.scdn.co/image/ab67616d00001e02768d171a47a3adae90c7c48a)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Debut
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 10:05:01
+📅 2023-06-22 15:24:45
 
 
-# **All That Is Thirst** / Pati Yang
+# **You Give Me Something** / Jamiroquai
 
-![Foto del album: Silent Treatment](https://i.scdn.co/image/ab67616d00001e02c9e8498c2917b9395d2afee8)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Silent Treatment
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 10:00:05
+📅 2023-06-22 15:20:10
 
 
-# **6 Underground** / Sneaker Pimps
+# **Corner of the Earth - Remastered** / Jamiroquai
 
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Becoming X
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-21 09:56:17
+📅 2023-06-22 15:16:49
 
 
-# **Season Song** / Blue States
+# **Love Foolosophy - Remastered** / Jamiroquai
 
-![Foto del album: Man Mountain](https://i.scdn.co/image/ab67616d00001e0209285bb46403ca0751fea8e0)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Man Mountain
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-20 17:24:43
+📅 2023-06-22 15:12:52
 
 
-# **It's A Fire** / Portishead
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Dummy
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-20 17:22:22
+📅 2023-06-22 15:09:04
 
 
-# **The Sea** / Morcheeba
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Big Calm
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-20 17:18:35
+📅 2023-06-22 15:05:04
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-22 14:52:03
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-22 14:48:15
+
+
+# **High Times - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-22 14:43:28
+
+
+# **Alright - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-22 14:39:17
+
+
+# **Cosmic Girl - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-22 14:35:35
