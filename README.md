@@ -13,13 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **Little L - Remastered** / Jamiroquai
+# **Deeply** / bôa
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Twilight
 
-📅 2023-06-23 13:36:51
+📅 2023-06-24 19:08:01
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-06-24 19:03:26
+
+
+# **Elephant** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-06-24 18:59:36
+
+
+# **Rain** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-06-24 18:55:41
+
+
+# **Fool** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-06-24 18:51:45
+
+
+# **Twilight** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-06-24 18:46:39
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-06-24 18:42:49
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -28,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 13:32:51
+📅 2023-06-24 18:39:26
 
 
 # **Deeper Underground - Full Version** / Jamiroquai
@@ -37,16 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 13:29:02
-
-
-# **Feels Just Like it Should** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-23 11:19:51
+📅 2023-06-24 18:35:40
 
 
 # **You Give Me Something** / Jamiroquai
@@ -55,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 10:36:24
+📅 2023-06-24 15:43:04
 
 
 # **Corner of the Earth - Remastered** / Jamiroquai
@@ -64,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 10:33:04
+📅 2023-06-24 15:39:44
 
 
 # **Love Foolosophy - Remastered** / Jamiroquai
@@ -73,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 10:29:07
+📅 2023-06-24 15:35:47
 
 
 # **Little L - Remastered** / Jamiroquai
@@ -82,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 10:25:19
+📅 2023-06-24 15:31:58
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -91,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 10:21:18
+📅 2023-06-24 15:27:58
 
 
 # **Deeper Underground - Full Version** / Jamiroquai
@@ -100,61 +145,25 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-23 10:17:30
+📅 2023-06-24 15:24:10
 
 
-# **Canned Heat - Remastered** / Jamiroquai
+# **Deeply** / bôa
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Twilight
 
-📅 2023-06-23 10:01:38
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-23 09:57:53
+📅 2023-06-24 08:59:25
 
 
-# **Breakfast In America - 2010 Remastered** / Supertramp
+# **Oh I Wept** / Free
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Fire And Water
 
-📅 2023-06-23 09:00:54
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-06-23 09:00:47
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2023-06-23 08:56:47
-
-
-# **Love Foolosophy - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-22 18:21:37
+📅 2023-06-24 08:57:53
 
 
 # **Little L - Remastered** / Jamiroquai
@@ -163,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-22 18:06:21
+📅 2023-06-24 08:33:18
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -172,22 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-22 18:02:21
+📅 2023-06-24 08:33:13
 
 
-# **Sing It Back** / Moloko
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Summer MIX MAG Vol.8](https://i.scdn.co/image/ab67616d00001e026e6af7f76060658dad2b3b43)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Summer MIX MAG Vol.8
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-22 15:56:15
-
-
-# **Beijo (Interlude)** / Earth, Wind & Fire
-
-![Foto del album: All 'N All](https://i.scdn.co/image/ab67616d00001e02f81891d2e28007ef6b918acd)
-
-**Album:** All 'N All
-
-📅 2023-06-22 15:46:05
+📅 2023-06-24 08:29:25
