@@ -13,139 +13,148 @@ Nombre: **lotario1999**
 
 
 
-# **砂糖玉の月** / yanaginagi
+# **Pyramid Song** / Radiohead
 
-![Foto del album: here and there/砂糖玉の月](https://i.scdn.co/image/ab67616d00001e02f3ca40d8557edf1e345f0623)
+![Foto del album: Amnesiac](https://i.scdn.co/image/ab67616d00001e02863e0e305637100311c91aa7)
 
-**Album:** here and there/砂糖玉の月
+**Album:** Amnesiac
 
-📅 2023-06-25 00:28:08
+📅 2023-06-25 19:46:41
 
 
-# **砂糖玉の月** / yanaginagi
+# **Knives Out** / Radiohead
 
-![Foto del album: here and there/砂糖玉の月](https://i.scdn.co/image/ab67616d00001e02f3ca40d8557edf1e345f0623)
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
 
-**Album:** here and there/砂糖玉の月
+**Album:** KID A MNESIA
 
-📅 2023-06-24 23:29:56
+📅 2023-06-25 19:40:06
 
 
-# **Forget Myself** / Elbow
+# **Karma Police** / Radiohead
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: OK Computer](https://i.scdn.co/image/ab67616d00001e02c8b444df094279e70d0ed856)
 
-**Album:** Leaders Of The Free World
+**Album:** OK Computer
 
-📅 2023-06-24 23:19:47
+📅 2023-06-25 19:13:32
 
 
-# **Sinister Kid** / The Black Keys
+# **High and Dry** / Radiohead
 
-![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
 
-**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+**Album:** The Bends
 
-📅 2023-06-24 23:11:50
+📅 2023-06-25 19:09:07
 
 
-# **The Ghost Inside** / Broken Bells
+# **No Surprises** / Radiohead
 
-![Foto del album: Broken Bells](https://i.scdn.co/image/ab67616d00001e02e198b6b9c5bfe013458e8ec9)
+![Foto del album: OK Computer](https://i.scdn.co/image/ab67616d00001e02c8b444df094279e70d0ed856)
 
-**Album:** Broken Bells
+**Album:** OK Computer
 
-📅 2023-06-24 22:47:42
+📅 2023-06-25 19:04:50
 
 
-# **She's Long Gone** / The Black Keys
+# **Creep** / Radiohead
 
-![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+![Foto del album: Pablo Honey](https://i.scdn.co/image/ab67616d00001e02df55e326ed144ab4f5cecf95)
 
-**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+**Album:** Pablo Honey
 
-📅 2023-06-24 22:44:23
+📅 2023-06-25 19:01:00
 
 
-# **Level** / The Raconteurs
+# **Where I End and You Begin** / Radiohead
 
-![Foto del album: Broken Boy Soldiers](https://i.scdn.co/image/ab67616d00001e02aaafcdc8e35209dc99554017)
+![Foto del album: Hail To the Thief](https://i.scdn.co/image/ab67616d00001e020da53e8f58e59f28a79c10c7)
 
-**Album:** Broken Boy Soldiers
+**Album:** Hail To the Thief
 
-📅 2023-06-24 22:41:17
+📅 2023-06-25 18:46:36
 
 
-# **Figure It Out** / Royal Blood
+# **Go To Sleep** / Radiohead
 
-![Foto del album: Royal Blood](https://i.scdn.co/image/ab67616d00001e0269471a9c0a6073a9beb81410)
+![Foto del album: Hail To the Thief](https://i.scdn.co/image/ab67616d00001e020da53e8f58e59f28a79c10c7)
 
-**Album:** Royal Blood
+**Album:** Hail To the Thief
 
-📅 2023-06-24 22:38:55
+📅 2023-06-25 18:42:07
 
 
-# **The Denial Twist** / The White Stripes
+# **My Lover's Prayer** / Otis Redding
 
-![Foto del album: Get Behind Me Satan](https://i.scdn.co/image/ab67616d00001e02e8a1ae591befe4bb0a9261ab)
+![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
 
-**Album:** Get Behind Me Satan
+**Album:** The Very Best of Otis Redding
 
-📅 2023-06-24 22:35:51
+📅 2023-06-25 18:38:12
 
 
-# **Heartbroken, In Disrepair** / Dan Auerbach
+# **FML** / deadmau5
 
-![Foto del album: Keep It Hid](https://i.scdn.co/image/ab67616d00001e028d958dbe6d20025e40a04c3f)
+![Foto del album: For Lack Of A Better Name](https://i.scdn.co/image/ab67616d00001e02d49d976721f4dc6b3c6225ad)
 
-**Album:** Keep It Hid
+**Album:** For Lack Of A Better Name
 
-📅 2023-06-24 22:33:15
+📅 2023-06-25 18:34:17
 
 
-# **Tessellate** / alt-J
+# **Let's Stay Together** / Al Green
 
-![Foto del album: An Awesome Wave](https://i.scdn.co/image/ab67616d00001e02bcbec7d1bae62a13b14de1e5)
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
 
-**Album:** An Awesome Wave
+**Album:** Let's Stay Together
 
-📅 2023-06-24 22:29:53
+📅 2023-06-25 18:27:18
 
 
-# **Tighten Up** / The Black Keys
+# **Retrograde** / James Blake
 
-![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
 
-**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+**Album:** Overgrown
 
-📅 2023-06-24 22:26:52
+📅 2023-06-25 18:13:11
 
 
-# **Will Do** / TV On The Radio
+# **Goldeneye - Single Edit** / Tina Turner
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
 
-**Album:** Nine Types of Light
+**Album:** Wildest Dreams
 
-📅 2023-06-24 22:23:19
+📅 2023-06-25 16:35:56
 
 
-# **Things Ain't Like They Used to Be** / The Black Keys
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Attack & Release
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-24 22:19:34
+📅 2023-06-25 16:31:36
 
 
-# **Oceans & Streams** / The Black Keys
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Attack & Release
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-24 22:14:58
+📅 2023-06-25 16:27:37
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-25 15:14:31
 
 
 # **So He Won't Break** / The Black Keys
@@ -154,40 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Attack & Release
 
-📅 2023-06-24 22:11:32
+📅 2023-06-25 14:21:29
 
 
-# **Deeply** / bôa
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Twilight
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-06-24 19:08:01
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-06-24 19:03:26
+📅 2023-06-25 14:13:58
 
 
-# **Elephant** / bôa
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Twilight
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-06-24 18:59:36
+📅 2023-06-25 14:08:33
 
 
-# **Rain** / bôa
+# **Forget Myself** / Elbow
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Twilight
+**Album:** Leaders Of The Free World
 
-📅 2023-06-24 18:55:41
+📅 2023-06-25 13:57:44
