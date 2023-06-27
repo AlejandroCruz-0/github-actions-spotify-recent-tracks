@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **Dearly Beloved I** / Project Destati
+
+![Foto del album: Project Destati: LIGHT](https://i.scdn.co/image/ab67616d00001e0260dd62d574ae759ff4939bf5)
+
+**Album:** Project Destati: LIGHT
+
+📅 2023-06-26 17:10:16
+
+
+# **Kingdom Hearts Birth By Sleep: Fate of the Unknown** / Crouch End Festival Chorus|London Philharmonic Orchestra
+
+![Foto del album: The Greatest Video Game Music 2](https://i.scdn.co/image/ab67616d00001e02441d1be1e00af07b430d2a0a)
+
+**Album:** The Greatest Video Game Music 2
+
+📅 2023-06-26 17:06:26
+
+
+# **Waltz de Chocobo** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02012c8e26756d42328f4ec683)
+
+**Album:** FINAL FANTASY VII Original Soundtrack
+
+📅 2023-06-26 13:48:30
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2023-06-26 13:45:59
+
+
+# **Pressure** / Billy Joel
+
+![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
+
+**Album:** The Nylon Curtain
+
+📅 2023-06-26 13:40:15
+
+
+# **If You Say the Word** / Radiohead
+
+![Foto del album: If You Say the Word](https://i.scdn.co/image/ab67616d00001e02607ea322d486b75b498fa35c)
+
+**Album:** If You Say the Word
+
+📅 2023-06-26 13:35:02
+
+
+# **I Promise** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2023-06-26 13:23:03
+
+
+# **Man of War** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2023-06-26 13:18:48
+
+
+# **Love Foolosophy - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-26 11:15:56
+
+
+# **Little L - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-26 11:12:08
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-26 11:08:08
+
+
+# **Pulk/Pull Revolving Doors** / Radiohead
+
+![Foto del album: Amnesiac](https://i.scdn.co/image/ab67616d00001e02863e0e305637100311c91aa7)
+
+**Album:** Amnesiac
+
+📅 2023-06-26 11:07:45
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-26 11:04:19
+
+
+# **Alright - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-26 10:37:21
+
+
+# **Cosmic Girl - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-26 10:26:16
+
+
 # **Pyramid Song** / Radiohead
 
 ![Foto del album: Amnesiac](https://i.scdn.co/image/ab67616d00001e02863e0e305637100311c91aa7)
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** OK Computer
 
 📅 2023-06-25 19:04:50
-
-
-# **Creep** / Radiohead
-
-![Foto del album: Pablo Honey](https://i.scdn.co/image/ab67616d00001e02df55e326ed144ab4f5cecf95)
-
-**Album:** Pablo Honey
-
-📅 2023-06-25 19:01:00
-
-
-# **Where I End and You Begin** / Radiohead
-
-![Foto del album: Hail To the Thief](https://i.scdn.co/image/ab67616d00001e020da53e8f58e59f28a79c10c7)
-
-**Album:** Hail To the Thief
-
-📅 2023-06-25 18:46:36
-
-
-# **Go To Sleep** / Radiohead
-
-![Foto del album: Hail To the Thief](https://i.scdn.co/image/ab67616d00001e020da53e8f58e59f28a79c10c7)
-
-**Album:** Hail To the Thief
-
-📅 2023-06-25 18:42:07
-
-
-# **My Lover's Prayer** / Otis Redding
-
-![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
-
-**Album:** The Very Best of Otis Redding
-
-📅 2023-06-25 18:38:12
-
-
-# **FML** / deadmau5
-
-![Foto del album: For Lack Of A Better Name](https://i.scdn.co/image/ab67616d00001e02d49d976721f4dc6b3c6225ad)
-
-**Album:** For Lack Of A Better Name
-
-📅 2023-06-25 18:34:17
-
-
-# **Let's Stay Together** / Al Green
-
-![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
-
-**Album:** Let's Stay Together
-
-📅 2023-06-25 18:27:18
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2023-06-25 18:13:11
-
-
-# **Goldeneye - Single Edit** / Tina Turner
-
-![Foto del album: Wildest Dreams](https://i.scdn.co/image/ab67616d00001e024b425ab35d61adb0858a2537)
-
-**Album:** Wildest Dreams
-
-📅 2023-06-25 16:35:56
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-25 16:31:36
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-25 16:27:37
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-25 15:14:31
-
-
-# **So He Won't Break** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2023-06-25 14:21:29
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-06-25 14:13:58
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-06-25 14:08:33
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-06-25 13:57:44
