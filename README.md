@@ -13,103 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **Dearly Beloved I** / Project Destati
+# **So He Won't Break** / The Black Keys
 
-![Foto del album: Project Destati: LIGHT](https://i.scdn.co/image/ab67616d00001e0260dd62d574ae759ff4939bf5)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Project Destati: LIGHT
+**Album:** Attack & Release
 
-📅 2023-06-26 17:10:16
-
-
-# **Kingdom Hearts Birth By Sleep: Fate of the Unknown** / Crouch End Festival Chorus|London Philharmonic Orchestra
-
-![Foto del album: The Greatest Video Game Music 2](https://i.scdn.co/image/ab67616d00001e02441d1be1e00af07b430d2a0a)
-
-**Album:** The Greatest Video Game Music 2
-
-📅 2023-06-26 17:06:26
+📅 2023-06-27 13:59:35
 
 
-# **Waltz de Chocobo** / Nobuo Uematsu
+# **Breakfast In America - 2010 Remastered** / Supertramp
 
-![Foto del album: FINAL FANTASY VII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02012c8e26756d42328f4ec683)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** FINAL FANTASY VII Original Soundtrack
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-06-26 13:48:30
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2023-06-26 13:45:59
+📅 2023-06-27 13:55:22
 
 
-# **Pressure** / Billy Joel
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** The Nylon Curtain
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-06-26 13:40:15
-
-
-# **If You Say the Word** / Radiohead
-
-![Foto del album: If You Say the Word](https://i.scdn.co/image/ab67616d00001e02607ea322d486b75b498fa35c)
-
-**Album:** If You Say the Word
-
-📅 2023-06-26 13:35:02
+📅 2023-06-27 13:52:42
 
 
-# **I Promise** / Radiohead
+# **Oh I Wept** / Free
 
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** OK Computer OKNOTOK 1997 2017
+**Album:** Fire And Water
 
-📅 2023-06-26 13:23:03
-
-
-# **Man of War** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2023-06-26 13:18:48
+📅 2023-06-27 13:50:05
 
 
-# **Corner of the Earth - Remastered** / Jamiroquai
+# **Oh I Wept** / Free
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Fire And Water
 
-📅 2023-06-26 11:16:47
-
-
-# **Love Foolosophy - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-26 11:15:56
+📅 2023-06-27 13:45:38
 
 
-# **Little L - Remastered** / Jamiroquai
+# **Fever** / The Black Keys
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Turn Blue
 
-📅 2023-06-26 11:12:08
+📅 2023-06-27 13:37:25
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-06-27 13:33:18
+
+
+# **The Stops** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-27 13:28:33
+
+
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-06-27 13:23:29
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-06-27 13:16:59
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -118,76 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-26 11:08:08
+📅 2023-06-27 13:13:07
 
 
-# **Pulk/Pull Revolving Doors** / Radiohead
-
-![Foto del album: Amnesiac](https://i.scdn.co/image/ab67616d00001e02863e0e305637100311c91aa7)
-
-**Album:** Amnesiac
-
-📅 2023-06-26 11:07:45
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
+# **Virtual Insanity - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-26 11:04:19
+📅 2023-06-27 13:09:20
 
 
-# **Alright - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-26 10:37:21
-
-
-# **Cosmic Girl - Remastered** / Jamiroquai
+# **Runaway - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-06-26 10:26:16
+📅 2023-06-27 12:15:01
 
 
-# **Pyramid Song** / Radiohead
+# **(Don't) Give Hate a Chance - Remastered** / Jamiroquai
 
-![Foto del album: Amnesiac](https://i.scdn.co/image/ab67616d00001e02863e0e305637100311c91aa7)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Amnesiac
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-25 19:46:41
-
-
-# **Knives Out** / Radiohead
-
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
-
-**Album:** KID A MNESIA
-
-📅 2023-06-25 19:40:06
+📅 2023-06-27 12:12:41
 
 
-# **Karma Police** / Radiohead
+# **Seven Days in Sunny June** / Jamiroquai
 
-![Foto del album: OK Computer](https://i.scdn.co/image/ab67616d00001e02c8b444df094279e70d0ed856)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** OK Computer
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-25 19:13:32
+📅 2023-06-27 12:08:50
 
 
-# **High and Dry** / Radiohead
+# **Feels Just Like it Should** / Jamiroquai
 
-![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** The Bends
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-06-25 19:09:07
+📅 2023-06-27 12:04:49
+
+
+# **You Give Me Something** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-27 12:00:14
+
+
+# **Corner of the Earth - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-27 11:56:54
+
+
+# **Love Foolosophy - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-27 11:52:57
+
+
+# **Little L - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-06-27 11:49:09
