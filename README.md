@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2023-06-28 22:06:58
+
+
+# **Man of War** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2023-06-28 22:02:49
+
+
+# **If You Say the Word** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-06-28 21:57:57
+
+
+# **Personal Jesus - Single Version** / Depeche Mode
+
+![Foto del album: The Singles 86-98](https://i.scdn.co/image/ab67616d00001e020a7d45a345534966a4ad2c39)
+
+**Album:** The Singles 86-98
+
+📅 2023-06-28 21:53:05
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-06-28 21:45:18
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-06-28 21:39:57
+
+
 # **Seven Days in Sunny June** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** High Times: Singles 1992-2006
 
 📅 2023-06-28 15:29:55
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-06-28 15:26:07
-
-
-# **The Stops** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-06-28 14:27:48
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-06-28 14:27:35
-
-
-# **Paradise** / Sade
-
-![Foto del album: The Best of Sade](https://i.scdn.co/image/ab67616d00001e025e25e034e25258b356774c79)
-
-**Album:** The Best of Sade
-
-📅 2023-06-28 12:25:20
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-06-28 12:21:45
-
-
-# **Virtual Insanity - Remastered** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2023-06-28 12:18:04
