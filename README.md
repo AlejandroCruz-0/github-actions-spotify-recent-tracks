@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Man of War** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2023-06-29 23:24:50
+
+
+# **Separator** / Radiohead
+
+![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+
+**Album:** The King Of Limbs
+
+📅 2023-06-29 23:18:37
+
+
 # **Canned Heat - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Absolution
 
 📅 2023-06-29 17:40:38
-
-
-# **I'll Keep Coming** / Low Roar
-
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
-
-**Album:** 0
-
-📅 2023-06-29 17:36:41
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-06-29 17:30:48
