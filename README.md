@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **In Your Room** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-05 23:58:36
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-05 23:58:19
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-05 21:23:37
+
+
+# **Just Can't Get Enough** / Depeche Mode
+
+![Foto del album: Speak And Spell (Deluxe)](https://i.scdn.co/image/ab67616d00001e0288ffe8c41647856e6fa5e1ab)
+
+**Album:** Speak And Spell (Deluxe)
+
+📅 2023-07-05 18:46:21
+
+
 # **Enjoy the Silence** / Depeche Mode
 
 ![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** KID A MNESIA
 
 📅 2023-07-05 13:10:33
-
-
-# **Pulk/Pull - True Love Waits Version** / Radiohead
-
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
-
-**Album:** KID A MNESIA
-
-📅 2023-07-05 13:09:46
-
-
-# **Follow Me Around** / Radiohead
-
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
-
-**Album:** KID A MNESIA
-
-📅 2023-07-05 13:07:00
-
-
-# **If You Say the Word** / Radiohead
-
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
-
-**Album:** KID A MNESIA
-
-📅 2023-07-05 13:01:40
-
-
-# **Man of War** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2023-07-05 12:56:41
