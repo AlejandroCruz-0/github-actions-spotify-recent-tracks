@@ -13,85 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Rhinestone Eyes** / Gorillaz
+# **Enjoy the Silence** / Depeche Mode
 
-![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
+![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
 
-**Album:** Plastic Beach
+**Album:** Violator | The 12" Singles
 
-📅 2023-07-04 21:34:10
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-07-04 21:23:28
-
-
-# **Piano Fire** / Sparklehorse|PJ Harvey
-
-![Foto del album: It's A Wonderful Life](https://i.scdn.co/image/ab67616d00001e02249e18bd7db232c8384924ce)
-
-**Album:** It's A Wonderful Life
-
-📅 2023-07-04 21:20:23
-
-
-# **Down By The Water** / PJ Harvey
-
-![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
-
-**Album:** To Bring You My Love
-
-📅 2023-07-04 21:17:38
-
-
-# **Genghis Khan** / Miike Snow
-
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
-
-**Album:** iii
-
-📅 2023-07-04 21:14:23
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-07-04 21:10:39
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-07-04 21:05:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-07-04 20:46:14
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-04 20:38:14
+📅 2023-07-05 18:16:53
 
 
 # **I Feel You** / Depeche Mode
@@ -100,70 +28,70 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-04 20:32:47
+📅 2023-07-05 18:07:21
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs For The Deaf
+**Album:** The Magnificent Tree
 
-📅 2023-07-04 19:25:41
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2023-07-04 19:24:43
+📅 2023-07-05 15:45:51
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** Songs For The Deaf
+**Album:** Saudade
 
-📅 2023-07-04 18:16:57
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2023-07-04 18:12:26
+📅 2023-07-05 15:44:48
 
 
-# **Little L - Remastered** / Jamiroquai
+# **Badly Broken Butterflies** / Yonderboi
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Splendid Isolation](https://i.scdn.co/image/ab67616d00001e024f04a3441e26e2eda6645255)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Splendid Isolation
 
-📅 2023-07-04 18:07:24
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-04 18:03:24
+📅 2023-07-05 15:41:18
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **I Don't Wanna Fight** / Tina Turner
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** What's Love Got to Do with It?
 
-📅 2023-07-04 17:59:35
+📅 2023-07-05 15:37:57
+
+
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2023-07-05 15:26:31
+
+
+# **Where Is My Mind? - Remastered** / Pixies
+
+![Foto del album: Surfer Rosa](https://i.scdn.co/image/ab67616d00001e02626ad9bb7d5f84c59652b161)
+
+**Album:** Surfer Rosa
+
+📅 2023-07-05 15:22:49
+
+
+# **Rapto** / Gustavo Cerati
+
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
+
+**Album:** Fuerza Natural
+
+📅 2023-07-05 15:18:53
 
 
 # **Judas** / Depeche Mode
@@ -172,22 +100,94 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-04 17:53:57
+📅 2023-07-05 15:14:10
 
 
-# **Get Right With Me** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-04 17:47:13
-
-
-# **In Your Room** / Depeche Mode
+# **Walking in My Shoes** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-04 17:43:21
+📅 2023-07-05 15:07:03
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-05 15:01:25
+
+
+# **Alt. Fast Track** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:14:05
+
+
+# **Pyramid Strings** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:13:52
+
+
+# **The Morning Bell - In the Dark Version** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:12:34
+
+
+# **Untitled v2** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:10:33
+
+
+# **Pulk/Pull - True Love Waits Version** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:09:46
+
+
+# **Follow Me Around** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:07:00
+
+
+# **If You Say the Word** / Radiohead
+
+![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+
+**Album:** KID A MNESIA
+
+📅 2023-07-05 13:01:40
+
+
+# **Man of War** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2023-07-05 12:56:41
