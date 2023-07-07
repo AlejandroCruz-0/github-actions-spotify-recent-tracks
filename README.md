@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 23:08:59
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 23:03:40
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 20:51:01
+
+
 # **Mercy in You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs of Faith and Devotion (Deluxe)
 
 📅 2023-07-06 17:03:07
-
-
-# **Love Foolosophy - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-06 16:34:41
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-06 16:34:27
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-06 16:30:28
