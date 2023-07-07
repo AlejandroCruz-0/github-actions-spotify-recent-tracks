@@ -13,130 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **In Your Room** / Depeche Mode
+# **Mercy in You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-05 23:58:36
+📅 2023-07-06 20:40:56
 
 
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-05 23:58:19
-
-
-# **Judas** / Depeche Mode
+# **Condemnation** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-05 21:23:37
-
-
-# **Just Can't Get Enough** / Depeche Mode
-
-![Foto del album: Speak And Spell (Deluxe)](https://i.scdn.co/image/ab67616d00001e0288ffe8c41647856e6fa5e1ab)
-
-**Album:** Speak And Spell (Deluxe)
-
-📅 2023-07-05 18:46:21
-
-
-# **Enjoy the Silence** / Depeche Mode
-
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
-
-**Album:** Violator | The 12" Singles
-
-📅 2023-07-05 18:16:53
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-05 18:07:21
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-07-05 15:45:51
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2023-07-05 15:44:48
-
-
-# **Badly Broken Butterflies** / Yonderboi
-
-![Foto del album: Splendid Isolation](https://i.scdn.co/image/ab67616d00001e024f04a3441e26e2eda6645255)
-
-**Album:** Splendid Isolation
-
-📅 2023-07-05 15:41:18
-
-
-# **I Don't Wanna Fight** / Tina Turner
-
-![Foto del album: What's Love Got to Do with It?](https://i.scdn.co/image/ab67616d00001e02e9c361da971c6e81b51ef06b)
-
-**Album:** What's Love Got to Do with It?
-
-📅 2023-07-05 15:37:57
-
-
-# **Burn the Witch** / Radiohead
-
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
-
-**Album:** A Moon Shaped Pool
-
-📅 2023-07-05 15:26:31
-
-
-# **Where Is My Mind? - Remastered** / Pixies
-
-![Foto del album: Surfer Rosa](https://i.scdn.co/image/ab67616d00001e02626ad9bb7d5f84c59652b161)
-
-**Album:** Surfer Rosa
-
-📅 2023-07-05 15:22:49
-
-
-# **Rapto** / Gustavo Cerati
-
-![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
-
-**Album:** Fuerza Natural
-
-📅 2023-07-05 15:18:53
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-05 15:14:10
+📅 2023-07-06 20:36:36
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -145,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-05 15:07:03
+📅 2023-07-06 20:33:06
 
 
 # **I Feel You** / Depeche Mode
@@ -154,40 +46,148 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-05 15:01:25
+📅 2023-07-06 20:27:39
 
 
-# **Alt. Fast Track** / Radiohead
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** KID A MNESIA
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-05 13:14:05
-
-
-# **Pyramid Strings** / Radiohead
-
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
-
-**Album:** KID A MNESIA
-
-📅 2023-07-05 13:13:52
+📅 2023-07-06 20:22:42
 
 
-# **The Morning Bell - In the Dark Version** / Radiohead
+# **Mercy in You** / Depeche Mode
 
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** KID A MNESIA
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-05 13:12:34
+📅 2023-07-06 18:24:51
 
 
-# **Untitled v2** / Radiohead
+# **Condemnation** / Depeche Mode
 
-![Foto del album: KID A MNESIA](https://i.scdn.co/image/ab67616d00001e02bbaaa8bf9aedb07135d2c6d3)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** KID A MNESIA
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-05 13:10:33
+📅 2023-07-06 18:24:48
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 18:21:18
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 18:15:52
+
+
+# **Voyeur** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2023-07-06 17:59:30
+
+
+# **Digital Lion** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2023-07-06 17:59:24
+
+
+# **DLM** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2023-07-06 17:54:37
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2023-07-06 17:52:11
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 17:41:55
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 17:12:04
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 17:08:33
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-06 17:03:07
+
+
+# **Love Foolosophy - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-06 16:34:41
+
+
+# **Little L - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-06 16:34:27
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-06 16:30:28
