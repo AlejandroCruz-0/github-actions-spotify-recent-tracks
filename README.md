@@ -13,85 +13,148 @@ Nombre: **lotario1999**
 
 
 
-# **I Feel You** / Depeche Mode
+# **Rhinestone Eyes** / Gorillaz
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Plastic Beach
 
-📅 2023-07-07 23:15:36
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 21:42:17
+📅 2023-07-08 18:05:33
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** iii
 
-📅 2023-07-07 16:48:02
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 16:47:35
+📅 2023-07-08 17:58:27
 
 
-# **I Feel You** / Depeche Mode
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Panic
 
-📅 2023-07-07 16:42:41
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 16:35:43
+📅 2023-07-08 17:53:19
 
 
-# **I Feel You** / Depeche Mode
+# **Tom The Model** / Beth Gibbons|Rustin Man
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Out Of Season
 
-📅 2023-07-07 16:30:13
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 15:50:07
+📅 2023-07-08 17:49:58
 
 
-# **In Your Room** / Depeche Mode
+# **Burn the Witch** / Radiohead
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** A Moon Shaped Pool
 
-📅 2023-07-07 12:02:09
+📅 2023-07-08 17:46:18
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-07-08 17:42:37
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-07-08 17:39:05
+
+
+# **Vertigo** / U2
+
+![Foto del album: How To Dismantle An Atomic Bomb](https://i.scdn.co/image/ab67616d00001e02c1c82c472d758f4945ac15a8)
+
+**Album:** How To Dismantle An Atomic Bomb
+
+📅 2023-07-08 17:31:03
+
+
+# **Imagine** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-07-08 17:23:15
+
+
+# **The Doomed** / A Perfect Circle
+
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+
+**Album:** Eat The Elephant
+
+📅 2023-07-08 17:18:27
+
+
+# **Passive** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-07-08 17:13:44
+
+
+# **Pet** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-08 17:09:17
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-08 17:04:42
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-08 17:01:02
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-08 16:57:46
+
+
+# **Judith** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-08 16:53:39
 
 
 # **Judas** / Depeche Mode
@@ -100,25 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-07 12:00:46
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 11:55:32
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 11:51:12
+📅 2023-07-08 16:48:48
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -127,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-07 11:47:41
+📅 2023-07-08 16:43:01
 
 
 # **I Feel You** / Depeche Mode
@@ -136,58 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-07 11:42:15
+📅 2023-07-08 16:37:34
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Pet** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Thirteenth Step
 
-📅 2023-07-07 10:17:57
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 10:05:16
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 10:00:41
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 09:07:45
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 09:07:37
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-07 08:55:12
+📅 2023-07-08 12:44:09
