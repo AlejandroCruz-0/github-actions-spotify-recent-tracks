@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **The Doomed** / A Perfect Circle
+
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+
+**Album:** Eat The Elephant
+
+📅 2023-07-10 00:29:04
+
+
+# **Passive** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-07-10 00:24:22
+
+
+# **Pet** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-10 00:20:11
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-10 00:15:37
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-10 00:11:56
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-10 00:08:41
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-09 20:06:24
+
+
 # **The Outsider** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** From the Vaults 1998-2006 Vol.1
 
 📅 2023-07-09 16:52:20
-
-
-# **Grazing Maize** / 9 Lazy 9
-
-![Foto del album: Sweet Jones](https://i.scdn.co/image/ab67616d00001e02f1a77deaeb74bf672139937c)
-
-**Album:** Sweet Jones
-
-📅 2023-07-09 16:51:15
-
-
-# **Olson** / Boards of Canada
-
-![Foto del album: Music Has The Right To Children](https://i.scdn.co/image/ab67616d00001e029effb26eea559ce6f3fed751)
-
-**Album:** Music Has The Right To Children
-
-📅 2023-07-09 16:50:01
-
-
-# **Blade** / Air
-
-![Foto del album: Blade](https://i.scdn.co/image/ab67616d00001e02182621034a86338e23e2715d)
-
-**Album:** Blade
-
-📅 2023-07-09 16:48:28
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-09 16:42:58
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 16:39:18
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 16:36:02
-
-
-# **Imagine** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-07-09 16:23:28
