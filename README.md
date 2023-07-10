@@ -19,133 +19,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-09 01:41:10
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-08 21:55:42
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-08 21:50:48
-
-
-# **Rhinestone Eyes** / Gorillaz
-
-![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
-
-**Album:** Plastic Beach
-
-📅 2023-07-08 18:05:33
-
-
-# **Genghis Khan** / Miike Snow
-
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
-
-**Album:** iii
-
-📅 2023-07-08 17:58:27
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-07-08 17:53:19
-
-
-# **Tom The Model** / Beth Gibbons|Rustin Man
-
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
-
-**Album:** Out Of Season
-
-📅 2023-07-08 17:49:58
-
-
-# **Burn the Witch** / Radiohead
-
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
-
-**Album:** A Moon Shaped Pool
-
-📅 2023-07-08 17:46:18
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-07-08 17:42:37
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2023-07-08 17:39:05
-
-
-# **Vertigo** / U2
-
-![Foto del album: How To Dismantle An Atomic Bomb](https://i.scdn.co/image/ab67616d00001e02c1c82c472d758f4945ac15a8)
-
-**Album:** How To Dismantle An Atomic Bomb
-
-📅 2023-07-08 17:31:03
-
-
-# **Imagine** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-07-08 17:23:15
-
-
-# **The Doomed** / A Perfect Circle
-
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
-
-**Album:** Eat The Elephant
-
-📅 2023-07-08 17:18:27
-
-
-# **Passive** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-07-08 17:13:44
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-08 17:09:17
+📅 2023-07-09 20:03:09
 
 
 # **3 Libras** / A Perfect Circle
@@ -154,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Mer De Noms
 
-📅 2023-07-08 17:04:42
+📅 2023-07-09 18:35:27
 
 
 # **Weak And Powerless** / A Perfect Circle
@@ -163,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-08 17:01:02
+📅 2023-07-09 18:35:14
 
 
 # **The Outsider** / A Perfect Circle
@@ -172,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-08 16:57:46
+📅 2023-07-09 18:31:59
 
 
 # **Judith** / A Perfect Circle
@@ -181,13 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** Mer De Noms
 
-📅 2023-07-08 16:53:39
+📅 2023-07-09 18:27:52
 
 
-# **Judas** / Depeche Mode
+# **Pet** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Thirteenth Step
 
-📅 2023-07-08 16:48:48
+📅 2023-07-09 18:19:58
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-09 18:15:23
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-09 18:11:43
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-09 18:08:27
+
+
+# **Are You Awake?** / Kevin Shields
+
+![Foto del album: Lost In Translation - Original Soundtrack](https://i.scdn.co/image/ab67616d00001e029110e52fc527cdaafb8a79d0)
+
+**Album:** Lost In Translation - Original Soundtrack
+
+📅 2023-07-09 16:57:14
+
+
+# **Clouds Up** / Air
+
+![Foto del album: The Virgin Suicides (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e025e3c18f342d16b0b4df04df2)
+
+**Album:** The Virgin Suicides (Original Motion Picture Score)
+
+📅 2023-07-09 16:55:39
+
+
+# **Post Houmous** / Morcheeba
+
+![Foto del album: Who Can You Trust? / Beats & B-Sides](https://i.scdn.co/image/ab67616d00001e02b1338feeb7124867dc9e4783)
+
+**Album:** Who Can You Trust? / Beats & B-Sides
+
+📅 2023-07-09 16:54:08
+
+
+# **Worker & Parasite** / Bent
+
+![Foto del album: From the Vaults 1998-2006 Vol.1](https://i.scdn.co/image/ab67616d00001e02669449d00170569f49d8712d)
+
+**Album:** From the Vaults 1998-2006 Vol.1
+
+📅 2023-07-09 16:52:20
+
+
+# **Grazing Maize** / 9 Lazy 9
+
+![Foto del album: Sweet Jones](https://i.scdn.co/image/ab67616d00001e02f1a77deaeb74bf672139937c)
+
+**Album:** Sweet Jones
+
+📅 2023-07-09 16:51:15
+
+
+# **Olson** / Boards of Canada
+
+![Foto del album: Music Has The Right To Children](https://i.scdn.co/image/ab67616d00001e029effb26eea559ce6f3fed751)
+
+**Album:** Music Has The Right To Children
+
+📅 2023-07-09 16:50:01
+
+
+# **Blade** / Air
+
+![Foto del album: Blade](https://i.scdn.co/image/ab67616d00001e02182621034a86338e23e2715d)
+
+**Album:** Blade
+
+📅 2023-07-09 16:48:28
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-09 16:42:58
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-09 16:39:18
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-09 16:36:02
+
+
+# **Imagine** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-07-09 16:23:28
