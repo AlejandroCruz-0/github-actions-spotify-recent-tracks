@@ -13,13 +13,175 @@ Nombre: **lotario1999**
 
 
 
+# **Higher Love** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 19:20:46
+
+
+# **One Caress** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 19:12:40
+
+
+# **Rush** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 19:09:05
+
+
+# **Get Right With Me** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 19:04:24
+
+
+# **In Your Room** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 19:00:32
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:54:08
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:48:54
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:44:31
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:41:01
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:35:28
+
+
+# **Rush** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:22:52
+
+
+# **Get Right With Me** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:18:11
+
+
+# **In Your Room** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:14:18
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:07:55
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 18:02:41
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 17:58:20
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 17:54:50
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-10 17:49:24
+
+
 # **The Doomed** / A Perfect Circle
 
 ![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
 **Album:** Eat The Elephant
 
-📅 2023-07-10 00:29:04
+📅 2023-07-10 17:44:09
 
 
 # **Passive** / A Perfect Circle
@@ -28,166 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** eMOTIVe
 
-📅 2023-07-10 00:24:22
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-10 00:20:11
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-10 00:15:37
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-10 00:11:56
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-10 00:08:41
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 20:06:24
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 20:03:09
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-09 18:35:27
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 18:35:14
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 18:31:59
-
-
-# **Judith** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-09 18:27:52
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 18:19:58
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-09 18:15:23
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 18:11:43
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-09 18:08:27
-
-
-# **Are You Awake?** / Kevin Shields
-
-![Foto del album: Lost In Translation - Original Soundtrack](https://i.scdn.co/image/ab67616d00001e029110e52fc527cdaafb8a79d0)
-
-**Album:** Lost In Translation - Original Soundtrack
-
-📅 2023-07-09 16:57:14
-
-
-# **Clouds Up** / Air
-
-![Foto del album: The Virgin Suicides (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e025e3c18f342d16b0b4df04df2)
-
-**Album:** The Virgin Suicides (Original Motion Picture Score)
-
-📅 2023-07-09 16:55:39
-
-
-# **Post Houmous** / Morcheeba
-
-![Foto del album: Who Can You Trust? / Beats & B-Sides](https://i.scdn.co/image/ab67616d00001e02b1338feeb7124867dc9e4783)
-
-**Album:** Who Can You Trust? / Beats & B-Sides
-
-📅 2023-07-09 16:54:08
-
-
-# **Worker & Parasite** / Bent
-
-![Foto del album: From the Vaults 1998-2006 Vol.1](https://i.scdn.co/image/ab67616d00001e02669449d00170569f49d8712d)
-
-**Album:** From the Vaults 1998-2006 Vol.1
-
-📅 2023-07-09 16:52:20
+📅 2023-07-10 17:39:27
