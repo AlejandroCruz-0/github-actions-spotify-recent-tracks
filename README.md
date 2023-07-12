@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **3 Libras** / A Perfect Circle
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Mer De Noms
+**Album:** The Magnificent Tree
 
-📅 2023-07-11 01:14:27
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-11 01:10:47
+📅 2023-07-11 20:47:44
 
 
 # **The Outsider** / A Perfect Circle
@@ -37,16 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-11 01:07:31
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-11 00:40:23
+📅 2023-07-11 20:39:52
 
 
 # **The Outsider** / A Perfect Circle
@@ -55,34 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-11 00:39:47
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-10 22:54:13
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-10 22:53:51
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-10 21:58:11
+📅 2023-07-11 20:34:10
 
 
 # **3 Libras** / A Perfect Circle
@@ -91,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Mer De Noms
 
-📅 2023-07-10 21:53:49
+📅 2023-07-11 20:01:07
 
 
 # **Weak And Powerless** / A Perfect Circle
@@ -100,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-10 21:50:08
+📅 2023-07-11 19:50:52
 
 
 # **The Outsider** / A Perfect Circle
@@ -109,16 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-10 21:46:53
-
-
-# **My Joy** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-10 19:31:52
+📅 2023-07-11 19:47:36
 
 
 # **Higher Love** / Depeche Mode
@@ -127,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 19:20:46
+📅 2023-07-11 19:17:10
 
 
 # **One Caress** / Depeche Mode
@@ -136,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 19:12:40
+📅 2023-07-11 19:16:23
 
 
 # **Rush** / Depeche Mode
@@ -145,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 19:09:05
+📅 2023-07-11 19:12:38
 
 
 # **Get Right With Me** / Depeche Mode
@@ -154,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 19:04:24
+📅 2023-07-11 19:07:57
 
 
 # **In Your Room** / Depeche Mode
@@ -163,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 19:00:32
+📅 2023-07-11 19:04:01
 
 
 # **Judas** / Depeche Mode
@@ -172,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 18:54:08
+📅 2023-07-11 18:57:38
 
 
 # **Mercy in You** / Depeche Mode
@@ -181,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 18:48:54
+📅 2023-07-11 18:47:24
 
 
 # **Condemnation** / Depeche Mode
@@ -190,4 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-10 18:44:31
+📅 2023-07-11 18:43:03
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-11 18:39:14
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-11 18:33:48
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-11 18:26:36
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-11 18:22:56
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-11 18:19:40
+
+
+# **Imagine** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-07-11 17:34:35
