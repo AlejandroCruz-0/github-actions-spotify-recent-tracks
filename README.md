@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-15 13:02:05
+
+
+# **Passive** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-07-15 10:32:29
+
+
+# **Pet** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-15 10:31:33
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-15 10:26:01
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-15 10:22:20
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-15 10:19:04
+
+
 # **Creep** / Radiohead
 
 ![Foto del album: Pablo Honey](https://i.scdn.co/image/ab67616d00001e02df55e326ed144ab4f5cecf95)
@@ -121,22 +175,13 @@ Nombre: **lotario1999**
 📅 2023-07-14 23:14:29
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Condemnation** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-14 21:38:25
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-14 21:33:00
+📅 2023-07-14 21:39:42
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -145,49 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-14 21:16:31
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-14 21:11:05
-
-
-# **Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)** / Rina Sawayama
-
-![Foto del album: Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b3b55f51aa9c8088e642728f)
-
-**Album:** Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)
-
-📅 2023-07-14 21:06:30
-
-
-# **Find the Flame** / 祖堅 正慶
-
-![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
-
-**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
-
-📅 2023-07-14 19:05:33
-
-
-# **Find the Flame** / 祖堅 正慶
-
-![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
-
-**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
-
-📅 2023-07-14 18:53:34
-
-
-# **Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)** / Rina Sawayama
-
-![Foto del album: Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b3b55f51aa9c8088e642728f)
-
-**Album:** Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)
-
-📅 2023-07-14 16:52:56
+📅 2023-07-14 21:38:25
