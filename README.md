@@ -19,79 +19,52 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-17 18:37:15
+📅 2023-07-18 12:52:22
 
 
-# **Piano Fire** / Sparklehorse|PJ Harvey
+# **Time is Running Out** / Muse
 
-![Foto del album: It's A Wonderful Life](https://i.scdn.co/image/ab67616d00001e02249e18bd7db232c8384924ce)
+![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
 
-**Album:** It's A Wonderful Life
+**Album:** Absolution
 
-📅 2023-07-17 17:53:05
-
-
-# **Down By The Water** / PJ Harvey
-
-![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
-
-**Album:** To Bring You My Love
-
-📅 2023-07-17 17:52:48
+📅 2023-07-18 12:44:58
 
 
-# **Genghis Khan** / Miike Snow
+# **I'll Keep Coming** / Low Roar
 
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
 
-**Album:** iii
+**Album:** 0
 
-📅 2023-07-17 17:49:35
-
-
-# **Rock the Casbah - Remastered** / The Clash
-
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
-
-**Album:** Combat Rock (Remastered)
-
-📅 2023-07-17 17:46:01
+📅 2023-07-18 12:44:46
 
 
-# **My Favourite Game** / The Cardigans
+# **Will Do** / TV On The Radio
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Nine Types of Light
 
-📅 2023-07-17 17:42:18
-
-
-# **Legendary** / Welshly Arms
-
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
-
-**Album:** No Place Is Home
-
-📅 2023-07-17 17:38:23
+📅 2023-07-18 12:38:53
 
 
-# **Burn the Witch** / Radiohead
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** A Moon Shaped Pool
+**Album:** Stop Making Sense (Live)
 
-📅 2023-07-17 17:34:25
+📅 2023-07-18 12:28:43
 
 
-# **Rock It for Me** / Caravan Palace
+# **No One Knows** / Queens of the Stone Age
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
 
-**Album:** Panic
+**Album:** Songs For The Deaf
 
-📅 2023-07-17 17:30:44
+📅 2023-07-18 12:24:37
 
 
 # **Two Weeks** / FKA twigs
@@ -100,70 +73,97 @@ Nombre: **lotario1999**
 
 **Album:** LP1
 
-📅 2023-07-17 17:26:46
+📅 2023-07-18 12:19:58
 
 
-# **Passive** / A Perfect Circle
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** eMOTIVe
+**Album:** The Mountain Will Fall
 
-📅 2023-07-17 16:20:10
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-17 16:19:34
+📅 2023-07-18 12:15:49
 
 
-# **3 Libras** / A Perfect Circle
+# **Elden Ring** / Tsukasa Saitoh
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Elden Ring (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a35cb6ace81ff193b8f6d088)
 
-**Album:** Mer De Noms
+**Album:** Elden Ring (Original Soundtrack)
 
-📅 2023-07-17 16:14:48
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-17 16:11:08
+📅 2023-07-18 12:11:38
 
 
-# **The Outsider** / A Perfect Circle
+# **Rules (Are Meant to Break)** / League of Legends|Che Lingo
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Rules (Are Meant to Break)](https://i.scdn.co/image/ab67616d00001e02f4ff1295afcbc11519f60ab3)
 
-**Album:** Thirteenth Step
+**Album:** Rules (Are Meant to Break)
 
-📅 2023-07-17 16:07:52
-
-
-# **To Sail Forbidden Seas** / 祖堅 正慶
-
-![Foto del album: FINAL FANTASY XVI Original Soundtrack (Prelude)](https://i.scdn.co/image/ab67616d00001e02a17f8d2466b7570a5ae18b85)
-
-**Album:** FINAL FANTASY XVI Original Soundtrack (Prelude)
-
-📅 2023-07-17 15:14:42
+📅 2023-07-18 12:09:58
 
 
-# **Bury the Light** / Casey Edwards|Victor Borba
+# **FAKEit** / SawanoHiroyuki[nZk]|Laco
 
-![Foto del album: Bury the Light](https://i.scdn.co/image/ab67616d00001e02c4a4a8f9190656455b6bf8c3)
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02e1a080eb6eb7a2a6dc1f7531)
 
-**Album:** Bury the Light
+**Album:** V
 
-📅 2023-07-17 15:10:18
+📅 2023-07-18 12:06:57
+
+
+# **Between Two Worlds - Realm of Darkness** / Mili
+
+![Foto del album: Between Two Worlds](https://i.scdn.co/image/ab67616d00001e02c14018e204ff2715e8947b52)
+
+**Album:** Between Two Worlds
+
+📅 2023-07-18 12:04:02
+
+
+# **The Catch** / Shady Cicada
+
+![Foto del album: The Catch](https://i.scdn.co/image/ab67616d00001e02be0bdceec7ce3c77c4d5a7c7)
+
+**Album:** The Catch
+
+📅 2023-07-18 12:01:05
+
+
+# **Spider-Woman (Gwen Stacy)** / Daniel Pemberton
+
+![Foto del album: Spider-Man: Across the Spider-Verse (Original Score)](https://i.scdn.co/image/ab67616d00001e02183a93277b6ceece310fa366)
+
+**Album:** Spider-Man: Across the Spider-Verse (Original Score)
+
+📅 2023-07-18 11:59:43
+
+
+# **Create Machines** / Venjent
+
+![Foto del album: Create Machines](https://i.scdn.co/image/ab67616d00001e02dcdfe3f4de9a482f084907e8)
+
+**Album:** Create Machines
+
+📅 2023-07-18 11:56:35
+
+
+# **自閉円頓裹** / 桶狭間ありさ
+
+![Foto del album: TVアニメ『呪術廻戦』オリジナル・サウンドトラック](https://i.scdn.co/image/ab67616d00001e029230f7c8dfff664d6ac2ad0b)
+
+**Album:** TVアニメ『呪術廻戦』オリジナル・サウンドトラック
+
+📅 2023-07-18 11:53:46
+
+
+# **GROOVY - OP ver.** / Lyn
+
+![Foto del album: Persona 5: Dancing in Starlight Soundtrack](https://i.scdn.co/image/ab67616d00001e0251fe1be79683590ebab347d2)
+
+**Album:** Persona 5: Dancing in Starlight Soundtrack
+
+📅 2023-07-18 11:51:52
 
 
 # **Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)** / Rina Sawayama
@@ -172,22 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)
 
-📅 2023-07-17 15:00:35
+📅 2023-07-18 11:50:09
 
 
-# **The First Hunter** / SIE Sound Team
+# **Tairitsu** / HEADLINK
 
-![Foto del album: Bloodborne Original Soundtrack](https://i.scdn.co/image/ab67616d00001e022472601180911ff89445cbc8)
+![Foto del album: Tairitsu](https://i.scdn.co/image/ab67616d00001e02283050693fb94a72463014cd)
 
-**Album:** Bloodborne Original Soundtrack
+**Album:** Tairitsu
 
-📅 2023-07-17 14:57:29
+📅 2023-07-18 11:47:04
 
 
-# **FFVII REMAKE: Hollow** / Yosh
+# **Find the Flame** / 祖堅 正慶
 
-![Foto del album: FINAL FANTASY VII REMAKE Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02ef17fcf2d5141177e3cafd7e)
+![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
 
-**Album:** FINAL FANTASY VII REMAKE Original Soundtrack
+**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
 
-📅 2023-07-17 14:52:18
+📅 2023-07-18 11:44:19
