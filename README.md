@@ -13,40 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **The Outsider** / A Perfect Circle
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Thirteenth Step
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-18 12:52:22
-
-
-# **Time is Running Out** / Muse
-
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
-
-**Album:** Absolution
-
-📅 2023-07-18 12:44:58
+📅 2023-07-19 19:05:32
 
 
-# **I'll Keep Coming** / Low Roar
+# **In Your Room** / Depeche Mode
 
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** 0
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-18 12:44:46
+📅 2023-07-19 18:13:35
 
 
-# **Will Do** / TV On The Radio
+# **Judas** / Depeche Mode
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Nine Types of Light
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-18 12:38:53
+📅 2023-07-19 18:10:28
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 18:05:14
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 18:00:52
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 17:57:23
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 17:51:20
 
 
 # **Burning Down the House - Live** / Talking Heads
@@ -55,16 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Stop Making Sense (Live)
 
-📅 2023-07-18 12:28:43
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-07-18 12:24:37
+📅 2023-07-19 16:58:22
 
 
 # **Two Weeks** / FKA twigs
@@ -73,97 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** LP1
 
-📅 2023-07-18 12:19:58
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2023-07-18 12:15:49
-
-
-# **Elden Ring** / Tsukasa Saitoh
-
-![Foto del album: Elden Ring (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a35cb6ace81ff193b8f6d088)
-
-**Album:** Elden Ring (Original Soundtrack)
-
-📅 2023-07-18 12:11:38
-
-
-# **Rules (Are Meant to Break)** / League of Legends|Che Lingo
-
-![Foto del album: Rules (Are Meant to Break)](https://i.scdn.co/image/ab67616d00001e02f4ff1295afcbc11519f60ab3)
-
-**Album:** Rules (Are Meant to Break)
-
-📅 2023-07-18 12:09:58
-
-
-# **FAKEit** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02e1a080eb6eb7a2a6dc1f7531)
-
-**Album:** V
-
-📅 2023-07-18 12:06:57
-
-
-# **Between Two Worlds - Realm of Darkness** / Mili
-
-![Foto del album: Between Two Worlds](https://i.scdn.co/image/ab67616d00001e02c14018e204ff2715e8947b52)
-
-**Album:** Between Two Worlds
-
-📅 2023-07-18 12:04:02
-
-
-# **The Catch** / Shady Cicada
-
-![Foto del album: The Catch](https://i.scdn.co/image/ab67616d00001e02be0bdceec7ce3c77c4d5a7c7)
-
-**Album:** The Catch
-
-📅 2023-07-18 12:01:05
-
-
-# **Spider-Woman (Gwen Stacy)** / Daniel Pemberton
-
-![Foto del album: Spider-Man: Across the Spider-Verse (Original Score)](https://i.scdn.co/image/ab67616d00001e02183a93277b6ceece310fa366)
-
-**Album:** Spider-Man: Across the Spider-Verse (Original Score)
-
-📅 2023-07-18 11:59:43
-
-
-# **Create Machines** / Venjent
-
-![Foto del album: Create Machines](https://i.scdn.co/image/ab67616d00001e02dcdfe3f4de9a482f084907e8)
-
-**Album:** Create Machines
-
-📅 2023-07-18 11:56:35
-
-
-# **自閉円頓裹** / 桶狭間ありさ
-
-![Foto del album: TVアニメ『呪術廻戦』オリジナル・サウンドトラック](https://i.scdn.co/image/ab67616d00001e029230f7c8dfff664d6ac2ad0b)
-
-**Album:** TVアニメ『呪術廻戦』オリジナル・サウンドトラック
-
-📅 2023-07-18 11:53:46
-
-
-# **GROOVY - OP ver.** / Lyn
-
-![Foto del album: Persona 5: Dancing in Starlight Soundtrack](https://i.scdn.co/image/ab67616d00001e0251fe1be79683590ebab347d2)
-
-**Album:** Persona 5: Dancing in Starlight Soundtrack
-
-📅 2023-07-18 11:51:52
+📅 2023-07-19 16:55:39
 
 
 # **Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)** / Rina Sawayama
@@ -172,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)
 
-📅 2023-07-18 11:50:09
+📅 2023-07-19 16:51:03
 
 
 # **Tairitsu** / HEADLINK
@@ -181,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Tairitsu
 
-📅 2023-07-18 11:47:04
+📅 2023-07-19 16:47:57
 
 
 # **Find the Flame** / 祖堅 正慶
@@ -190,4 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
 
-📅 2023-07-18 11:44:19
+📅 2023-07-19 16:45:07
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-19 16:41:22
+
+
+# **In Your Room** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 15:42:27
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 15:29:36
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 15:24:22
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 15:20:01
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 15:16:31
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-19 15:11:05
+
+
+# **The Hollow** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-19 15:05:31
