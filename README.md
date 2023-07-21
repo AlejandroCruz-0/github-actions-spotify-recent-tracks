@@ -13,76 +13,85 @@ Nombre: **lotario1999**
 
 
 
-# **I Feel You** / Depeche Mode
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-19 19:05:32
-
-
-# **In Your Room** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-19 18:13:35
+📅 2023-07-20 20:17:33
 
 
-# **Judas** / Depeche Mode
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-19 18:10:28
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-19 18:05:14
+📅 2023-07-20 20:13:44
 
 
-# **Condemnation** / Depeche Mode
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-19 18:00:52
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-19 17:57:23
+📅 2023-07-20 12:22:46
 
 
-# **I Feel You** / Depeche Mode
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-19 17:51:20
+📅 2023-07-20 12:21:59
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **High Times - Remastered** / Jamiroquai
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Stop Making Sense (Live)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-19 16:58:22
+📅 2023-07-20 12:17:12
+
+
+# **Alright - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-20 12:13:01
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-20 12:09:12
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-20 12:05:24
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-07-20 09:46:20
 
 
 # **Two Weeks** / FKA twigs
@@ -91,43 +100,16 @@ Nombre: **lotario1999**
 
 **Album:** LP1
 
-📅 2023-07-19 16:55:39
+📅 2023-07-20 09:46:04
 
 
-# **Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)** / Rina Sawayama
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b3b55f51aa9c8088e642728f)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)
+**Album:** The Mountain Will Fall
 
-📅 2023-07-19 16:51:03
-
-
-# **Tairitsu** / HEADLINK
-
-![Foto del album: Tairitsu](https://i.scdn.co/image/ab67616d00001e02283050693fb94a72463014cd)
-
-**Album:** Tairitsu
-
-📅 2023-07-19 16:47:57
-
-
-# **Find the Flame** / 祖堅 正慶
-
-![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
-
-**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
-
-📅 2023-07-19 16:45:07
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-19 16:41:22
+📅 2023-07-20 09:41:55
 
 
 # **In Your Room** / Depeche Mode
@@ -136,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:42:27
+📅 2023-07-20 09:35:32
 
 
 # **Judas** / Depeche Mode
@@ -145,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:29:36
+📅 2023-07-20 09:29:08
 
 
 # **Mercy in You** / Depeche Mode
@@ -154,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:24:22
+📅 2023-07-20 09:23:54
 
 
 # **Condemnation** / Depeche Mode
@@ -163,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:20:01
+📅 2023-07-20 09:19:34
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -172,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:16:31
+📅 2023-07-20 09:16:03
 
 
 # **I Feel You** / Depeche Mode
@@ -181,13 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:11:05
+📅 2023-07-20 09:10:37
 
 
-# **The Hollow** / A Perfect Circle
+# **Get Right With Me** / Depeche Mode
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Mer De Noms
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-19 15:05:31
+📅 2023-07-20 09:03:51
+
+
+# **In Your Room** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-20 08:59:58
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-20 08:53:35
