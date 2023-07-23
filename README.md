@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-22 23:07:31
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-22 23:04:15
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-22 22:59:12
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-22 22:42:00
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2023-07-22 18:56:40
+
+
 # **Criminal** / Fiona Apple
 
 ![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Mer De Noms
 
 📅 2023-07-21 09:04:03
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-21 09:03:22
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-21 09:00:06
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-21 08:51:37
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-21 08:46:23
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-21 08:42:02
