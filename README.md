@@ -19,6 +19,123 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
+📅 2023-07-23 19:31:18
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-07-23 19:27:56
+
+
+# **Find the Flame** / 祖堅 正慶
+
+![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
+
+**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
+
+📅 2023-07-23 19:20:32
+
+
+# **新選組** / 藤澤健至
+
+![Foto del album: TVアニメ『ブッチギレ』オリジナル・サウンドトラック](https://i.scdn.co/image/ab67616d00001e0258de72422f1f98a2e5ecd354)
+
+**Album:** TVアニメ『ブッチギレ』オリジナル・サウンドトラック
+
+📅 2023-07-23 12:52:19
+
+
+# **Embers** / HOYO-MiX|林一凡
+
+![Foto del album: Honkai: Star Rail - Of Snow and Ember (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e83da6ef81402f30929f21cc)
+
+**Album:** Honkai: Star Rail - Of Snow and Ember (Original Game Soundtrack)
+
+📅 2023-07-23 12:52:02
+
+
+# **Entrance To The Scarlet Void** / Within The Void
+
+![Foto del album: Delusions of Grandeur](https://i.scdn.co/image/ab67616d00001e02a9bc7725e103a242eedb170d)
+
+**Album:** Delusions of Grandeur
+
+📅 2023-07-23 12:50:39
+
+
+# **Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)** / Rina Sawayama
+
+![Foto del album: Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b3b55f51aa9c8088e642728f)
+
+**Album:** Eye For An Eye (Single from John Wick: Chapter 4 Original Motion Picture Soundtrack)
+
+📅 2023-07-23 12:49:28
+
+
+# **銀翼の凶星 〜 バルファルク** / 裏谷玲央
+
+![Foto del album: モンスターハンター 狩猟音楽集XX](https://i.scdn.co/image/ab67616d00001e020bfd6516fa9b1af51c68903d)
+
+**Album:** モンスターハンター 狩猟音楽集XX
+
+📅 2023-07-23 12:46:23
+
+
+# **Find the Flame** / 祖堅 正慶
+
+![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
+
+**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
+
+📅 2023-07-23 12:43:05
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-07-23 12:27:18
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-07-23 12:22:38
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-07-23 12:18:30
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-07-22 23:19:42
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
 📅 2023-07-22 23:07:31
 
 
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** LP1
 
 📅 2023-07-22 18:50:28
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-22 18:46:02
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-22 18:39:22
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-22 18:39:20
-
-
-# **Moves Like Jagger - Studio Recording From "The Voice" Performance** / Maroon 5|Christina Aguilera
-
-![Foto del album: Hands All Over (Revised International Standard version)](https://i.scdn.co/image/ab67616d00001e029585ff55fff75c5c07a619cb)
-
-**Album:** Hands All Over (Revised International Standard version)
-
-📅 2023-07-22 10:26:45
-
-
-# **Animals** / Maroon 5
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
-
-**Album:** V
-
-📅 2023-07-22 10:25:31
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-22 10:21:03
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-22 10:14:55
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-21 10:29:06
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-21 10:28:52
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-21 10:23:25
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-21 09:25:59
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-21 09:25:15
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-21 09:04:03
