@@ -13,31 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-25 19:14:28
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-25 19:09:14
-
-
 # **Condemnation** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-25 19:04:54
+📅 2023-07-26 13:28:06
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -46,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-25 19:01:25
+📅 2023-07-26 13:27:52
 
 
 # **I Feel You** / Depeche Mode
@@ -55,124 +37,124 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-25 18:55:59
+📅 2023-07-26 13:22:25
 
 
-# **Legendary** / Welshly Arms
+# **So Long, And Thanks For All The Fish** / A Perfect Circle
 
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
-**Album:** No Place Is Home
+**Album:** Eat The Elephant
 
-📅 2023-07-25 18:37:35
+📅 2023-07-26 12:32:44
 
 
-# **Beetlebum - 2012 Remaster** / Blur
+# **Imagine** / A Perfect Circle
 
-![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Blur (Special Edition)
+**Album:** eMOTIVe
 
-📅 2023-07-25 18:33:43
+📅 2023-07-26 12:31:19
 
 
-# **Plug in Baby** / Muse
+# **The Doomed** / A Perfect Circle
 
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
-**Album:** Origin of Symmetry
+**Album:** Eat The Elephant
 
-📅 2023-07-25 18:28:33
+📅 2023-07-26 12:26:31
 
 
-# **Tom The Model** / Beth Gibbons|Rustin Man
+# **Passive** / A Perfect Circle
 
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Out Of Season
+**Album:** eMOTIVe
 
-📅 2023-07-25 18:24:53
+📅 2023-07-26 12:21:43
 
 
-# **Burn the Witch** / Radiohead
+# **Pet** / A Perfect Circle
 
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** A Moon Shaped Pool
+**Album:** Thirteenth Step
 
-📅 2023-07-25 18:21:13
+📅 2023-07-26 12:17:32
 
 
-# **Rock It for Me** / Caravan Palace
+# **3 Libras** / A Perfect Circle
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** Panic
+**Album:** Mer De Noms
 
-📅 2023-07-25 18:17:32
+📅 2023-07-26 12:12:51
 
 
-# **Electric Worry** / Clutch
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** From Beale Street to Oblivion
+**Album:** Thirteenth Step
 
-📅 2023-07-25 18:07:45
+📅 2023-07-26 12:09:11
 
 
-# **Criminal** / Fiona Apple
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Tidal
+**Album:** Thirteenth Step
 
-📅 2023-07-25 18:04:47
+📅 2023-07-26 12:05:55
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **3 Libras** / A Perfect Circle
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** Stop Making Sense (Live)
+**Album:** Mer De Noms
 
-📅 2023-07-25 17:59:04
+📅 2023-07-26 11:56:25
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Songs For The Deaf
+**Album:** Thirteenth Step
 
-📅 2023-07-25 17:54:57
+📅 2023-07-26 11:52:42
 
 
-# **Two Weeks** / FKA twigs
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** LP1
+**Album:** Thirteenth Step
 
-📅 2023-07-25 17:50:18
+📅 2023-07-26 11:49:26
 
 
-# **You Give Me Something** / Jamiroquai
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-25 17:45:32
+📅 2023-07-26 09:22:35
 
 
-# **Corner of the Earth - Remastered** / Jamiroquai
+# **I Feel You** / Depeche Mode
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-25 17:42:12
+📅 2023-07-26 09:22:11
 
 
 # **Love Foolosophy - Remastered** / Jamiroquai
@@ -181,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-07-25 17:38:14
+📅 2023-07-26 08:41:22
 
 
 # **Little L - Remastered** / Jamiroquai
@@ -190,4 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-07-25 17:34:26
+📅 2023-07-26 08:40:58
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-26 08:36:59
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-26 08:33:10
