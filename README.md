@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Animals** / Maroon 5
+
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+
+**Album:** V
+
+📅 2023-07-28 22:54:35
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-07-28 22:50:44
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-07-28 22:14:33
+
+
 # **Deeper Underground - Full Version** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** High Times: Singles 1992-2006
 
 📅 2023-07-28 12:53:36
-
-
-# **Love Foolosophy - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-28 12:49:40
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-28 12:45:51
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-28 12:41:52
