@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Animals** / Maroon 5
+# **Blood Of The Past** / The Comet Is Coming|Kae Tempest
 
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+![Foto del album: Trust In The Lifeforce Of The Deep Mystery](https://i.scdn.co/image/ab67616d00001e02ef177fbe4b4fe7c99ea5bb8e)
 
-**Album:** V
+**Album:** Trust In The Lifeforce Of The Deep Mystery
 
-📅 2023-07-28 22:54:35
+📅 2023-07-29 20:40:50
 
 
-# **Bones** / Imagine Dragons
+# **New Conception of Jazz** / Bugge Wesseltoft
 
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+![Foto del album: New Conception of Jazz](https://i.scdn.co/image/ab67616d00001e02dd32cf078a494bb97d51ff62)
 
-**Album:** Bones
+**Album:** New Conception of Jazz
 
-📅 2023-07-28 22:50:44
+📅 2023-07-29 20:32:34
 
 
-# **Canned Heat - Remastered** / Jamiroquai
+# **All These People** / Sungazer
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Perihelion
 
-📅 2023-07-28 22:14:33
+📅 2023-07-29 20:27:23
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **By And Down The River** / A Perfect Circle
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Eat The Elephant
 
-📅 2023-07-28 20:34:02
+📅 2023-07-29 20:04:05
 
 
-# **Judas** / Depeche Mode
+# **Counting Bodies Like Sheep To The Rhythm Of The War Drums** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** eMOTIVe
 
-📅 2023-07-28 15:41:32
+📅 2023-07-29 19:58:59
 
 
-# **Mercy in You** / Depeche Mode
+# **The Hollow** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Mer De Noms
 
-📅 2023-07-28 15:39:20
+📅 2023-07-29 19:53:22
 
 
-# **Condemnation** / Depeche Mode
+# **So Long, And Thanks For All The Fish** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Eat The Elephant
 
-📅 2023-07-28 15:35:00
+📅 2023-07-29 19:50:23
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Imagine** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** eMOTIVe
 
-📅 2023-07-28 15:31:30
+📅 2023-07-29 19:45:56
 
 
-# **I Feel You** / Depeche Mode
+# **The Doomed** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Eat The Elephant
 
-📅 2023-07-28 15:26:03
+📅 2023-07-29 19:41:08
 
 
-# **Two Weeks** / FKA twigs
+# **Passive** / A Perfect Circle
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** LP1
+**Album:** eMOTIVe
 
-📅 2023-07-28 15:19:58
+📅 2023-07-29 19:36:26
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
+# **Pet** / A Perfect Circle
 
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** The Mountain Will Fall
+**Album:** Thirteenth Step
 
-📅 2023-07-28 15:15:50
+📅 2023-07-29 19:32:15
 
 
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
+# **3 Libras** / A Perfect Circle
 
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** Gloria
+**Album:** Mer De Noms
 
-📅 2023-07-28 13:31:05
+📅 2023-07-29 19:27:40
 
 
-# **Animals** / Maroon 5
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** V
+**Album:** Thirteenth Step
 
-📅 2023-07-28 13:30:52
+📅 2023-07-29 19:24:00
 
 
-# **Bones** / Imagine Dragons
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Bones
+**Album:** Thirteenth Step
 
-📅 2023-07-28 13:27:00
+📅 2023-07-29 19:20:45
 
 
-# **Bones** / Imagine Dragons
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Bones
+**Album:** Thirteenth Step
 
-📅 2023-07-28 13:24:09
+📅 2023-07-29 18:46:22
 
 
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
+# **Imagine** / A Perfect Circle
 
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Gloria
+**Album:** eMOTIVe
 
-📅 2023-07-28 13:18:39
+📅 2023-07-29 17:46:29
 
 
-# **Animals** / Maroon 5
+# **The Doomed** / A Perfect Circle
 
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
 
-**Album:** V
+**Album:** Eat The Elephant
 
-📅 2023-07-28 13:05:58
+📅 2023-07-29 17:33:11
 
 
-# **Bones** / Imagine Dragons
+# **Passive** / A Perfect Circle
 
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Bones
+**Album:** eMOTIVe
 
-📅 2023-07-28 13:02:07
+📅 2023-07-29 17:28:29
 
 
-# **You Give Me Something** / Jamiroquai
+# **Pet** / A Perfect Circle
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Thirteenth Step
 
-📅 2023-07-28 12:54:14
+📅 2023-07-29 17:24:18
 
 
-# **Corner of the Earth - Remastered** / Jamiroquai
+# **3 Libras** / A Perfect Circle
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Mer De Noms
 
-📅 2023-07-28 12:53:36
+📅 2023-07-29 17:19:44
