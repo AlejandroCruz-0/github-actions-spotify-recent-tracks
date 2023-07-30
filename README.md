@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Blood Of The Past** / The Comet Is Coming|Kae Tempest
+# **One Caress** / Depeche Mode
 
-![Foto del album: Trust In The Lifeforce Of The Deep Mystery](https://i.scdn.co/image/ab67616d00001e02ef177fbe4b4fe7c99ea5bb8e)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Trust In The Lifeforce Of The Deep Mystery
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 20:40:50
+📅 2023-07-30 00:27:43
 
 
-# **New Conception of Jazz** / Bugge Wesseltoft
+# **Rush** / Depeche Mode
 
-![Foto del album: New Conception of Jazz](https://i.scdn.co/image/ab67616d00001e02dd32cf078a494bb97d51ff62)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** New Conception of Jazz
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 20:32:34
+📅 2023-07-30 00:24:09
 
 
-# **All These People** / Sungazer
+# **Get Right With Me** / Depeche Mode
 
-![Foto del album: Perihelion](https://i.scdn.co/image/ab67616d00001e02c82c6be5bf2e4bfe2eb6e656)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Perihelion
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 20:27:23
+📅 2023-07-30 00:19:27
 
 
-# **By And Down The River** / A Perfect Circle
+# **In Your Room** / Depeche Mode
 
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Eat The Elephant
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 20:04:05
+📅 2023-07-30 00:15:35
 
 
-# **Counting Bodies Like Sheep To The Rhythm Of The War Drums** / A Perfect Circle
+# **Judas** / Depeche Mode
 
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** eMOTIVe
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 19:58:59
+📅 2023-07-30 00:09:12
 
 
-# **The Hollow** / A Perfect Circle
+# **Mercy in You** / Depeche Mode
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Mer De Noms
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 19:53:22
+📅 2023-07-30 00:03:58
 
 
-# **So Long, And Thanks For All The Fish** / A Perfect Circle
+# **Condemnation** / Depeche Mode
 
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Eat The Elephant
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 19:50:23
+📅 2023-07-29 23:59:36
 
 
-# **Imagine** / A Perfect Circle
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** eMOTIVe
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 19:45:56
+📅 2023-07-29 23:56:07
 
 
-# **The Doomed** / A Perfect Circle
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Eat The Elephant
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-29 19:41:08
+📅 2023-07-29 23:50:40
 
 
-# **Passive** / A Perfect Circle
+# **Mad About You** / Hooverphonic
 
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** eMOTIVe
+**Album:** The Magnificent Tree
 
-📅 2023-07-29 19:36:26
+📅 2023-07-29 23:45:49
 
 
-# **Pet** / A Perfect Circle
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Thirteenth Step
+**Album:** The Magnificent Tree
 
-📅 2023-07-29 19:32:15
+📅 2023-07-29 23:42:05
 
 
-# **3 Libras** / A Perfect Circle
+# **Desafinado** / Stan Getz|Charlie Byrd
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Jazz Samba](https://i.scdn.co/image/ab67616d00001e02edcbd173b4b497f405e1c49b)
 
-**Album:** Mer De Noms
+**Album:** Jazz Samba
 
-📅 2023-07-29 19:27:40
+📅 2023-07-29 22:39:24
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Elle** / Christian Prommer's Drumlesson
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Drum Lesson, Vol. 1](https://i.scdn.co/image/ab67616d00001e02cbd2031bd757f310e2a1b864)
 
-**Album:** Thirteenth Step
+**Album:** Drum Lesson, Vol. 1
 
-📅 2023-07-29 19:24:00
+📅 2023-07-29 22:35:19
 
 
-# **The Outsider** / A Perfect Circle
+# **Journey Through the Asteroid Belt** / The Comet Is Coming
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Channel the Spirits](https://i.scdn.co/image/ab67616d00001e02b5e14392c3d66e8cd86d9832)
 
-**Album:** Thirteenth Step
+**Album:** Channel the Spirits
 
-📅 2023-07-29 19:20:45
+📅 2023-07-29 22:31:27
 
 
-# **The Outsider** / A Perfect Circle
+# **No Use feat. Clara Hill** / Jazzanova|Clara Hill
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: In Between](https://i.scdn.co/image/ab67616d00001e02d1f426f3c501bdf0b6a78af3)
 
-**Album:** Thirteenth Step
+**Album:** In Between
 
-📅 2023-07-29 18:46:22
+📅 2023-07-29 22:25:54
 
 
-# **Imagine** / A Perfect Circle
+# **Honeydew** / Mr. Scruff|Feebi
 
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+![Foto del album: Keep It Unreal (10th Anniversary Analogue Remaster Edition)](https://i.scdn.co/image/ab67616d00001e02ebf9b740c7d90d636f347ae1)
 
-**Album:** eMOTIVe
+**Album:** Keep It Unreal (10th Anniversary Analogue Remaster Edition)
 
-📅 2023-07-29 17:46:29
+📅 2023-07-29 22:21:43
 
 
-# **The Doomed** / A Perfect Circle
+# **Apex - Live** / Jaga Jazzist
 
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+![Foto del album: The Tower](https://i.scdn.co/image/ab67616d00001e02dd4865e015ad0951aef75aa8)
 
-**Album:** Eat The Elephant
+**Album:** The Tower
 
-📅 2023-07-29 17:33:11
+📅 2023-07-29 22:14:06
 
 
-# **Passive** / A Perfect Circle
+# **Wormholes** / 4hero
 
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+![Foto del album: Two Pages](https://i.scdn.co/image/ab67616d00001e0296c05bb21deb89979f9acebb)
 
-**Album:** eMOTIVe
+**Album:** Two Pages
 
-📅 2023-07-29 17:28:29
+📅 2023-07-29 22:06:08
 
 
-# **Pet** / A Perfect Circle
+# **Asteria** / Donny McCaslin
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Stria](https://i.scdn.co/image/ab67616d00001e02d23fbc398e83ca3bd7c88cc0)
 
-**Album:** Thirteenth Step
+**Album:** Stria
 
-📅 2023-07-29 17:24:18
+📅 2023-07-29 22:05:35
 
 
-# **3 Libras** / A Perfect Circle
+# **Card Trick** / Red Snapper
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Hyena](https://i.scdn.co/image/ab67616d00001e0275e73edec617374a5c430598)
 
-**Album:** Mer De Noms
+**Album:** Hyena
 
-📅 2023-07-29 17:19:44
+📅 2023-07-29 22:00:29
