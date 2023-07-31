@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Sledgehammer - Remastered** / Peter Gabriel
+
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+
+**Album:** So (Special Edition)
+
+📅 2023-07-30 18:43:18
+
+
 # **3 Libras** / A Perfect Circle
 
 ![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2023-07-30 10:06:21
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-30 10:03:05
