@@ -13,94 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Continentales** / Macha Y El Bloque Depresivo
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: Macha y el Bloque Depresivo](https://i.scdn.co/image/ab67616d00001e029ef6c7b2224fea4a10d9980e)
 
-**Album:** So (Special Edition)
+**Album:** Macha y el Bloque Depresivo
 
-📅 2023-07-30 18:43:18
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-30 18:41:17
+📅 2023-07-31 20:18:14
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Cactus** / Gustavo Cerati
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
 
-**Album:** Thirteenth Step
+**Album:** Fuerza Natural
 
-📅 2023-07-30 18:37:36
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-30 18:34:21
+📅 2023-07-31 20:15:29
 
 
-# **Human Behaviour** / Björk
+# **Cuentame Una Historia Original** / Los Prisioneros
 
-![Foto del album: Debut](https://i.scdn.co/image/ab67616d00001e026a035608384de03ffe9930a3)
+![Foto del album: Corazones](https://i.scdn.co/image/ab67616d00001e0298daeb6fc14ffafc7abaa4c6)
 
-**Album:** Debut
+**Album:** Corazones
 
-📅 2023-07-30 14:40:13
-
-
-# **Get Right With Me** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-30 12:41:45
+📅 2023-07-31 20:11:33
 
 
-# **In Your Room** / Depeche Mode
+# **Sr. Cobranza** / Bersuit Vergarabat
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Libertinaje](https://i.scdn.co/image/ab67616d00001e02a0fc7851f47a216e9a902aa6)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Libertinaje
 
-📅 2023-07-30 12:41:06
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-30 12:34:42
+📅 2023-07-31 20:07:43
 
 
-# **New Sensation** / INXS
+# **Me Van a Matar** / Julieta Venegas
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
 
-**Album:** Kick (Remastered 2011)
+**Album:** Escena Alterlatina
 
-📅 2023-07-30 11:39:00
+📅 2023-07-31 20:02:47
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Rapto** / Gustavo Cerati
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
 
-**Album:** So (Special Edition)
+**Album:** Fuerza Natural
 
-📅 2023-07-30 11:38:55
+📅 2023-07-31 19:58:45
 
 
 # **The Outsider** / A Perfect Circle
@@ -109,7 +73,97 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-30 11:32:57
+📅 2023-07-31 19:53:17
+
+
+# **Time is Running Out** / Muse
+
+![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
+
+**Album:** Absolution
+
+📅 2023-07-31 19:29:07
+
+
+# **I'll Keep Coming** / Low Roar
+
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+
+**Album:** 0
+
+📅 2023-07-31 19:26:24
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-07-31 19:20:32
+
+
+# **Hells Bells** / AC/DC
+
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+
+**Album:** Back In Black
+
+📅 2023-07-31 19:16:46
+
+
+# **Immigrant Song - Remaster** / Led Zeppelin
+
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
+
+**Album:** Led Zeppelin III (Remaster)
+
+📅 2023-07-31 19:11:33
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2023-07-31 19:09:07
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-07-31 19:03:51
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-07-31 18:57:59
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-07-31 18:53:10
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-07-31 18:48:41
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -118,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-30 11:28:25
+📅 2023-07-31 18:45:11
 
 
 # **I Feel You** / Depeche Mode
@@ -127,67 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-07-30 11:22:58
+📅 2023-07-31 18:39:39
 
 
-# **So Long, And Thanks For All The Fish** / A Perfect Circle
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Eat The Elephant
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-07-30 10:30:34
-
-
-# **Imagine** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-07-30 10:28:17
-
-
-# **The Doomed** / A Perfect Circle
-
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
-
-**Album:** Eat The Elephant
-
-📅 2023-07-30 10:23:28
-
-
-# **Passive** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-07-30 10:18:46
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-30 10:14:35
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-07-30 10:10:01
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-07-30 10:06:21
+📅 2023-07-31 18:29:29
