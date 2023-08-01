@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Bolero Falaz** / Aterciopelados
+
+![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
+
+**Album:** Originales - 20 Exitos
+
+📅 2023-07-31 22:25:48
+
+
+# **Cómo Sé** / Julieta Venegas
+
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+
+**Album:** Aqui
+
+📅 2023-07-31 22:22:03
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-07-31 22:18:51
+
+
+# **Bolero Falaz** / Aterciopelados
+
+![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
+
+**Album:** Originales - 20 Exitos
+
+📅 2023-07-31 22:15:17
+
+
+# **Cómo Sé** / Julieta Venegas
+
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+
+**Album:** Aqui
+
+📅 2023-07-31 22:11:31
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-07-31 22:08:18
+
+
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2023-07-31 22:04:53
+
+
+# **Déjate Caer** / Los Tres
+
+![Foto del album: La Espada & la Pared](https://i.scdn.co/image/ab67616d00001e0278310de37af0875569acc411)
+
+**Album:** La Espada & la Pared
+
+📅 2023-07-31 22:00:10
+
+
+# **Sembrando En El Mar** / Lucybell
+
+![Foto del album: Lucybell](https://i.scdn.co/image/ab67616d00001e02ee992ff7581756f94af1cd41)
+
+**Album:** Lucybell
+
+📅 2023-07-31 20:19:27
+
+
 # **Continentales** / Macha Y El Bloque Depresivo
 
 ![Foto del album: Macha y el Bloque Depresivo](https://i.scdn.co/image/ab67616d00001e029ef6c7b2224fea4a10d9980e)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Back In Black
 
 📅 2023-07-31 19:16:46
-
-
-# **Immigrant Song - Remaster** / Led Zeppelin
-
-![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
-
-**Album:** Led Zeppelin III (Remaster)
-
-📅 2023-07-31 19:11:33
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2023-07-31 19:09:07
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2023-07-31 19:03:51
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-07-31 18:57:59
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-07-31 18:53:10
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-31 18:48:41
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-31 18:45:11
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-07-31 18:39:39
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-07-31 18:29:29
