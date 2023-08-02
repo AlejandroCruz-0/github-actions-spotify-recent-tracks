@@ -13,139 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Bolero Falaz** / Aterciopelados
+# **3 Libras** / A Perfect Circle
 
-![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** Originales - 20 Exitos
+**Album:** Mer De Noms
 
-📅 2023-07-31 22:25:48
+📅 2023-08-01 19:34:46
 
 
-# **Cómo Sé** / Julieta Venegas
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Aqui
+**Album:** Thirteenth Step
 
-📅 2023-07-31 22:22:03
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-07-31 22:18:51
-
-
-# **Bolero Falaz** / Aterciopelados
-
-![Foto del album: Originales - 20 Exitos](https://i.scdn.co/image/ab67616d00001e025d9e4fdf6bcdd703d0065cb4)
-
-**Album:** Originales - 20 Exitos
-
-📅 2023-07-31 22:15:17
-
-
-# **Cómo Sé** / Julieta Venegas
-
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
-
-**Album:** Aqui
-
-📅 2023-07-31 22:11:31
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-07-31 22:08:18
-
-
-# **Rompecabezas** / Aterciopelados
-
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
-
-**Album:** Gozo Poderoso
-
-📅 2023-07-31 22:04:53
-
-
-# **Déjate Caer** / Los Tres
-
-![Foto del album: La Espada & la Pared](https://i.scdn.co/image/ab67616d00001e0278310de37af0875569acc411)
-
-**Album:** La Espada & la Pared
-
-📅 2023-07-31 22:00:10
-
-
-# **Sembrando En El Mar** / Lucybell
-
-![Foto del album: Lucybell](https://i.scdn.co/image/ab67616d00001e02ee992ff7581756f94af1cd41)
-
-**Album:** Lucybell
-
-📅 2023-07-31 20:19:27
-
-
-# **Continentales** / Macha Y El Bloque Depresivo
-
-![Foto del album: Macha y el Bloque Depresivo](https://i.scdn.co/image/ab67616d00001e029ef6c7b2224fea4a10d9980e)
-
-**Album:** Macha y el Bloque Depresivo
-
-📅 2023-07-31 20:18:14
-
-
-# **Cactus** / Gustavo Cerati
-
-![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
-
-**Album:** Fuerza Natural
-
-📅 2023-07-31 20:15:29
-
-
-# **Cuentame Una Historia Original** / Los Prisioneros
-
-![Foto del album: Corazones](https://i.scdn.co/image/ab67616d00001e0298daeb6fc14ffafc7abaa4c6)
-
-**Album:** Corazones
-
-📅 2023-07-31 20:11:33
-
-
-# **Sr. Cobranza** / Bersuit Vergarabat
-
-![Foto del album: Libertinaje](https://i.scdn.co/image/ab67616d00001e02a0fc7851f47a216e9a902aa6)
-
-**Album:** Libertinaje
-
-📅 2023-07-31 20:07:43
-
-
-# **Me Van a Matar** / Julieta Venegas
-
-![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
-
-**Album:** Escena Alterlatina
-
-📅 2023-07-31 20:02:47
-
-
-# **Rapto** / Gustavo Cerati
-
-![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
-
-**Album:** Fuerza Natural
-
-📅 2023-07-31 19:58:45
+📅 2023-08-01 19:31:05
 
 
 # **The Outsider** / A Perfect Circle
@@ -154,25 +37,115 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-07-31 19:53:17
+📅 2023-08-01 19:27:50
 
 
-# **Time is Running Out** / Muse
+# **Criminal** / Fiona Apple
 
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Absolution
+**Album:** Tidal
 
-📅 2023-07-31 19:29:07
+📅 2023-08-01 18:58:47
 
 
-# **I'll Keep Coming** / Low Roar
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
 
-**Album:** 0
+**Album:** Stop Making Sense (Live)
 
-📅 2023-07-31 19:26:24
+📅 2023-08-01 18:57:33
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-08-01 18:53:27
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-08-01 18:48:47
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-08-01 18:44:39
+
+
+# **Oregano** / Chilly Gonzales
+
+![Foto del album: Solo Piano](https://i.scdn.co/image/ab67616d00001e0282bc551d02383eeecc17ff1c)
+
+**Album:** Solo Piano
+
+📅 2023-08-01 17:05:14
+
+
+# **Jungle Fever** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-01 17:05:02
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-01 17:04:33
+
+
+# **Animals** / Maroon 5
+
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+
+**Album:** V
+
+📅 2023-08-01 11:36:55
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-08-01 11:33:04
+
+
+# **Lotus Flower** / Radiohead
+
+![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+
+**Album:** The King Of Limbs
+
+📅 2023-08-01 11:03:57
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-08-01 10:58:55
 
 
 # **Will Do** / TV On The Radio
@@ -181,13 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2023-07-31 19:20:32
+📅 2023-08-01 10:54:49
 
 
-# **Hells Bells** / AC/DC
+# **Dead and Gone - 2021 Remaster** / The Black Keys
 
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
 
-**Album:** Back In Black
+**Album:** El Camino (10th Anniversary Super Deluxe Edition)
 
-📅 2023-07-31 19:16:46
+📅 2023-08-01 10:51:03
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-01 10:46:23
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-01 10:42:39
+
+
+# **My Very Best** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2023-08-01 10:38:30
