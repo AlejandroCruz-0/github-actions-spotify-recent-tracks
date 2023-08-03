@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **3 Libras** / A Perfect Circle
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Mer De Noms
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-08-01 19:34:46
+📅 2023-08-02 13:19:52
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Love Foolosophy - Remastered** / Jamiroquai
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Thirteenth Step
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-08-01 19:31:05
+📅 2023-08-02 12:56:04
 
 
-# **The Outsider** / A Perfect Circle
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Thirteenth Step
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-08-01 19:27:50
+📅 2023-08-02 12:55:11
 
 
-# **Criminal** / Fiona Apple
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Tidal
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-08-01 18:58:47
+📅 2023-08-02 12:51:12
 
 
-# **Burning Down the House - Live** / Talking Heads
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Stop Making Sense (Live)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-08-01 18:57:33
+📅 2023-08-02 12:47:22
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Piano Fire** / Sparklehorse|PJ Harvey
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: It's A Wonderful Life](https://i.scdn.co/image/ab67616d00001e02249e18bd7db232c8384924ce)
 
-**Album:** Songs For The Deaf
+**Album:** It's A Wonderful Life
 
-📅 2023-08-01 18:53:27
+📅 2023-08-02 12:02:51
 
 
-# **Two Weeks** / FKA twigs
+# **Down By The Water** / PJ Harvey
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
 
-**Album:** LP1
+**Album:** To Bring You My Love
 
-📅 2023-08-01 18:48:47
+📅 2023-08-02 12:00:48
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** The Mountain Will Fall
+**Album:** iii
 
-📅 2023-08-01 18:44:39
+📅 2023-08-02 11:57:33
 
 
-# **Oregano** / Chilly Gonzales
+# **Rock the Casbah - Remastered** / The Clash
 
-![Foto del album: Solo Piano](https://i.scdn.co/image/ab67616d00001e0282bc551d02383eeecc17ff1c)
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
 
-**Album:** Solo Piano
+**Album:** Combat Rock (Remastered)
 
-📅 2023-08-01 17:05:14
+📅 2023-08-02 11:54:00
 
 
-# **Jungle Fever** / Cristobal Tapia De Veer
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-08-01 17:05:02
+📅 2023-08-02 11:50:18
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Legendary** / Welshly Arms
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** No Place Is Home
 
-📅 2023-08-01 17:04:33
+📅 2023-08-02 11:46:37
 
 
-# **Animals** / Maroon 5
+# **Beetlebum - 2012 Remaster** / Blur
 
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
 
-**Album:** V
+**Album:** Blur (Special Edition)
 
-📅 2023-08-01 11:36:55
+📅 2023-08-02 11:42:45
 
 
-# **Bones** / Imagine Dragons
+# **Plug in Baby** / Muse
 
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
 
-**Album:** Bones
+**Album:** Origin of Symmetry
 
-📅 2023-08-01 11:33:04
+📅 2023-08-02 11:37:39
 
 
-# **Lotus Flower** / Radiohead
+# **Tom The Model** / Beth Gibbons|Rustin Man
 
-![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
 
-**Album:** The King Of Limbs
+**Album:** Out Of Season
 
-📅 2023-08-01 11:03:57
+📅 2023-08-02 11:33:45
 
 
-# **Fever** / The Black Keys
+# **Burn the Witch** / Radiohead
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** Turn Blue
+**Album:** A Moon Shaped Pool
 
-📅 2023-08-01 10:58:55
+📅 2023-08-02 11:30:05
 
 
-# **Will Do** / TV On The Radio
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Nine Types of Light
+**Album:** Panic
 
-📅 2023-08-01 10:54:49
+📅 2023-08-02 11:26:13
 
 
-# **Dead and Gone - 2021 Remaster** / The Black Keys
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** El Camino (10th Anniversary Super Deluxe Edition)
+**Album:** <I°_°I>
 
-📅 2023-08-01 10:51:03
+📅 2023-08-02 11:23:01
 
 
-# **Mad About You** / Hooverphonic
+# **Amarillo** / Gorillaz
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Fall](https://i.scdn.co/image/ab67616d00001e02bfcb1c9ce002a2c2cd5e9f34)
 
-**Album:** The Magnificent Tree
+**Album:** The Fall
 
-📅 2023-08-01 10:46:23
+📅 2023-08-02 11:19:11
 
 
-# **Out Of Sight** / Hooverphonic
+# **Coffee & TV** / Blur
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
 
-**Album:** The Magnificent Tree
+**Album:** 13
 
-📅 2023-08-01 10:42:39
+📅 2023-08-02 11:10:45
 
 
-# **My Very Best** / Elbow
+# **Time is Running Out** / Muse
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
 
-**Album:** Leaders Of The Free World
+**Album:** Absolution
 
-📅 2023-08-01 10:38:30
+📅 2023-08-02 11:04:45
