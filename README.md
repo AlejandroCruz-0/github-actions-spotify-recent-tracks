@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-03 23:53:48
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-03 23:51:10
+
+
+# **Animals** / Maroon 5
+
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+
+**Album:** V
+
+📅 2023-08-03 23:13:08
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-08-03 23:13:03
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-03 22:01:39
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-03 22:01:34
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-03 21:57:43
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-03 21:52:23
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-03 12:33:42
+
+
 # **I Feel You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earthling (Expanded Edition)
 
 📅 2023-08-03 09:45:19
-
-
-# **London Calling - Remastered** / The Clash
-
-![Foto del album: London Calling (Remastered)](https://i.scdn.co/image/ab67616d00001e02cd9d8bc9ef04014b6e90e182)
-
-**Album:** London Calling (Remastered)
-
-📅 2023-08-03 09:40:18
-
-
-# **Tabu** / Gustavo Cerati
-
-![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
-
-**Album:** Bocanada
-
-📅 2023-08-03 09:36:57
-
-
-# **Let's Dance - 2018 Remaster** / David Bowie
-
-![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
-
-**Album:** Let's Dance (2018 Remaster)
-
-📅 2023-08-03 09:32:09
-
-
-# **Frank Sinatra** / CAKE
-
-![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0200df6727e2cfe905baa75c1e)
-
-**Album:** Fashion Nugget
-
-📅 2023-08-03 09:24:31
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-08-03 09:20:30
-
-
-# **Down By The Water** / PJ Harvey
-
-![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
-
-**Album:** To Bring You My Love
-
-📅 2023-08-03 09:14:29
-
-
-# **Genghis Khan** / Miike Snow
-
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
-
-**Album:** iii
-
-📅 2023-08-03 09:11:14
-
-
-# **Rock the Casbah - Remastered** / The Clash
-
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
-
-**Album:** Combat Rock (Remastered)
-
-📅 2023-08-03 09:07:42
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-08-03 09:03:59
