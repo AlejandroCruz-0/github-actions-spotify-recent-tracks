@@ -13,85 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** El Camino
 
-📅 2023-08-03 23:53:48
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-03 23:51:10
+📅 2023-08-04 19:50:01
 
 
-# **Animals** / Maroon 5
+# **I'll Keep Coming** / Low Roar
 
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
 
-**Album:** V
+**Album:** 0
 
-📅 2023-08-03 23:13:08
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-08-03 23:13:03
+📅 2023-08-04 16:50:01
 
 
-# **L'Odeur Animale** / Hooverphonic
+# **Will Do** / TV On The Radio
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** The Magnificent Tree
+**Album:** Nine Types of Light
 
-📅 2023-08-03 22:01:39
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-03 22:01:34
+📅 2023-08-04 16:44:20
 
 
-# **Out Of Sight** / Hooverphonic
+# **Two Weeks** / FKA twigs
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** The Magnificent Tree
+**Album:** LP1
 
-📅 2023-08-03 21:57:43
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-03 21:52:23
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-03 12:33:42
+📅 2023-08-04 16:40:20
 
 
 # **I Feel You** / Depeche Mode
@@ -100,61 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-08-03 12:31:42
-
-
-# **Overture - From "TRON: Legacy"/Score** / Daft Punk
-
-![Foto del album: TRON: Legacy](https://i.scdn.co/image/ab67616d00001e0266919acb93950333962467f8)
-
-**Album:** TRON: Legacy
-
-📅 2023-08-03 12:26:35
-
-
-# **Luke and Leia - From "Star Wars: Return Of The Jedi"** / John Williams|Anne-Sophie Mutter|The Recording Arts Orchestra of Los Angeles
-
-![Foto del album: Across The Stars](https://i.scdn.co/image/ab67616d00001e02c036715772247eec5fe2a67d)
-
-**Album:** Across The Stars
-
-📅 2023-08-03 12:24:07
-
-
-# **Time** / Hans Zimmer
-
-![Foto del album: Inception (Music from the Motion Picture)](https://i.scdn.co/image/ab67616d00001e02a883e26f90ab617c91b90e56)
-
-**Album:** Inception (Music from the Motion Picture)
-
-📅 2023-08-03 12:18:29
-
-
-# **To the Stars - From "Ad Astra" Soundtrack** / Max Richter
-
-![Foto del album: To The Stars (From "Ad Astra" Soundtrack)](https://i.scdn.co/image/ab67616d00001e024f48bd532d188d4a31223396)
-
-**Album:** To The Stars (From "Ad Astra" Soundtrack)
-
-📅 2023-08-03 12:13:53
-
-
-# **Cornfield Chase** / Hans Zimmer
-
-![Foto del album: Interstellar (Original Motion Picture Soundtrack) [Expanded Edition]](https://i.scdn.co/image/ab67616d00001e02ac29a65e7ffcfa6f9cb0d342)
-
-**Album:** Interstellar (Original Motion Picture Soundtrack) [Expanded Edition]
-
-📅 2023-08-03 12:10:23
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-08-03 10:23:12
+📅 2023-08-04 13:32:36
 
 
 # **Weak And Powerless** / A Perfect Circle
@@ -163,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-08-03 10:22:30
+📅 2023-08-04 12:45:08
 
 
 # **The Outsider** / A Perfect Circle
@@ -172,22 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-08-03 10:19:14
+📅 2023-08-04 12:42:29
 
 
-# **Rompecabezas** / Aterciopelados
+# **Love Foolosophy - Remastered** / Jamiroquai
 
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Gozo Poderoso
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-08-03 09:48:48
+📅 2023-08-04 12:22:08
 
 
-# **I'm Afraid of Americans** / David Bowie
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: Earthling (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e024cb694aff0f461c8c9bd4e22)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** Earthling (Expanded Edition)
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-08-03 09:45:19
+📅 2023-08-04 12:21:21
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-04 12:17:21
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-04 12:13:32
+
+
+# **Higher Love** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 12:00:36
+
+
+# **One Caress** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:58:49
+
+
+# **Rush** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:55:15
+
+
+# **Get Right With Me** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:50:33
+
+
+# **In Your Room** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:46:41
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:40:18
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:35:04
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:30:43
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-04 11:27:14
