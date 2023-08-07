@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Limp** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-08-06 19:46:15
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-06 19:39:26
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-06 19:33:16
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-06 19:28:39
+
+
+# **I'm Your Man - Live 1988** / Leonard Cohen
+
+![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
+
+**Album:** Songs of Fire and Ice (Live 1988)
+
+📅 2023-08-06 10:38:20
+
+
+# **Bird on the Wire - Live 1988** / Leonard Cohen
+
+![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
+
+**Album:** Songs of Fire and Ice (Live 1988)
+
+📅 2023-08-06 10:32:56
+
+
+# **Bird on the Wire - Live 1988** / Leonard Cohen
+
+![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
+
+**Album:** Songs of Fire and Ice (Live 1988)
+
+📅 2023-08-06 10:15:21
+
+
+# **Who by Fire - Live 1988** / Leonard Cohen
+
+![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
+
+**Album:** Songs of Fire and Ice (Live 1988)
+
+📅 2023-08-06 09:39:43
+
+
+# **Ain't No Cure for Love - Live 1988** / Leonard Cohen
+
+![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
+
+**Album:** Songs of Fire and Ice (Live 1988)
+
+📅 2023-08-06 09:26:48
+
+
+# **Dance Me to the End of Love - Live 1988** / Leonard Cohen
+
+![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
+
+**Album:** Songs of Fire and Ice (Live 1988)
+
+📅 2023-08-06 09:21:43
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-05 19:41:03
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Man's Sky: Music For An Infinite Universe
 
 📅 2023-08-05 13:18:37
-
-
-# **Radio Protector** / 65daysofstatic
-
-![Foto del album: One Time for All Time](https://i.scdn.co/image/ab67616d00001e02e6e9ba3221e5b0a88a6a0c64)
-
-**Album:** One Time for All Time
-
-📅 2023-08-05 13:14:16
-
-
-# **Hypersleep** / 65daysofstatic
-
-![Foto del album: No Man's Sky: Music For An Infinite Universe](https://i.scdn.co/image/ab67616d00001e02833195094052d06c59161a54)
-
-**Album:** No Man's Sky: Music For An Infinite Universe
-
-📅 2023-08-05 13:08:49
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-05 11:51:44
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-05 11:50:13
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-05 10:21:48
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-05 10:19:02
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-05 10:15:15
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-05 10:10:21
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-05 00:58:04
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-05 00:46:29
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-08-05 00:23:21
