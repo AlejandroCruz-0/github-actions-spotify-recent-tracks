@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Paper Bag** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-08-07 22:36:12
+
+
 # **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
 
 ![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs of Fire and Ice (Live 1988)
 
 📅 2023-08-06 10:42:52
-
-
-# **I'm Your Man - Live 1988** / Leonard Cohen
-
-![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
-
-**Album:** Songs of Fire and Ice (Live 1988)
-
-📅 2023-08-06 10:38:20
