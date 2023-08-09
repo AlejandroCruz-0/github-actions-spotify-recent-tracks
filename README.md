@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-08 19:50:25
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2023-08-08 08:47:05
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-08-08 08:43:53
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-08-08 08:39:14
+
+
 # **Paper Bag** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** When The Pawn...
 
 📅 2023-08-06 19:46:15
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-06 19:39:26
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-06 19:33:16
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-06 19:28:39
-
-
-# **Sisters of Mercy/Heart with No Companion - Live 1988** / Leonard Cohen
-
-![Foto del album: Songs of Fire and Ice (Live 1988)](https://i.scdn.co/image/ab67616d00001e02c483b92dd07213ff5d214813)
-
-**Album:** Songs of Fire and Ice (Live 1988)
-
-📅 2023-08-06 10:42:52
