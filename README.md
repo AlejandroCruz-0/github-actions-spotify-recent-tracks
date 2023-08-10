@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Go With The Flow** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-08-09 13:59:52
+
+
+# **She's Long Gone** / The Black Keys
+
+![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
+
+**Album:** Brothers (Deluxe Remastered Anniversary Edition)
+
+📅 2023-08-09 13:57:02
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-08-09 13:53:55
+
+
+# **Dead and Gone - 2021 Remaster** / The Black Keys
+
+![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
+
+**Album:** El Camino (10th Anniversary Super Deluxe Edition)
+
+📅 2023-08-09 13:50:10
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-09 13:46:28
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-08 19:52:51
+
+
 # **I Feel You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Eat The Elephant
 
 📅 2023-08-07 08:51:34
-
-
-# **Passive** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-08-07 08:46:52
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-08-07 08:42:40
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-08-07 08:38:06
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-08-07 08:34:09
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-08-07 08:30:52
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-08-06 19:46:15
