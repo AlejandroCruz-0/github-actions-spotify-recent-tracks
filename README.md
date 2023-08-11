@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Little L - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-10 09:00:11
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-10 08:56:12
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-10 08:52:23
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-10 08:45:30
+
+
+# **Vanilla Dome** / 3000m
+
+![Foto del album: Super Mario World (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02169ac28367359afa08dbd7cc)
+
+**Album:** Super Mario World (Original Game Soundtrack)
+
+📅 2023-08-10 08:32:44
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-10 08:30:08
+
+
+# **Rapto** / Gustavo Cerati
+
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
+
+**Album:** Fuerza Natural
+
+📅 2023-08-09 23:35:09
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Brothers (Deluxe Remastered Anniversary Edition)
 
 📅 2023-08-09 13:57:02
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-08-09 13:53:55
-
-
-# **Dead and Gone - 2021 Remaster** / The Black Keys
-
-![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
-
-**Album:** El Camino (10th Anniversary Super Deluxe Edition)
-
-📅 2023-08-09 13:50:10
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-09 13:46:28
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-08 19:52:51
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-08 19:50:25
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2023-08-08 08:47:05
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-08-08 08:43:53
