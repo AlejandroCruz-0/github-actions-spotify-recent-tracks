@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-11 07:48:28
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-11 07:45:52
+
+
+# **Love Foolosophy - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-10 09:00:24
+
+
 # **Little L - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs of Faith and Devotion (Deluxe)
 
 📅 2023-08-09 21:00:13
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 17:45:36
-
-
-# **Go With The Flow** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-08-09 13:59:52
-
-
-# **She's Long Gone** / The Black Keys
-
-![Foto del album: Brothers (Deluxe Remastered Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02995cafb297bbedb4795bc673)
-
-**Album:** Brothers (Deluxe Remastered Anniversary Edition)
-
-📅 2023-08-09 13:57:02
