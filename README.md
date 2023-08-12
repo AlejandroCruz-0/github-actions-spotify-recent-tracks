@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-11 20:31:35
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-11 20:27:25
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-11 12:20:17
+
+
+# **Leda Swims** / Dickon Hinchliffe
+
+![Foto del album: The Lost Daughter (Soundtrack from the Netflix Film)](https://i.scdn.co/image/ab67616d00001e023774bd345f9e4adf689233bb)
+
+**Album:** The Lost Daughter (Soundtrack from the Netflix Film)
+
+📅 2023-08-11 11:16:51
+
+
+# **Come Back** / Paul White
+
+![Foto del album: Paul White And The Purple Brain](https://i.scdn.co/image/ab67616d00001e023dd4d3d27bb8e4e37502e5cb)
+
+**Album:** Paul White And The Purple Brain
+
+📅 2023-08-11 11:16:24
+
+
+# **Opening Titles (from Raised by Wolves)** / Mariam Wallentin|Ben Frost
+
+![Foto del album: Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)](https://i.scdn.co/image/ab67616d00001e02bb8c6aee17cc0ca50742687b)
+
+**Album:** Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)
+
+📅 2023-08-11 11:15:11
+
+
+# **C-5 Galaxy** / Nicholas Britell
+
+![Foto del album: Don't Look Up (Soundtrack from the Netflix Film)](https://i.scdn.co/image/ab67616d00001e02008a3acc7683ca1f79a8876b)
+
+**Album:** Don't Look Up (Soundtrack from the Netflix Film)
+
+📅 2023-08-11 11:14:04
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-11 11:12:59
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-11 11:10:21
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-08-11 07:50:13
+
+
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fuerza Natural
 
 📅 2023-08-09 23:35:09
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-09 23:21:36
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-09 23:17:22
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-08-09 22:24:55
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2023-08-09 22:24:45
-
-
-# **In Your Room** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 21:43:49
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 21:39:14
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 21:34:01
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 21:09:09
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 21:05:39
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-09 21:00:13
