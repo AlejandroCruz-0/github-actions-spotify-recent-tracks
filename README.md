@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Relay** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2023-08-12 23:46:38
+
+
+# **Under The Table** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2023-08-12 20:56:08
+
+
+# **Fetch The Bolt Cutters** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2023-08-12 20:52:46
+
+
+# **Paper Bag** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-08-12 20:46:22
+
+
+# **Limp** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-08-12 20:42:21
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-12 20:38:34
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Lost Daughter (Soundtrack from the Netflix Film)
 
 📅 2023-08-11 11:16:51
-
-
-# **Come Back** / Paul White
-
-![Foto del album: Paul White And The Purple Brain](https://i.scdn.co/image/ab67616d00001e023dd4d3d27bb8e4e37502e5cb)
-
-**Album:** Paul White And The Purple Brain
-
-📅 2023-08-11 11:16:24
-
-
-# **Opening Titles (from Raised by Wolves)** / Mariam Wallentin|Ben Frost
-
-![Foto del album: Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)](https://i.scdn.co/image/ab67616d00001e02bb8c6aee17cc0ca50742687b)
-
-**Album:** Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)
-
-📅 2023-08-11 11:15:11
-
-
-# **C-5 Galaxy** / Nicholas Britell
-
-![Foto del album: Don't Look Up (Soundtrack from the Netflix Film)](https://i.scdn.co/image/ab67616d00001e02008a3acc7683ca1f79a8876b)
-
-**Album:** Don't Look Up (Soundtrack from the Netflix Film)
-
-📅 2023-08-11 11:14:04
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-11 11:12:59
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-11 11:10:21
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-11 07:50:13
