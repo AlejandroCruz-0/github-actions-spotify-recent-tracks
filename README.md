@@ -13,58 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Magnificent Tree
 
-📅 2023-08-16 12:11:15
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-16 12:02:37
+📅 2023-08-17 17:18:18
 
 
-# **Bottom Of The Deep Blue Sea** / MISSIO
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** Loner
+**Album:** Saudade
 
-📅 2023-08-15 22:49:05
-
-
-# **I Don't Even Care About You** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2023-08-15 22:45:13
-
-
-# **Middle Fingers** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2023-08-15 22:41:38
-
-
-# **I Do What I Want** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2023-08-15 22:38:03
+📅 2023-08-17 17:14:19
 
 
 # **Bachelorette** / Björk
@@ -73,61 +37,52 @@ Nombre: **lotario1999**
 
 **Album:** Homogenic
 
-📅 2023-08-15 22:34:16
+📅 2023-08-17 17:10:55
 
 
-# **Rush** / Depeche Mode
+# **Renaissance Affair** / Hooverphonic
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-08-15 11:41:34
-
-
-# **Get Right With Me** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-15 11:41:26
+📅 2023-08-17 17:05:42
 
 
-# **In Your Room** / Depeche Mode
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-08-15 11:37:33
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-15 11:31:10
+📅 2023-08-17 17:02:17
 
 
-# **Mercy in You** / Depeche Mode
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-08-15 11:25:56
+📅 2023-08-17 16:58:08
 
 
-# **Condemnation** / Depeche Mode
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-08-15 11:21:34
+📅 2023-08-17 16:54:16
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-17 16:49:59
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -136,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-08-15 11:18:04
+📅 2023-08-17 16:43:50
 
 
 # **I Feel You** / Depeche Mode
@@ -145,16 +100,79 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-08-15 11:12:38
+📅 2023-08-17 16:38:23
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Judas** / Depeche Mode
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Songs For The Deaf
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-08-14 11:00:59
+📅 2023-08-17 16:00:43
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-17 15:55:29
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-17 15:51:08
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-17 15:47:38
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-17 15:42:12
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-17 12:21:38
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-08-17 12:01:59
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-08-17 12:01:55
 
 
 # **Two Weeks** / FKA twigs
@@ -163,31 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** LP1
 
-📅 2023-08-14 11:00:42
+📅 2023-08-17 11:49:24
 
 
-# **The Doomed** / A Perfect Circle
-
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
-
-**Album:** Eat The Elephant
-
-📅 2023-08-14 10:54:30
-
-
-# **Passive** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-08-14 10:49:48
-
-
-# **Pet** / A Perfect Circle
+# **Weak And Powerless** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
 **Album:** Thirteenth Step
 
-📅 2023-08-14 10:45:37
+📅 2023-08-17 11:26:17
