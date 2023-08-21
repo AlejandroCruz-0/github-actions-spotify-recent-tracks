@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2023-08-20 09:26:15
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-08-20 09:25:29
+
+
+# **So He Won't Break** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2023-08-20 09:20:50
+
+
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+
+**Album:** Saudade
+
+📅 2023-08-20 09:16:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-20 09:09:10
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-20 09:05:18
+
+
 # **Hells Bells** / AC/DC
 
 ![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Modus Operandi
 
 📅 2023-08-19 16:18:56
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-08-19 16:12:08
-
-
-# **Pjanoo - Radio Edit** / Eric Prydz
-
-![Foto del album: Pjanoo](https://i.scdn.co/image/ab67616d00001e02bf82130ce529153496038461)
-
-**Album:** Pjanoo
-
-📅 2023-08-19 16:08:40
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-18 05:28:22
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-18 05:25:24
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-18 05:21:35
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-08-17 17:24:20
