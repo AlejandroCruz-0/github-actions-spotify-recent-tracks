@@ -13,40 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Everytime We Live Together We Die A Bit More** / Hooverphonic
+# **Lagtrain** / girl_dm_
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
 
-**Album:** The Magnificent Tree
+**Album:** Lagtrain
 
-📅 2023-08-21 13:48:03
-
-
-# **Frosted Flake Wood** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-21 13:45:39
+📅 2023-08-22 16:29:46
 
 
-# **Vinegar & Salt** / Hooverphonic
+# **Lagtrain** / girl_dm_
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
 
-**Album:** The Magnificent Tree
+**Album:** Lagtrain
 
-📅 2023-08-21 13:42:22
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-21 13:39:01
+📅 2023-08-22 16:15:44
 
 
 # **Jackie Cane** / Hooverphonic
@@ -55,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-08-21 13:35:06
+📅 2023-08-22 16:05:32
 
 
 # **Waves** / Hooverphonic
@@ -64,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-08-21 13:30:47
+📅 2023-08-22 16:01:12
 
 
 # **Mad About You** / Hooverphonic
@@ -73,121 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-08-21 13:26:45
+📅 2023-08-22 15:57:09
 
 
-# **Lonely Boy** / The Black Keys
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** El Camino
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-08-21 10:33:54
+📅 2023-08-22 14:33:06
 
 
-# **Ready To Start** / Arcade Fire
+# **Sinnerman - Sofi Tukker Remix** / Nina Simone|Sofi Tukker
 
-![Foto del album: The Suburbs](https://i.scdn.co/image/ab67616d00001e02ce9097d719ec72da26e07864)
+![Foto del album: Sinnerman (Sofi Tukker Remix)](https://i.scdn.co/image/ab67616d00001e0280080197c0c2680476a57e6f)
 
-**Album:** The Suburbs
+**Album:** Sinnerman (Sofi Tukker Remix)
 
-📅 2023-08-21 10:32:23
+📅 2023-08-22 14:32:12
 
 
-# **Hysteria** / Muse
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Absolution
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-08-21 10:27:51
+📅 2023-08-22 14:27:56
 
 
-# **Lotus Flower** / Radiohead
+# **Waves** / Hooverphonic
 
-![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The King Of Limbs
+**Album:** The Magnificent Tree
 
-📅 2023-08-21 10:24:04
+📅 2023-08-22 12:44:26
 
 
-# **Tessellate** / alt-J
+# **Mad About You** / Hooverphonic
 
-![Foto del album: An Awesome Wave](https://i.scdn.co/image/ab67616d00001e02bcbec7d1bae62a13b14de1e5)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** An Awesome Wave
+**Album:** The Magnificent Tree
 
-📅 2023-08-21 10:19:02
+📅 2023-08-22 12:41:58
 
 
-# **Fever** / The Black Keys
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Turn Blue
+**Album:** The Magnificent Tree
 
-📅 2023-08-21 10:16:01
+📅 2023-08-22 12:38:11
 
 
-# **Go With The Flow** / Queens of the Stone Age
+# **Inertia Creeps** / Massive Attack
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
 
-**Album:** Songs For The Deaf
+**Album:** Mezzanine
 
-📅 2023-08-21 10:11:54
+📅 2023-08-22 11:01:19
 
 
-# **Tied Up** / Rival Sons
+# **Home** / Zero 7|Tina Dico
 
-![Foto del album: Hollow Bones](https://i.scdn.co/image/ab67616d00001e02e621ec64a14356ee90d9b8cd)
+![Foto del album: When It Falls](https://i.scdn.co/image/ab67616d00001e025a29092213015a1d6d0f731c)
 
-**Album:** Hollow Bones
+**Album:** When It Falls
 
-📅 2023-08-21 10:08:47
+📅 2023-08-22 10:57:44
 
 
-# **Heartbroken, In Disrepair** / Dan Auerbach
+# **Becoming X** / Sneaker Pimps
 
-![Foto del album: Keep It Hid](https://i.scdn.co/image/ab67616d00001e02d3934f36aea56f5b990f52d4)
+![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
 
-**Album:** Keep It Hid
+**Album:** Becoming X
 
-📅 2023-08-21 10:05:18
+📅 2023-08-22 10:53:07
 
 
-# **Man of War** / Radiohead
+# **Evolution Revolution Love** / Tricky
 
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e028dabbbc97ad7194a38e90a21)
+![Foto del album: Blowback](https://i.scdn.co/image/ab67616d00001e021059263a8f082c3f5291cafb)
 
-**Album:** OK Computer OKNOTOK 1997 2017
+**Album:** Blowback
 
-📅 2023-08-21 10:01:56
+📅 2023-08-22 10:48:52
 
 
-# **Little Black Submarines** / The Black Keys
+# **Aqualung** / Morcheeba
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Charango](https://i.scdn.co/image/ab67616d00001e02f7c2641916903a22bb4b5178)
 
-**Album:** El Camino
+**Album:** Charango
 
-📅 2023-08-21 09:57:27
+📅 2023-08-22 10:44:42
 
 
-# **Plug in Baby** / Muse
+# **Evergreen** / Faithless
 
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+![Foto del album: Outrospective](https://i.scdn.co/image/ab67616d00001e02941a28dc4b8b4677cec29b9c)
 
-**Album:** Origin of Symmetry
+**Album:** Outrospective
 
-📅 2023-08-21 09:53:15
+📅 2023-08-22 10:41:17
 
 
-# **No One Knows** / Queens of the Stone Age
+# **Unfinished Sympathy - 2012 Mix/Master** / Massive Attack
 
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+![Foto del album: Blue Lines (2012 Mix/Master)](https://i.scdn.co/image/ab67616d00001e02af5beb00d940f5ede452d6b5)
 
-**Album:** Songs For The Deaf
+**Album:** Blue Lines (2012 Mix/Master)
 
-📅 2023-08-21 09:49:37
+📅 2023-08-22 10:36:42
+
+
+# **Sour Times** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-08-22 10:31:33
+
+
+# **Post-Modern Sleaze** / Sneaker Pimps
+
+![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+
+**Album:** Becoming X
+
+📅 2023-08-22 10:27:21
