@@ -13,85 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Lagtrain** / girl_dm_
-
-![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
-
-**Album:** Lagtrain
-
-📅 2023-08-22 16:29:46
-
-
-# **Lagtrain** / girl_dm_
-
-![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
-
-**Album:** Lagtrain
-
-📅 2023-08-22 16:15:44
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-22 16:05:32
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-22 16:01:12
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-22 15:57:09
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-08-22 14:33:06
-
-
-# **Sinnerman - Sofi Tukker Remix** / Nina Simone|Sofi Tukker
-
-![Foto del album: Sinnerman (Sofi Tukker Remix)](https://i.scdn.co/image/ab67616d00001e0280080197c0c2680476a57e6f)
-
-**Album:** Sinnerman (Sofi Tukker Remix)
-
-📅 2023-08-22 14:32:12
-
-
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-08-22 14:27:56
+📅 2023-08-23 19:02:27
 
 
-# **Waves** / Hooverphonic
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-08-23 18:48:32
+
+
+# **Dead and Gone - 2021 Remaster** / The Black Keys
+
+![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
+
+**Album:** El Camino (10th Anniversary Super Deluxe Edition)
+
+📅 2023-08-23 18:44:47
+
+
+# **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-08-22 12:44:26
+📅 2023-08-23 18:40:41
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-23 18:36:32
 
 
 # **Mad About You** / Hooverphonic
@@ -100,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-08-22 12:41:58
+📅 2023-08-23 18:31:21
 
 
 # **Mad About You** / Hooverphonic
@@ -109,85 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-08-22 12:38:11
+📅 2023-08-23 18:27:24
 
 
-# **Inertia Creeps** / Massive Attack
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Mezzanine
+**Album:** The Magnificent Tree
 
-📅 2023-08-22 11:01:19
-
-
-# **Home** / Zero 7|Tina Dico
-
-![Foto del album: When It Falls](https://i.scdn.co/image/ab67616d00001e025a29092213015a1d6d0f731c)
-
-**Album:** When It Falls
-
-📅 2023-08-22 10:57:44
+📅 2023-08-23 18:23:35
 
 
-# **Becoming X** / Sneaker Pimps
+# **I Really Want to Stay At Your House** / girl_dm_
 
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+![Foto del album: I Really Want to Stay At Your House](https://i.scdn.co/image/ab67616d00001e0296981748cf01ad7e0824468c)
 
-**Album:** Becoming X
+**Album:** I Really Want to Stay At Your House
 
-📅 2023-08-22 10:53:07
-
-
-# **Evolution Revolution Love** / Tricky
-
-![Foto del album: Blowback](https://i.scdn.co/image/ab67616d00001e021059263a8f082c3f5291cafb)
-
-**Album:** Blowback
-
-📅 2023-08-22 10:48:52
+📅 2023-08-23 18:19:52
 
 
-# **Aqualung** / Morcheeba
+# **Lagtrain** / girl_dm_
 
-![Foto del album: Charango](https://i.scdn.co/image/ab67616d00001e02f7c2641916903a22bb4b5178)
+![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
 
-**Album:** Charango
+**Album:** Lagtrain
 
-📅 2023-08-22 10:44:42
-
-
-# **Evergreen** / Faithless
-
-![Foto del album: Outrospective](https://i.scdn.co/image/ab67616d00001e02941a28dc4b8b4677cec29b9c)
-
-**Album:** Outrospective
-
-📅 2023-08-22 10:41:17
+📅 2023-08-23 15:22:45
 
 
-# **Unfinished Sympathy - 2012 Mix/Master** / Massive Attack
+# **TSUNAMI** / Finana Ryugu
 
-![Foto del album: Blue Lines (2012 Mix/Master)](https://i.scdn.co/image/ab67616d00001e02af5beb00d940f5ede452d6b5)
+![Foto del album: TSUNAMI](https://i.scdn.co/image/ab67616d00001e02728cba23d7fcbe5f0024f0a2)
 
-**Album:** Blue Lines (2012 Mix/Master)
+**Album:** TSUNAMI
 
-📅 2023-08-22 10:36:42
-
-
-# **Sour Times** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2023-08-22 10:31:33
+📅 2023-08-23 09:24:19
 
 
-# **Post-Modern Sleaze** / Sneaker Pimps
+# **4BLOOD** / KIRA|Hatsune Miku
 
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
+![Foto del album: 4BLOOD](https://i.scdn.co/image/ab67616d00001e021d20bcbc14b8fd5234f0cd90)
 
-**Album:** Becoming X
+**Album:** 4BLOOD
 
-📅 2023-08-22 10:27:21
+📅 2023-08-23 09:22:44
+
+
+# **KING** / Ironmouse|shirobeats|Sleeping Forest
+
+![Foto del album: KING](https://i.scdn.co/image/ab67616d00001e021c4c65ae00efe978ba36aa84)
+
+**Album:** KING
+
+📅 2023-08-23 09:19:37
+
+
+# **Deja Vu** / Uki Violeta|PrettyPatterns
+
+![Foto del album: Deja Vu](https://i.scdn.co/image/ab67616d00001e020d200f5ead93565af502d999)
+
+**Album:** Deja Vu
+
+📅 2023-08-23 09:17:21
+
+
+# **Echo** / Crusher-P
+
+![Foto del album: Echo](https://i.scdn.co/image/ab67616d00001e02af51c7746e55b0bcf4b48720)
+
+**Album:** Echo
+
+📅 2023-08-23 09:12:42
+
+
+# **Shattered Wings** / Banzoin Hakka
+
+![Foto del album: Shattered Wings](https://i.scdn.co/image/ab67616d00001e02e30d0c266bdc3b86bcd260ca)
+
+**Album:** Shattered Wings
+
+📅 2023-08-23 09:08:51
+
+
+# **An Intense Feline Fire ~ girl_dm_ Intro ~** / darkbluecat|girl_dm_
+
+![Foto del album: An Intense Feline Fire ~ girl_dm_ Intro ~](https://i.scdn.co/image/ab67616d00001e020a9d589587c7d8f287edbc30)
+
+**Album:** An Intense Feline Fire ~ girl_dm_ Intro ~
+
+📅 2023-08-23 09:05:24
+
+
+# **Souvenir** / Lone Alpha|girl_dm_
+
+![Foto del album: Virtual Paradise](https://i.scdn.co/image/ab67616d00001e02c10c15fa9551c6e46c568d64)
+
+**Album:** Virtual Paradise
+
+📅 2023-08-23 09:04:09
+
+
+# **I Really Want to Stay At Your House** / girl_dm_
+
+![Foto del album: I Really Want to Stay At Your House](https://i.scdn.co/image/ab67616d00001e0296981748cf01ad7e0824468c)
+
+**Album:** I Really Want to Stay At Your House
+
+📅 2023-08-23 09:00:46
+
+
+# **Lagtrain** / girl_dm_
+
+![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
+
+**Album:** Lagtrain
+
+📅 2023-08-23 08:56:39
