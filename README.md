@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-24 17:01:30
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-24 16:56:34
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-24 16:51:32
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-24 16:44:45
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-24 16:38:10
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-24 16:33:44
+
+
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -20,6 +74,15 @@ Nombre: **lotario1999**
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
 📅 2023-08-23 19:02:27
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-08-23 18:48:49
 
 
 # **Will Do** / TV On The Radio
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** KING
 
 📅 2023-08-23 09:19:37
-
-
-# **Deja Vu** / Uki Violeta|PrettyPatterns
-
-![Foto del album: Deja Vu](https://i.scdn.co/image/ab67616d00001e020d200f5ead93565af502d999)
-
-**Album:** Deja Vu
-
-📅 2023-08-23 09:17:21
-
-
-# **Echo** / Crusher-P
-
-![Foto del album: Echo](https://i.scdn.co/image/ab67616d00001e02af51c7746e55b0bcf4b48720)
-
-**Album:** Echo
-
-📅 2023-08-23 09:12:42
-
-
-# **Shattered Wings** / Banzoin Hakka
-
-![Foto del album: Shattered Wings](https://i.scdn.co/image/ab67616d00001e02e30d0c266bdc3b86bcd260ca)
-
-**Album:** Shattered Wings
-
-📅 2023-08-23 09:08:51
-
-
-# **An Intense Feline Fire ~ girl_dm_ Intro ~** / darkbluecat|girl_dm_
-
-![Foto del album: An Intense Feline Fire ~ girl_dm_ Intro ~](https://i.scdn.co/image/ab67616d00001e020a9d589587c7d8f287edbc30)
-
-**Album:** An Intense Feline Fire ~ girl_dm_ Intro ~
-
-📅 2023-08-23 09:05:24
-
-
-# **Souvenir** / Alohaii|girl_dm_
-
-![Foto del album: Virtual Paradise](https://i.scdn.co/image/ab67616d00001e02c10c15fa9551c6e46c568d64)
-
-**Album:** Virtual Paradise
-
-📅 2023-08-23 09:04:09
-
-
-# **I Really Want to Stay At Your House** / girl_dm_
-
-![Foto del album: I Really Want to Stay At Your House](https://i.scdn.co/image/ab67616d00001e0296981748cf01ad7e0824468c)
-
-**Album:** I Really Want to Stay At Your House
-
-📅 2023-08-23 09:00:46
-
-
-# **Lagtrain** / girl_dm_
-
-![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
-
-**Album:** Lagtrain
-
-📅 2023-08-23 08:56:39
