@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Cosmic Girl - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-26 22:40:12
+
+
+# **Virtual Insanity - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-08-26 22:36:24
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-26 22:31:04
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-26 22:27:08
+
+
+# **Golden Skans** / Klaxons
+
+![Foto del album: Myths Of The Near Future](https://i.scdn.co/image/ab67616d00001e02a6ba454df44d588fbc6bc983)
+
+**Album:** Myths Of The Near Future
+
+📅 2023-08-26 20:06:51
+
+
 # **Tessellate** / alt-J
 
 ![Foto del album: An Awesome Wave](https://i.scdn.co/image/ab67616d00001e02bcbec7d1bae62a13b14de1e5)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-08-25 14:58:47
-
-
-# **Vinegar & Salt** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-25 14:54:52
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-25 14:51:32
-
-
-# **Lagtrain** / girl_dm_
-
-![Foto del album: Lagtrain](https://i.scdn.co/image/ab67616d00001e021750bbc4e0a2a96ad6d4bf04)
-
-**Album:** Lagtrain
-
-📅 2023-08-25 14:33:13
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-25 14:28:44
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-25 14:24:52
