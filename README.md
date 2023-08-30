@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-30 08:10:41
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-30 08:06:41
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-30 08:02:58
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-30 07:59:09
+
+
+# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
+
+![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
+
+**Album:** Gloria
+
+📅 2023-08-29 21:45:18
+
+
+# **Blinding Lights** / The Weeknd
+
+![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
+
+**Album:** After Hours
+
+📅 2023-08-29 21:45:12
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-08-29 21:41:50
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-08-29 19:21:42
+
+
 # **Condemnation** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-08-29 09:28:13
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-29 09:27:46
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-29 09:24:21
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-29 09:19:24
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-28 17:11:34
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-28 17:11:19
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-08-28 12:26:30
-
-
-# **Legendary** / Welshly Arms
-
-![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
-
-**Album:** No Place Is Home
-
-📅 2023-08-28 12:26:19
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2023-08-28 12:19:25
