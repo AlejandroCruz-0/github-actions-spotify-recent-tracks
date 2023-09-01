@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-08-31 13:37:15
+
+
+# **Immigrant Song - Remaster** / Led Zeppelin
+
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
+
+**Album:** Led Zeppelin III (Remaster)
+
+📅 2023-08-31 12:16:15
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2023-08-31 12:15:36
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-08-31 12:10:20
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 10:57:45
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 10:55:15
+
+
+# **Frosted Flake Wood** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 10:51:27
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 10:48:10
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-08-31 10:02:57
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-08-31 10:02:37
+
+
+# **The Magnificent Tree** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 09:27:40
+
+
+# **Autoharp** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 09:24:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-08-31 09:20:14
+
+
 # **Pink Fluffy Dinosaurs** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-08-30 12:00:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 11:56:30
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 11:52:54
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 08:10:55
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 08:10:41
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 08:06:41
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 08:02:58
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 07:59:09
-
-
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
-
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
-
-**Album:** Gloria
-
-📅 2023-08-29 21:45:18
-
-
-# **Blinding Lights** / The Weeknd
-
-![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-**Album:** After Hours
-
-📅 2023-08-29 21:45:12
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-08-29 21:41:50
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-29 19:21:42
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-29 19:19:12
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-08-29 19:15:42
