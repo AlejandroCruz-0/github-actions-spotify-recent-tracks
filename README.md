@@ -13,76 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **The Outsider** / A Perfect Circle
+# **MONTERO (Call Me By Your Name)** / Lil Nas X
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
 
-**Album:** Thirteenth Step
+**Album:** MONTERO
 
-📅 2023-08-31 13:37:15
-
-
-# **Immigrant Song - Remaster** / Led Zeppelin
-
-![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
-
-**Album:** Led Zeppelin III (Remaster)
-
-📅 2023-08-31 12:16:15
+📅 2023-09-01 17:15:11
 
 
-# **Electric Worry** / Clutch
+# **Everything Black** / Unlike Pluto|Mike Taylor
 
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+![Foto del album: Everything Black](https://i.scdn.co/image/ab67616d00001e0296957b0279e407485635f831)
 
-**Album:** From Beale Street to Oblivion
+**Album:** Everything Black
 
-📅 2023-08-31 12:15:36
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2023-08-31 12:10:20
+📅 2023-09-01 17:12:53
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Blinding Lights** / The Weeknd
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
 
-**Album:** The Magnificent Tree
+**Album:** After Hours
 
-📅 2023-08-31 10:57:45
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-31 10:55:15
+📅 2023-09-01 17:09:03
 
 
-# **Frosted Flake Wood** / Hooverphonic
+# **Animals** / Maroon 5
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
 
-**Album:** The Magnificent Tree
+**Album:** V
 
-📅 2023-08-31 10:51:27
+📅 2023-09-01 17:05:43
 
 
-# **Mad About You** / Hooverphonic
+# **Bones** / Imagine Dragons
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
 
-**Album:** The Magnificent Tree
+**Album:** Bones
 
-📅 2023-08-31 10:48:10
+📅 2023-09-01 17:00:44
 
 
 # **No One Knows** / Queens of the Stone Age
@@ -91,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs For The Deaf
 
-📅 2023-08-31 10:02:57
+📅 2023-09-01 12:58:04
 
 
 # **Two Weeks** / FKA twigs
@@ -100,94 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** LP1
 
-📅 2023-08-31 10:02:37
+📅 2023-09-01 12:57:41
 
 
-# **The Magnificent Tree** / Hooverphonic
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** The Magnificent Tree
+**Album:** The Mountain Will Fall
 
-📅 2023-08-31 09:27:40
-
-
-# **Autoharp** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-31 09:24:36
+📅 2023-09-01 12:53:34
 
 
-# **Mad About You** / Hooverphonic
+# **What's Up Danger (with Black Caviar)** / Blackway|Black Caviar
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Spider-Man: Into the Spider-Verse (Soundtrack From & Inspired by the Motion Picture)](https://i.scdn.co/image/ab67616d00001e02e2e352d89826aef6dbd5ff8f)
 
-**Album:** The Magnificent Tree
+**Album:** Spider-Man: Into the Spider-Verse (Soundtrack From & Inspired by the Motion Picture)
 
-📅 2023-08-31 09:20:14
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 13:55:37
+📅 2023-09-01 12:12:33
 
 
-# **Mad About You** / Hooverphonic
+# **Nothing Breaks Like a Heart (feat. Miley Cyrus)** / Mark Ronson|Miley Cyrus
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Late Night Feelings](https://i.scdn.co/image/ab67616d00001e02de087ae2924d2c1654f60d74)
 
-**Album:** The Magnificent Tree
+**Album:** Late Night Feelings
 
-📅 2023-08-30 13:52:53
-
-
-# **Autoharp** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 12:14:17
+📅 2023-09-01 12:11:06
 
 
-# **Renaissance Affair** / Hooverphonic
+# **MONTERO (Call Me By Your Name)** / Lil Nas X
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
 
-**Album:** The Magnificent Tree
+**Album:** MONTERO
 
-📅 2023-08-30 12:10:58
-
-
-# **Frosted Flake Wood** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-08-30 12:07:32
+📅 2023-09-01 12:07:29
 
 
-# **Out Of Sight** / Hooverphonic
+# **Everything Black** / Unlike Pluto|Mike Taylor
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Everything Black](https://i.scdn.co/image/ab67616d00001e0296957b0279e407485635f831)
 
-**Album:** The Magnificent Tree
+**Album:** Everything Black
 
-📅 2023-08-30 12:04:15
+📅 2023-09-01 12:05:10
 
 
-# **Mad About You** / Hooverphonic
+# **Cure For Me** / AURORA
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Gods We Can Touch](https://i.scdn.co/image/ab67616d00001e023e0d05346299e86c58f75123)
 
-**Album:** The Magnificent Tree
+**Album:** The Gods We Can Touch
 
-📅 2023-08-30 12:00:14
+📅 2023-09-01 12:01:21
+
+
+# **Blinding Lights** / The Weeknd
+
+![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
+
+**Album:** After Hours
+
+📅 2023-09-01 11:58:02
+
+
+# **Animals** / Maroon 5
+
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
+
+**Album:** V
+
+📅 2023-09-01 11:54:41
+
+
+# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
+
+![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
+
+**Album:** Gloria
+
+📅 2023-09-01 11:50:50
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-09-01 11:48:13
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-09-01 11:20:29
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2023-09-01 11:19:36
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-09-01 11:15:29
