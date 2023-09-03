@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-02 10:55:22
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-02 10:52:07
+
+
+# **Cure For Me** / AURORA
+
+![Foto del album: The Gods We Can Touch](https://i.scdn.co/image/ab67616d00001e023e0d05346299e86c58f75123)
+
+**Album:** The Gods We Can Touch
+
+📅 2023-09-01 17:17:41
+
+
 # **MONTERO (Call Me By Your Name)** / Lil Nas X
 
 ![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bones
 
 📅 2023-09-01 11:48:13
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2023-09-01 11:20:29
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2023-09-01 11:19:36
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-09-01 11:15:29
