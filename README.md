@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-09-04 08:55:43
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-09-04 08:51:35
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-04 08:32:06
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-04 08:26:01
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-03 18:03:13
+
+
 # **Vinegar & Salt** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Mountain Will Fall
 
 📅 2023-09-01 12:53:34
-
-
-# **What's Up Danger (with Black Caviar)** / Blackway|Black Caviar
-
-![Foto del album: Spider-Man: Into the Spider-Verse (Soundtrack From & Inspired by the Motion Picture)](https://i.scdn.co/image/ab67616d00001e02e2e352d89826aef6dbd5ff8f)
-
-**Album:** Spider-Man: Into the Spider-Verse (Soundtrack From & Inspired by the Motion Picture)
-
-📅 2023-09-01 12:12:33
-
-
-# **Nothing Breaks Like a Heart (feat. Miley Cyrus)** / Mark Ronson|Miley Cyrus
-
-![Foto del album: Late Night Feelings](https://i.scdn.co/image/ab67616d00001e02de087ae2924d2c1654f60d74)
-
-**Album:** Late Night Feelings
-
-📅 2023-09-01 12:11:06
-
-
-# **MONTERO (Call Me By Your Name)** / Lil Nas X
-
-![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
-
-**Album:** MONTERO
-
-📅 2023-09-01 12:07:29
-
-
-# **Everything Black** / Unlike Pluto|Mike Taylor
-
-![Foto del album: Everything Black](https://i.scdn.co/image/ab67616d00001e0296957b0279e407485635f831)
-
-**Album:** Everything Black
-
-📅 2023-09-01 12:05:10
-
-
-# **Cure For Me** / AURORA
-
-![Foto del album: The Gods We Can Touch](https://i.scdn.co/image/ab67616d00001e023e0d05346299e86c58f75123)
-
-**Album:** The Gods We Can Touch
-
-📅 2023-09-01 12:01:21
