@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Vinegar & Salt** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-03 13:54:04
+
+
+# **L'Odeur Animale** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-03 13:52:57
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-03 13:49:09
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-09-02 10:57:16
+
+
 # **Weak And Powerless** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Gods We Can Touch
 
 📅 2023-09-01 12:01:21
-
-
-# **Blinding Lights** / The Weeknd
-
-![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-**Album:** After Hours
-
-📅 2023-09-01 11:58:02
-
-
-# **Animals** / Maroon 5
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
-
-**Album:** V
-
-📅 2023-09-01 11:54:41
-
-
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
-
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
-
-**Album:** Gloria
-
-📅 2023-09-01 11:50:50
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-01 11:48:13
