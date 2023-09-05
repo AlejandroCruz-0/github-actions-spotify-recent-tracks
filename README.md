@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-09-05 09:10:31
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-09-05 09:06:17
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-05 08:46:34
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-05 08:45:25
+
+
 # **Limp** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
@@ -38,6 +74,15 @@ Nombre: **lotario1999**
 **Album:** When The Pawn...
 
 📅 2023-09-04 17:31:38
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-04 13:31:37
 
 
 # **Blinding Lights** / The Weeknd
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gloria
 
 📅 2023-09-04 12:37:43
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-04 12:35:06
-
-
-# **Blinding Lights** / The Weeknd
-
-![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-**Album:** After Hours
-
-📅 2023-09-04 12:25:23
-
-
-# **Animals** / Maroon 5
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
-
-**Album:** V
-
-📅 2023-09-04 12:22:03
-
-
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
-
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
-
-**Album:** Gloria
-
-📅 2023-09-04 12:18:12
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-04 12:15:34
