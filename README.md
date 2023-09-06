@@ -13,94 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Two Weeks** / FKA twigs
+# **Asteria** / Donny McCaslin
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: Stria](https://i.scdn.co/image/ab67616d00001e02d23fbc398e83ca3bd7c88cc0)
 
-**Album:** LP1
+**Album:** Stria
 
-📅 2023-09-05 09:10:31
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2023-09-05 09:06:17
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-05 08:46:34
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-05 08:45:25
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-04 17:38:48
-
-
-# **To Your Love** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-04 17:35:18
-
-
-# **On The Bound** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-04 17:31:38
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-04 13:31:37
-
-
-# **Blinding Lights** / The Weeknd
-
-![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-**Album:** After Hours
-
-📅 2023-09-04 13:14:19
-
-
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
-
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
-
-**Album:** Gloria
-
-📅 2023-09-04 13:11:16
+📅 2023-09-05 13:35:25
 
 
 # **Animals** / Maroon 5
@@ -109,7 +28,16 @@ Nombre: **lotario1999**
 
 **Album:** V
 
-📅 2023-09-04 13:08:23
+📅 2023-09-05 13:11:23
+
+
+# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
+
+![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
+
+**Album:** Gloria
+
+📅 2023-09-05 13:07:39
 
 
 # **Bones** / Imagine Dragons
@@ -118,7 +46,70 @@ Nombre: **lotario1999**
 
 **Album:** Bones
 
-📅 2023-09-04 13:04:33
+📅 2023-09-05 13:05:02
+
+
+# **The Doomed** / A Perfect Circle
+
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
+
+**Album:** Eat The Elephant
+
+📅 2023-09-05 12:54:02
+
+
+# **Passive** / A Perfect Circle
+
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
+
+**Album:** eMOTIVe
+
+📅 2023-09-05 12:49:21
+
+
+# **Pet** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-05 12:45:09
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-09-05 12:40:35
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-05 12:36:54
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-05 12:33:39
+
+
+# **What's Up Danger (with Black Caviar)** / Blackway|Black Caviar
+
+![Foto del album: Spider-Man: Into the Spider-Verse (Soundtrack From & Inspired by the Motion Picture)](https://i.scdn.co/image/ab67616d00001e02e2e352d89826aef6dbd5ff8f)
+
+**Album:** Spider-Man: Into the Spider-Verse (Soundtrack From & Inspired by the Motion Picture)
+
+📅 2023-09-05 12:26:15
 
 
 # **Nothing Breaks Like a Heart (feat. Miley Cyrus)** / Mark Ronson|Miley Cyrus
@@ -127,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Late Night Feelings
 
-📅 2023-09-04 13:01:23
+📅 2023-09-05 12:26:12
 
 
 # **Enemy (with JID) - from the series Arcane League of Legends** / Imagine Dragons|JID|Arcane|League of Legends
@@ -136,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Mercury - Acts 1 & 2
 
-📅 2023-09-04 12:57:46
+📅 2023-09-05 12:22:33
 
 
 # **MONTERO (Call Me By Your Name)** / Lil Nas X
@@ -145,16 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** MONTERO
 
-📅 2023-09-04 12:54:51
-
-
-# **Love Again** / Dua Lipa
-
-![Foto del album: Future Nostalgia](https://i.scdn.co/image/ab67616d00001e02bd26ede1ae69327010d49946)
-
-**Album:** Future Nostalgia
-
-📅 2023-09-04 12:52:33
+📅 2023-09-05 12:19:40
 
 
 # **Cure For Me** / AURORA
@@ -163,7 +145,25 @@ Nombre: **lotario1999**
 
 **Album:** The Gods We Can Touch
 
-📅 2023-09-04 12:48:14
+📅 2023-09-05 12:17:22
+
+
+# **Everything Black** / Unlike Pluto|Mike Taylor
+
+![Foto del album: Everything Black](https://i.scdn.co/image/ab67616d00001e0296957b0279e407485635f831)
+
+**Album:** Everything Black
+
+📅 2023-09-05 12:14:02
+
+
+# **Love Again** / Dua Lipa
+
+![Foto del album: Future Nostalgia](https://i.scdn.co/image/ab67616d00001e02bd26ede1ae69327010d49946)
+
+**Album:** Future Nostalgia
+
+📅 2023-09-05 12:10:12
 
 
 # **Blinding Lights** / The Weeknd
@@ -172,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** After Hours
 
-📅 2023-09-04 12:44:55
+📅 2023-09-05 12:05:54
 
 
 # **Animals** / Maroon 5
@@ -181,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** V
 
-📅 2023-09-04 12:41:35
+📅 2023-09-05 12:02:34
 
 
 # **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
@@ -190,4 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Gloria
 
-📅 2023-09-04 12:37:43
+📅 2023-09-05 11:58:33
