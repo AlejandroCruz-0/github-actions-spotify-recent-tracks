@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Travel** / Fang Akompaniament
+
+![Foto del album: SOFA TRIP BACKGROUNDS](https://i.scdn.co/image/ab67616d00001e027a679a0078d509da232947df)
+
+**Album:** SOFA TRIP BACKGROUNDS
+
+📅 2023-09-05 13:37:20
+
+
 # **Asteria** / Donny McCaslin
 
 ![Foto del album: Stria](https://i.scdn.co/image/ab67616d00001e02d23fbc398e83ca3bd7c88cc0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** V
 
 📅 2023-09-05 12:02:34
-
-
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
-
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
-
-**Album:** Gloria
-
-📅 2023-09-05 11:58:33
