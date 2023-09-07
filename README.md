@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-06 11:56:41
+
+
 # **The Outsider** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** MONTERO
 
 📅 2023-09-05 12:19:40
-
-
-# **Cure For Me** / AURORA
-
-![Foto del album: The Gods We Can Touch](https://i.scdn.co/image/ab67616d00001e023e0d05346299e86c58f75123)
-
-**Album:** The Gods We Can Touch
-
-📅 2023-09-05 12:17:22
