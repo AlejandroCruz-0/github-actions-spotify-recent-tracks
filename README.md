@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-09-06 11:53:59
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-06 11:48:46
+
+
+# **Everytime We Live Together We Die A Bit More** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-06 11:44:27
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-06 11:40:53
+
+
 # **Travel** / Fang Akompaniament
 
 ![Foto del album: SOFA TRIP BACKGROUNDS](https://i.scdn.co/image/ab67616d00001e027a679a0078d509da232947df)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Gods We Can Touch
 
 📅 2023-09-05 12:17:22
-
-
-# **Everything Black** / Unlike Pluto|Mike Taylor
-
-![Foto del album: Everything Black](https://i.scdn.co/image/ab67616d00001e0296957b0279e407485635f831)
-
-**Album:** Everything Black
-
-📅 2023-09-05 12:14:02
-
-
-# **Love Again** / Dua Lipa
-
-![Foto del album: Future Nostalgia](https://i.scdn.co/image/ab67616d00001e02bd26ede1ae69327010d49946)
-
-**Album:** Future Nostalgia
-
-📅 2023-09-05 12:10:12
-
-
-# **Blinding Lights** / The Weeknd
-
-![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-**Album:** After Hours
-
-📅 2023-09-05 12:05:54
-
-
-# **Animals** / Maroon 5
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
-
-**Album:** V
-
-📅 2023-09-05 12:02:34
