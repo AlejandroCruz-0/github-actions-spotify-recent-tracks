@@ -13,31 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Waves** / Hooverphonic
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-09-08 16:09:54
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-09-08 16:08:27
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-09-08 16:04:19
+
+
+# **Frosted Flake Wood** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-07 17:35:19
+📅 2023-09-08 14:35:20
 
 
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-07 17:33:07
-
-
-# **Out Of Sight** / Hooverphonic
+# **Renaissance Affair** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-07 17:29:23
+📅 2023-09-08 14:23:28
 
 
 # **L'Odeur Animale** / Hooverphonic
@@ -46,7 +64,16 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-07 17:23:48
+📅 2023-09-08 14:20:03
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-08 14:16:15
 
 
 # **Mad About You** / Hooverphonic
@@ -55,25 +82,97 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-07 17:20:00
+📅 2023-09-08 14:12:24
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Lucia & Valentina** / Cristobal Tapia De Veer
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
 
-**Album:** Thirteenth Step
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
 
-📅 2023-09-06 11:56:41
+📅 2023-09-08 12:38:59
 
 
-# **The Outsider** / A Perfect Circle
+# **Opening Titles (from Raised by Wolves)** / Mariam Wallentin|Ben Frost
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)](https://i.scdn.co/image/ab67616d00001e02bb8c6aee17cc0ca50742687b)
 
-**Album:** Thirteenth Step
+**Album:** Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)
 
-📅 2023-09-06 11:53:59
+📅 2023-09-08 12:38:19
+
+
+# **Klinek** / Howard Shore
+
+![Foto del album: Crimes of the Future (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e020c5c9e03485648dd343a5adc)
+
+**Album:** Crimes of the Future (Original Motion Picture Soundtrack)
+
+📅 2023-09-08 12:37:12
+
+
+# **Yumeji's Theme - Theme from 'in the Mood for Love'** / Shigeru Umebayashi
+
+![Foto del album: Yumeji's Theme (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02cd90e97ecc36dbf05d688c20)
+
+**Album:** Yumeji's Theme (Original Motion Picture Soundtrack)
+
+📅 2023-09-08 12:33:54
+
+
+# **Sinnerman - Sofi Tukker Remix** / Nina Simone|Sofi Tukker
+
+![Foto del album: Sinnerman (Sofi Tukker Remix)](https://i.scdn.co/image/ab67616d00001e0280080197c0c2680476a57e6f)
+
+**Album:** Sinnerman (Sofi Tukker Remix)
+
+📅 2023-09-08 12:31:23
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-09-08 12:27:30
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-09-08 12:24:52
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-09-08 12:23:00
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-09-08 12:18:54
+
+
+# **Dead and Gone - 2021 Remaster** / The Black Keys
+
+![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
+
+**Album:** El Camino (10th Anniversary Super Deluxe Edition)
+
+📅 2023-09-08 12:15:08
 
 
 # **Jackie Cane** / Hooverphonic
@@ -82,16 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-06 11:48:46
-
-
-# **Everytime We Live Together We Die A Bit More** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-06 11:44:27
+📅 2023-09-08 12:10:19
 
 
 # **Mad About You** / Hooverphonic
@@ -100,94 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-06 11:40:53
-
-
-# **Travel** / Fang Akompaniament
-
-![Foto del album: SOFA TRIP BACKGROUNDS](https://i.scdn.co/image/ab67616d00001e027a679a0078d509da232947df)
-
-**Album:** SOFA TRIP BACKGROUNDS
-
-📅 2023-09-05 13:37:20
-
-
-# **Asteria** / Donny McCaslin
-
-![Foto del album: Stria](https://i.scdn.co/image/ab67616d00001e02d23fbc398e83ca3bd7c88cc0)
-
-**Album:** Stria
-
-📅 2023-09-05 13:35:25
-
-
-# **Animals** / Maroon 5
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
-
-**Album:** V
-
-📅 2023-09-05 13:11:23
-
-
-# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
-
-![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
-
-**Album:** Gloria
-
-📅 2023-09-05 13:07:39
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-05 13:05:02
-
-
-# **The Doomed** / A Perfect Circle
-
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e02a81808a306009c2f1dba3258)
-
-**Album:** Eat The Elephant
-
-📅 2023-09-05 12:54:02
-
-
-# **Passive** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-09-05 12:49:21
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-09-05 12:45:09
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-09-05 12:40:35
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-09-05 12:36:54
+📅 2023-09-08 12:06:00
