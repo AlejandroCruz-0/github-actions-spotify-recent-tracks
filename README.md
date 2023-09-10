@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Follow You** / Imagine Dragons
+
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+
+**Album:** Mercury - Acts 1 & 2
+
+📅 2023-09-09 22:06:58
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-09-09 22:04:02
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-09 20:46:05
+
+
 # **Renaissance Affair** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)
 
 📅 2023-09-08 12:38:19
-
-
-# **Klinek** / Howard Shore
-
-![Foto del album: Crimes of the Future (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e020c5c9e03485648dd343a5adc)
-
-**Album:** Crimes of the Future (Original Motion Picture Soundtrack)
-
-📅 2023-09-08 12:37:12
-
-
-# **Yumeji's Theme - Theme from 'in the Mood for Love'** / Shigeru Umebayashi
-
-![Foto del album: Yumeji's Theme (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02cd90e97ecc36dbf05d688c20)
-
-**Album:** Yumeji's Theme (Original Motion Picture Soundtrack)
-
-📅 2023-09-08 12:33:54
-
-
-# **Sinnerman - Sofi Tukker Remix** / Nina Simone|Sofi Tukker
-
-![Foto del album: Sinnerman (Sofi Tukker Remix)](https://i.scdn.co/image/ab67616d00001e0280080197c0c2680476a57e6f)
-
-**Album:** Sinnerman (Sofi Tukker Remix)
-
-📅 2023-09-08 12:31:23
