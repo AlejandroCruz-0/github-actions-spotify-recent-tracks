@@ -13,112 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Follow You** / Imagine Dragons
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Mercury - Acts 1 & 2
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-09-09 22:06:58
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-09 22:04:02
+📅 2023-09-10 20:11:26
 
 
-# **Out Of Sight** / Hooverphonic
+# **Will Do** / TV On The Radio
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** The Magnificent Tree
+**Album:** Nine Types of Light
 
-📅 2023-09-09 20:46:05
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-09 20:44:19
+📅 2023-09-10 20:10:07
 
 
-# **Mad About You** / Hooverphonic
+# **Dead and Gone - 2021 Remaster** / The Black Keys
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: El Camino (10th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02a68d9b94d213bcaa6861a6bd)
 
-**Album:** The Magnificent Tree
+**Album:** El Camino (10th Anniversary Super Deluxe Edition)
 
-📅 2023-09-09 20:40:53
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-09 12:57:56
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-09 12:54:16
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-09 12:50:51
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-09 11:53:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-09 11:53:34
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-09-08 16:09:54
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2023-09-08 16:08:27
+📅 2023-09-10 20:06:22
 
 
 # **Nobody Speak** / DJ Shadow|Run The Jewels
@@ -127,67 +46,148 @@ Nombre: **lotario1999**
 
 **Album:** The Mountain Will Fall
 
-📅 2023-09-08 16:04:19
+📅 2023-09-10 19:58:39
 
 
-# **Frosted Flake Wood** / Hooverphonic
+# **One Caress** / Depeche Mode
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** The Magnificent Tree
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-09-08 14:35:20
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-08 14:23:28
+📅 2023-09-10 19:55:08
 
 
-# **L'Odeur Animale** / Hooverphonic
+# **Rush** / Depeche Mode
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** The Magnificent Tree
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-09-08 14:20:03
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-08 14:16:15
+📅 2023-09-10 19:51:34
 
 
-# **Mad About You** / Hooverphonic
+# **Get Right With Me** / Depeche Mode
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** The Magnificent Tree
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-09-08 14:12:24
-
-
-# **Lucia & Valentina** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2023-09-08 12:38:59
+📅 2023-09-10 19:46:53
 
 
-# **Opening Titles (from Raised by Wolves)** / Mariam Wallentin|Ben Frost
+# **In Your Room** / Depeche Mode
 
-![Foto del album: Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)](https://i.scdn.co/image/ab67616d00001e02bb8c6aee17cc0ca50742687b)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Raised by Wolves: Season 1 (Soundtrack from the HBO Max Original Series)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-09-08 12:38:19
+📅 2023-09-10 19:43:00
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 19:36:37
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 19:31:23
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 19:27:02
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 19:23:32
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 18:54:04
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 18:42:16
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-09-10 18:36:49
+
+
+# **Unholy (feat. Kim Petras)** / Sam Smith|Kim Petras
+
+![Foto del album: Gloria](https://i.scdn.co/image/ab67616d00001e02fc3ff54493fcc890bcaa036c)
+
+**Album:** Gloria
+
+📅 2023-09-10 13:54:35
+
+
+# **I WANNA BE YOUR SLAVE** / Måneskin
+
+![Foto del album: Teatro d'ira - Vol. I](https://i.scdn.co/image/ab67616d00001e025aa05015cfa7bd2943c29b21)
+
+**Album:** Teatro d'ira - Vol. I
+
+📅 2023-09-10 13:53:05
+
+
+# **Follow You** / Imagine Dragons
+
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+
+**Album:** Mercury - Acts 1 & 2
+
+📅 2023-09-10 13:50:11
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-09-10 13:47:15
+
+
+# **Hand in My Pocket - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2023-09-10 13:02:14
