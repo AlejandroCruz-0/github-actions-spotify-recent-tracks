@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-12 09:09:45
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-12 09:05:44
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-09-12 00:35:29
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-09-12 00:35:15
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-09-11 17:53:47
+
+
 # **The Outsider** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** When The Pawn...
 
 📅 2023-09-11 11:02:04
-
-
-# **A Mistake** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-11 10:59:21
-
-
-# **Paper Bag** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-11 10:54:25
-
-
-# **Love Ridden** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-11 10:50:44
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-11 10:47:22
-
-
-# **To Your Love** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-09-11 10:43:52
