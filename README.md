@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Out Of Sight** / Hooverphonic
+# **Dagger** / Slowdive
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Souvlaki](https://i.scdn.co/image/ab67616d00001e02f6e31941d10e4819d290af41)
 
-**Album:** The Magnificent Tree
+**Album:** Souvlaki
 
-📅 2023-09-12 09:09:45
+📅 2023-09-12 21:33:50
 
 
-# **Mad About You** / Hooverphonic
+# **Birthday** / The Sugarcubes
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Life's Too Good](https://i.scdn.co/image/ab67616d00001e0255250dbe424ef54196319192)
 
-**Album:** The Magnificent Tree
+**Album:** Life's Too Good
 
-📅 2023-09-12 09:05:44
+📅 2023-09-12 21:30:11
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Pretty** / The Cranberries
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Everybody Else Is Doing It, So Why Can't We?](https://i.scdn.co/image/ab67616d00001e02f6325f361d7803ad0d908451)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Everybody Else Is Doing It, So Why Can't We?
 
-📅 2023-09-12 00:35:29
+📅 2023-09-12 21:26:12
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Femme Fatale** / The Velvet Underground|Nico
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Velvet Underground & Nico 45th Anniversary](https://i.scdn.co/image/ab67616d00001e0298260c528e6eec9dd431c1d7)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Velvet Underground & Nico 45th Anniversary
 
-📅 2023-09-12 00:35:15
+📅 2023-09-12 21:23:55
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
+# **Lucky** / Radiohead
 
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+![Foto del album: OK Computer](https://i.scdn.co/image/ab67616d00001e02c8b444df094279e70d0ed856)
 
-**Album:** The Mountain Will Fall
+**Album:** OK Computer
 
-📅 2023-09-11 17:53:47
+📅 2023-09-12 21:21:16
 
 
-# **The Outsider** / A Perfect Circle
+# **Criminal** / Fiona Apple
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Thirteenth Step
+**Album:** Tidal
 
-📅 2023-09-11 13:12:53
+📅 2023-09-12 21:16:57
 
 
-# **3 Libras** / A Perfect Circle
+# **Losing A Friend** / The Cardigans
 
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+![Foto del album: Super Extra Gravity (Remastered)](https://i.scdn.co/image/ab67616d00001e02a4ee8f28e7c3082b2ec973cb)
 
-**Album:** Mer De Noms
+**Album:** Super Extra Gravity (Remastered)
 
-📅 2023-09-11 12:54:29
+📅 2023-09-12 21:11:14
 
 
-# **The Outsider** / A Perfect Circle
+# **Morning Theft** / Jeff Buckley
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Sketches for My Sweetheart The Drunk (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02488ec830a779ebab921a705c)
 
-**Album:** Thirteenth Step
+**Album:** Sketches for My Sweetheart The Drunk (Expanded Edition)
 
-📅 2023-09-11 12:54:14
+📅 2023-09-12 21:07:25
 
 
-# **Heat Waves** / Glass Animals
+# **I Will Always** / The Cranberries
 
-![Foto del album: Dreamland](https://i.scdn.co/image/ab67616d00001e02712701c5e263efc8726b1464)
+![Foto del album: Everybody Else Is Doing It, So Why Can't We?](https://i.scdn.co/image/ab67616d00001e02f6325f361d7803ad0d908451)
 
-**Album:** Dreamland
+**Album:** Everybody Else Is Doing It, So Why Can't We?
 
-📅 2023-09-11 12:15:24
+📅 2023-09-12 21:03:45
 
 
-# **I Ain't Worried** / OneRepublic
+# **Water** / The Sugarcubes
 
-![Foto del album: I Ain’t Worried (Music From The Motion Picture "Top Gun: Maverick")](https://i.scdn.co/image/ab67616d00001e02ec96e006b8bdfc582610ec13)
+![Foto del album: Here Today, Tomorrow Next Week!](https://i.scdn.co/image/ab67616d00001e02714699d581a2434c3af4d88d)
 
-**Album:** I Ain’t Worried (Music From The Motion Picture "Top Gun: Maverick")
+**Album:** Here Today, Tomorrow Next Week!
 
-📅 2023-09-11 12:14:23
+📅 2023-09-12 21:01:03
 
 
-# **Bones** / Imagine Dragons
+# **Subterranean Homesick Alien** / Radiohead
 
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+![Foto del album: OK Computer](https://i.scdn.co/image/ab67616d00001e02c8b444df094279e70d0ed856)
 
-**Album:** Mercury - Acts 1 & 2
+**Album:** OK Computer
 
-📅 2023-09-11 12:11:54
+📅 2023-09-12 20:58:00
 
 
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-11 12:09:08
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-11 11:56:07
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-11 11:55:51
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-11 11:51:51
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-11 11:37:50
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2023-09-11 11:28:44
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2023-09-11 11:28:39
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2023-09-11 11:24:31
-
-
-# **Fast As You Can** / Fiona Apple
+# **Love Ridden** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
 **Album:** When The Pawn...
 
-📅 2023-09-11 11:02:04
+📅 2023-09-12 20:53:33
+
+
+# **Supervixen - 2015 - Remaster** / Garbage
+
+![Foto del album: Garbage (20th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e027809197de31ff4ea5762095c)
+
+**Album:** Garbage (20th Anniversary Edition)
+
+📅 2023-09-12 20:50:10
+
+
+# **mirrored heart** / FKA twigs
+
+![Foto del album: MAGDALENE](https://i.scdn.co/image/ab67616d00001e0286011cee37f1842374d971aa)
+
+**Album:** MAGDALENE
+
+📅 2023-09-12 20:46:14
+
+
+# **Not Sorry** / The Cranberries
+
+![Foto del album: Everybody Else Is Doing It, So Why Can't We?](https://i.scdn.co/image/ab67616d00001e02f6325f361d7803ad0d908451)
+
+**Album:** Everybody Else Is Doing It, So Why Can't We?
+
+📅 2023-09-12 20:41:40
+
+
+# **Here She Comes** / Slowdive
+
+![Foto del album: Souvlaki](https://i.scdn.co/image/ab67616d00001e02f6e31941d10e4819d290af41)
+
+**Album:** Souvlaki
+
+📅 2023-09-12 20:37:19
+
+
+# **Punchdrunk Lovesick Singalong** / Radiohead
+
+![Foto del album: My Iron Lung](https://i.scdn.co/image/ab67616d00001e0294e9f3151ade1a3e37b060e0)
+
+**Album:** My Iron Lung
+
+📅 2023-09-12 20:35:01
+
+
+# **Paper Bag** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-09-12 20:30:20
+
+
+# **It's A Fire** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2023-09-12 20:26:40
+
+
+# **Human Behaviour** / Björk
+
+![Foto del album: Debut](https://i.scdn.co/image/ab67616d00001e02768d171a47a3adae90c7c48a)
+
+**Album:** Debut
+
+📅 2023-09-12 20:22:53
