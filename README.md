@@ -13,13 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Mercy in You** / Depeche Mode
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Magnificent Tree
 
-📅 2023-09-13 08:54:00
+📅 2023-09-13 20:36:15
+
+
+# **Frosted Flake Wood** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-13 14:59:45
 
 
 # **Out Of Sight** / Hooverphonic
@@ -28,16 +37,16 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-13 08:44:03
+📅 2023-09-13 14:59:13
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Jackie Cane** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-13 08:40:07
+📅 2023-09-13 14:55:17
 
 
 # **Mad About You** / Hooverphonic
@@ -46,25 +55,79 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-13 08:35:59
+📅 2023-09-13 14:50:57
 
 
-# **High Times - Remastered** / Jamiroquai
+# **Immigrant Song - Remaster** / Led Zeppelin
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Led Zeppelin III (Remaster)
 
-📅 2023-09-13 00:33:41
+📅 2023-09-13 12:11:19
 
 
-# **Deeper Underground** / Jamiroquai
+# **Electric Worry** / Clutch
 
-![Foto del album: Godzilla - The Album](https://i.scdn.co/image/ab67616d00001e02ef0efe27d0f1aa0ff44e048d)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
 
-**Album:** Godzilla - The Album
+**Album:** From Beale Street to Oblivion
 
-📅 2023-09-13 00:33:14
+📅 2023-09-13 12:11:10
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-09-13 12:05:55
+
+
+# **All Neon Like** / Björk
+
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
+
+**Album:** Homogenic
+
+📅 2023-09-13 11:58:23
+
+
+# **Bachelorette** / Björk
+
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
+
+**Album:** Homogenic
+
+📅 2023-09-13 11:58:06
+
+
+# **Bachelorette** / Björk
+
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
+
+**Album:** Homogenic
+
+📅 2023-09-13 11:51:48
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-13 11:45:02
+
+
+# **Vinegar & Salt** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-13 11:40:42
 
 
 # **Mad About You** / Hooverphonic
@@ -73,16 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-13 00:26:34
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-12 23:31:29
+📅 2023-09-13 11:37:22
 
 
 # **Mad About You** / Hooverphonic
@@ -91,52 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-12 23:31:07
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-12 23:27:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-12 23:22:31
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-12 23:09:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-12 23:08:54
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-09-12 22:00:40
+📅 2023-09-13 11:32:53
 
 
 # **The Outsider** / A Perfect Circle
@@ -145,49 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2023-09-12 21:59:46
+📅 2023-09-13 11:28:57
 
 
-# **You're Beautiful** / Mojave 3
+# **No One Knows** / Queens of the Stone Age
 
-![Foto del album: Ask Me Tomorrow](https://i.scdn.co/image/ab67616d00001e0231a6ae11374a335350825aad)
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
 
-**Album:** Ask Me Tomorrow
+**Album:** Songs For The Deaf
 
-📅 2023-09-12 21:52:49
-
-
-# **I Still Do** / The Cranberries
-
-![Foto del album: Everybody Else Is Doing It, So Why Can't We?](https://i.scdn.co/image/ab67616d00001e02f6325f361d7803ad0d908451)
-
-**Album:** Everybody Else Is Doing It, So Why Can't We?
-
-📅 2023-09-12 21:49:42
+📅 2023-09-13 11:18:13
 
 
-# **Artificial Sweetener** / No Doubt
+# **Two Weeks** / FKA twigs
 
-![Foto del album: Return Of Saturn](https://i.scdn.co/image/ab67616d00001e02a1465b7e3e52023a873124d7)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** Return Of Saturn
+**Album:** LP1
 
-📅 2023-09-12 21:46:25
-
-
-# **Sulk** / Radiohead
-
-![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
-
-**Album:** The Bends
-
-📅 2023-09-12 21:42:30
+📅 2023-09-13 11:14:16
 
 
-# **A Mistake** / Fiona Apple
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** When The Pawn...
+**Album:** The Mountain Will Fall
 
-📅 2023-09-12 21:38:47
+📅 2023-09-13 11:10:08
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-13 11:06:27
