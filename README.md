@@ -13,67 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Two Weeks** / FKA twigs
+# **Land Animal** / Bent Knee
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** LP1
+**Album:** Land Animal
 
-📅 2023-09-18 21:23:04
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2023-09-18 21:18:56
+📅 2023-09-19 20:13:11
 
 
-# **Two Weeks** / FKA twigs
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** LP1
+**Album:** Land Animal
 
-📅 2023-09-18 21:15:23
-
-
-# **Cure For Me** / AURORA
-
-![Foto del album: The Gods We Can Touch](https://i.scdn.co/image/ab67616d00001e023e0d05346299e86c58f75123)
-
-**Album:** The Gods We Can Touch
-
-📅 2023-09-18 20:46:46
+📅 2023-09-19 20:07:56
 
 
-# **Bones** / Imagine Dragons
+# **Terror Bird** / Bent Knee
 
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Bones
+**Album:** Land Animal
 
-📅 2023-09-18 20:46:18
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-18 19:08:17
+📅 2023-09-19 20:02:22
 
 
-# **Mad About You** / Hooverphonic
+# **Land Animal** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2023-09-18 19:08:09
+📅 2023-09-19 15:20:51
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-09-19 15:04:27
 
 
 # **Pink Fluffy Dinosaurs** / Hooverphonic
@@ -82,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:50:41
+📅 2023-09-19 14:58:48
 
 
 # **Out Of Sight** / Hooverphonic
@@ -91,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:38:46
+📅 2023-09-19 14:52:40
 
 
 # **Everytime We Live Together We Die A Bit More** / Hooverphonic
@@ -100,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:34:51
+📅 2023-09-19 14:48:44
 
 
 # **Frosted Flake Wood** / Hooverphonic
@@ -109,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:31:17
+📅 2023-09-19 14:45:11
 
 
 # **Vinegar & Salt** / Hooverphonic
@@ -118,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:28:01
+📅 2023-09-19 14:41:55
 
 
 # **The Magnificent Tree** / Hooverphonic
@@ -127,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:24:41
+📅 2023-09-19 14:38:35
 
 
 # **Jackie Cane** / Hooverphonic
@@ -136,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:20:47
+📅 2023-09-19 14:34:41
 
 
 # **Waves** / Hooverphonic
@@ -145,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:16:28
+📅 2023-09-19 14:30:22
 
 
 # **Mad About You** / Hooverphonic
@@ -154,16 +136,34 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 18:12:26
+📅 2023-09-19 14:26:21
 
 
-# **Waves** / Hooverphonic
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** The Magnificent Tree
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-09-18 12:17:28
+📅 2023-09-19 13:30:29
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-19 13:30:17
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-19 13:26:29
 
 
 # **Mad About You** / Hooverphonic
@@ -172,22 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-09-18 12:17:21
+📅 2023-09-19 13:21:32
 
 
-# **Waves** / Hooverphonic
+# **Little L - Remastered** / Jamiroquai
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** The Magnificent Tree
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-09-18 11:55:46
+📅 2023-09-19 11:59:02
 
 
-# **Mad About You** / Hooverphonic
+# **Canned Heat - Remastered** / Jamiroquai
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
-**Album:** The Magnificent Tree
+**Album:** High Times: Singles 1992-2006
 
-📅 2023-09-18 11:51:45
+📅 2023-09-19 11:58:57
