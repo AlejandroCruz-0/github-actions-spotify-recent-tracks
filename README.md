@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-20 23:07:21
+
+
+# **Legendary** / Welshly Arms
+
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+
+**Album:** No Place Is Home
+
+📅 2023-09-20 16:11:50
+
+
 # **Beetlebum - 2012 Remaster** / Blur
 
 ![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs of Faith and Devotion (Deluxe)
 
 📅 2023-09-19 22:40:30
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-09-19 22:39:53
-
-
-# **These Hands** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-09-19 20:13:43
