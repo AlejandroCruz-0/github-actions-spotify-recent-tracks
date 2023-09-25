@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-25 09:08:34
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-25 09:03:41
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-25 08:59:23
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-25 08:55:21
+
+
+# **Little L - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-24 14:16:09
+
+
 # **Canned Heat - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-09-22 10:14:34
-
-
-# **Autumn Leaves** / Coldcut
-
-![Foto del album: Tone Tales From Tomorrow](https://i.scdn.co/image/ab67616d00001e02dab6350ea27a1649ec07c7b4)
-
-**Album:** Tone Tales From Tomorrow
-
-📅 2023-09-22 09:54:33
-
-
-# **Spin Spin Sugar** / Sneaker Pimps
-
-![Foto del album: Becoming X](https://i.scdn.co/image/ab67616d00001e02d2a5c7041f92cf01309c77de)
-
-**Album:** Becoming X
-
-📅 2023-09-22 09:52:37
-
-
-# **All That Is Thirst** / Pati Yang
-
-![Foto del album: Silent Treatment](https://i.scdn.co/image/ab67616d00001e02c9e8498c2917b9395d2afee8)
-
-**Album:** Silent Treatment
-
-📅 2023-09-22 09:49:01
-
-
-# **Safe From Harm - 2012 Mix/Master** / Massive Attack
-
-![Foto del album: Blue Lines (2012 Mix/Master)](https://i.scdn.co/image/ab67616d00001e02af5beb00d940f5ede452d6b5)
-
-**Album:** Blue Lines (2012 Mix/Master)
-
-📅 2023-09-22 09:45:12
-
-
-# **What Else Is There?** / Röyksopp
-
-![Foto del album: The Understanding](https://i.scdn.co/image/ab67616d00001e0224850f3eb04b5132b96df67a)
-
-**Album:** The Understanding
-
-📅 2023-09-22 09:39:53
