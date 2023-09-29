@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Cosmic Girl - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 09:13:34
+
+
+# **Virtual Insanity - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 09:09:47
+
+
+# **Safe From Harm - 2012 Mix/Master** / Massive Attack
+
+![Foto del album: Blue Lines (2012 Mix/Master)](https://i.scdn.co/image/ab67616d00001e02af5beb00d940f5ede452d6b5)
+
+**Album:** Blue Lines (2012 Mix/Master)
+
+📅 2023-09-29 08:56:53
+
+
+# **Blindfold** / Morcheeba
+
+![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
+
+**Album:** Big Calm
+
+📅 2023-09-29 08:56:22
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 08:51:34
+
+
+# **And Then I Found You** / Hooverphonic
+
+![Foto del album: And Then I Found You](https://i.scdn.co/image/ab67616d00001e0282bcb215ac18432bc3fc9389)
+
+**Album:** And Then I Found You
+
+📅 2023-09-29 08:47:49
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 08:44:43
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 08:40:48
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-28 20:38:14
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** High Times: Singles 1992-2006
 
 📅 2023-09-28 11:13:55
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-09-28 11:06:39
-
-
-# **Everything Black** / Unlike Pluto|Mike Taylor
-
-![Foto del album: Everything Black](https://i.scdn.co/image/ab67616d00001e0296957b0279e407485635f831)
-
-**Album:** Everything Black
-
-📅 2023-09-28 09:44:47
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
-
-**Album:** Bones
-
-📅 2023-09-28 09:42:55
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-09-28 09:14:00
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-09-28 09:12:00
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-09-28 09:08:12
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-28 09:00:33
-
-
-# **Never Tear Us Apart** / INXS
-
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
-
-**Album:** Kick (Remastered 2011)
-
-📅 2023-09-28 08:46:52
-
-
-# **Kiss from a Rose** / Seal
-
-![Foto del album: Seal](https://i.scdn.co/image/ab67616d00001e02419ef0b4e93476c41b7b3c89)
-
-**Album:** Seal
-
-📅 2023-09-28 08:43:46
