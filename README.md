@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Killshot** / Magdalena Bay
+
+![Foto del album: Killshot](https://i.scdn.co/image/ab67616d00001e029144b6426073e72ef6b32b46)
+
+**Album:** Killshot
+
+📅 2023-09-29 23:58:03
+
+
 # **Little L - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-09-29 11:36:32
-
-
-# **Vinegar & Salt** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-29 11:33:16
