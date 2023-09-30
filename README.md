@@ -13,166 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Cosmic Girl - Remastered** / Jamiroquai
+# **Little L - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-09-29 09:13:34
-
-
-# **Virtual Insanity - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-09-29 09:09:47
-
-
-# **Safe From Harm - 2012 Mix/Master** / Massive Attack
-
-![Foto del album: Blue Lines (2012 Mix/Master)](https://i.scdn.co/image/ab67616d00001e02af5beb00d940f5ede452d6b5)
-
-**Album:** Blue Lines (2012 Mix/Master)
-
-📅 2023-09-29 08:56:53
-
-
-# **Blindfold** / Morcheeba
-
-![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
-
-**Album:** Big Calm
-
-📅 2023-09-29 08:56:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-29 08:51:34
-
-
-# **And Then I Found You** / Hooverphonic
-
-![Foto del album: And Then I Found You](https://i.scdn.co/image/ab67616d00001e0282bcb215ac18432bc3fc9389)
-
-**Album:** And Then I Found You
-
-📅 2023-09-29 08:47:49
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-29 08:44:43
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-29 08:40:48
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-28 20:38:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-28 20:38:00
-
-
-# **Welcome** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-09-28 13:17:26
-
-
-# **One Day** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-09-28 13:16:13
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-09-28 13:13:32
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-09-28 13:08:57
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-09-28 13:04:56
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-09-28 12:39:57
-
-
-# **All Neon Like** / Björk
-
-![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
-
-**Album:** Homogenic
-
-📅 2023-09-28 11:25:10
-
-
-# **Bachelorette** / Björk
-
-![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
-
-**Album:** Homogenic
-
-📅 2023-09-28 11:24:35
+📅 2023-09-29 13:32:06
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -181,7 +28,115 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-09-28 11:17:43
+📅 2023-09-29 13:20:39
+
+
+# **Let Me See** / Morcheeba
+
+![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
+
+**Album:** Big Calm
+
+📅 2023-09-29 13:16:01
+
+
+# **Erase / Rewind** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2023-09-29 13:11:40
+
+
+# **Radio - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 13:07:18
+
+
+# **Runaway - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 13:03:03
+
+
+# **(Don't) Give Hate a Chance - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:59:14
+
+
+# **Seven Days in Sunny June** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:55:23
+
+
+# **Feels Just Like it Should** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:51:23
+
+
+# **You Give Me Something** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:46:35
+
+
+# **Corner of the Earth - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:43:16
+
+
+# **Love Foolosophy - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:39:19
+
+
+# **Little L - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:35:32
+
+
+# **Canned Heat - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-09-29 12:31:32
 
 
 # **Deeper Underground - Full Version** / Jamiroquai
@@ -190,4 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** High Times: Singles 1992-2006
 
-📅 2023-09-28 11:13:55
+📅 2023-09-29 12:27:44
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 11:46:55
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 11:44:02
+
+
+# **Everytime We Live Together We Die A Bit More** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 11:40:06
+
+
+# **Frosted Flake Wood** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 11:36:32
+
+
+# **Vinegar & Salt** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-09-29 11:33:16
