@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-10-06 13:00:59
+
+
 # **Canned Heat - Remastered** / Jamiroquai
 
 ![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** From Beale Street to Oblivion
 
 📅 2023-10-06 09:56:52
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2023-10-06 09:51:37
