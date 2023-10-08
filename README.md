@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Bones** / Imagine Dragons
+
+![Foto del album: Bones](https://i.scdn.co/image/ab67616d00001e02813713582dcc508e7d5073c4)
+
+**Album:** Bones
+
+📅 2023-10-07 18:05:38
+
+
 # **No One Knows** / Queens of the Stone Age
 
 ![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Led Zeppelin III (Remaster)
 
 📅 2023-10-06 09:59:19
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2023-10-06 09:56:52
