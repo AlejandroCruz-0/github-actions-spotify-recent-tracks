@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Hells Bells** / AC/DC
+
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+
+**Album:** Back In Black
+
+📅 2023-10-18 09:12:12
+
+
+# **Immigrant Song - Remaster** / Led Zeppelin
+
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
+
+**Album:** Led Zeppelin III (Remaster)
+
+📅 2023-10-18 09:06:59
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2023-10-18 09:04:32
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2023-10-18 08:59:17
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e024436f2e7c93002ad0eb9716a)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2023-10-18 08:53:35
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2023-10-18 08:49:29
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2023-10-18 08:44:49
+
+
+# **Coffee & TV** / Blur
+
+![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
+
+**Album:** 13
+
+📅 2023-10-17 14:27:51
+
+
 # **Time is Running Out** / Muse
 
 ![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Mountain Will Fall
 
 📅 2023-10-17 11:50:20
-
-
-# **Amarillo** / Gorillaz
-
-![Foto del album: The Fall](https://i.scdn.co/image/ab67616d00001e02bfcb1c9ce002a2c2cd5e9f34)
-
-**Album:** The Fall
-
-📅 2023-10-16 18:40:54
-
-
-# **Coffee & TV** / Blur
-
-![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
-
-**Album:** 13
-
-📅 2023-10-16 18:28:37
-
-
-# **Time is Running Out** / Muse
-
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
-
-**Album:** Absolution
-
-📅 2023-10-16 18:22:37
-
-
-# **I'll Keep Coming** / Low Roar
-
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
-
-**Album:** 0
-
-📅 2023-10-16 18:18:39
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-10-16 18:12:47
-
-
-# **Hells Bells** / AC/DC
-
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
-
-**Album:** Back In Black
-
-📅 2023-10-16 18:09:01
-
-
-# **Immigrant Song - Remaster** / Led Zeppelin
-
-![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
-
-**Album:** Led Zeppelin III (Remaster)
-
-📅 2023-10-16 18:03:49
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2023-10-16 18:01:22
