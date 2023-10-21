@@ -13,40 +13,94 @@ Nombre: **lotario1999**
 
 
 
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-20 13:23:00
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-10-19 22:16:33
+📅 2023-10-20 13:12:58
 
 
-# **Mercy in You** / Depeche Mode
+# **Passive** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** eMOTIVe
 
-📅 2023-10-19 13:30:23
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-10-19 13:08:05
+📅 2023-10-20 12:35:44
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Pet** / A Perfect Circle
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Thirteenth Step
 
-📅 2023-10-19 13:04:36
+📅 2023-10-20 12:34:58
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2023-10-20 12:30:23
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-10-20 12:26:43
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-10-20 12:23:27
+
+
+# **High Times - Remastered** / Jamiroquai
+
+![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+
+**Album:** High Times: Singles 1992-2006
+
+📅 2023-10-20 11:56:25
+
+
+# **Blinding Lights** / The Weeknd
+
+![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
+
+**Album:** After Hours
+
+📅 2023-10-20 11:06:38
+
+
+# **Enemy (with JID) - from the series Arcane League of Legends** / Imagine Dragons|JID|Arcane|League of Legends
+
+![Foto del album: Enemy (with JID) [from the series Arcane League of Legends]](https://i.scdn.co/image/ab67616d00001e02aa597e50829169e6994eb403)
+
+**Album:** Enemy (with JID) [from the series Arcane League of Legends]
+
+📅 2023-10-20 11:05:40
 
 
 # **I Feel You** / Depeche Mode
@@ -55,34 +109,52 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-10-19 12:59:10
+📅 2023-10-20 10:51:42
 
 
-# **Time is Running Out** / Muse
+# **Renaissance Affair** / Hooverphonic
 
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e028cb690f962092fd44bbe2bf4)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Absolution
+**Album:** The Magnificent Tree
 
-📅 2023-10-19 12:54:35
-
-
-# **I'll Keep Coming** / Low Roar
-
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
-
-**Album:** 0
-
-📅 2023-10-19 12:29:37
+📅 2023-10-20 10:47:12
 
 
-# **Will Do** / TV On The Radio
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Nine Types of Light
+**Album:** The Magnificent Tree
 
-📅 2023-10-19 12:23:44
+📅 2023-10-20 10:43:47
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-20 10:03:06
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-20 10:03:01
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-20 09:56:37
 
 
 # **Waves** / Hooverphonic
@@ -91,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-10-19 12:17:27
+📅 2023-10-20 09:52:02
 
 
 # **Mad About You** / Hooverphonic
@@ -100,94 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-10-19 12:15:19
+📅 2023-10-20 09:48:14
 
 
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2023-10-19 10:19:26
-
-
-# **The Way Things Are** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-19 09:41:02
-
-
-# **Fast As You Can** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-19 09:37:57
-
-
-# **A Mistake** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-19 09:33:18
-
-
-# **Paper Bag** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-19 09:28:22
-
-
-# **Love Ridden** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-19 09:24:43
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-19 09:21:20
-
-
-# **Waves** / Hooverphonic
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-10-19 08:44:12
+📅 2023-10-20 09:42:53
 
 
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-19 08:43:54
-
-
-# **Mad About You** / Hooverphonic
+# **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2023-10-19 08:38:28
+📅 2023-10-20 09:39:03
