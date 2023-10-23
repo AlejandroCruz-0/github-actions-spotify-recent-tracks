@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **Gusty Garden Galaxy** / TPR|Roxane Genot
+
+![Foto del album: To The Stars: Melancholy Music From Super Mario Galaxy](https://i.scdn.co/image/ab67616d00001e02b744e20e0ee76fd3bb05aac4)
+
+**Album:** To The Stars: Melancholy Music From Super Mario Galaxy
+
+📅 2023-10-22 12:22:52
+
+
+# **Completing the Circle (feat. Rachel Mellis)** / Gareth Coker|Rachel Mellis
+
+![Foto del album: Ori and the Blind Forest (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e0271b1b5d2f76b80661d4e01c8)
+
+**Album:** Ori and the Blind Forest (Original Soundtrack)
+
+📅 2023-10-22 12:19:25
+
+
+# **Secret of the Forest** / Malcolm Robinson
+
+![Foto del album: Chrono Trigger: Orchestral Selections Vol. I](https://i.scdn.co/image/ab67616d00001e023c8bee9b5d7c727936cd79d2)
+
+**Album:** Chrono Trigger: Orchestral Selections Vol. I
+
+📅 2023-10-22 12:17:03
+
+
+# **All's Well** / Jeremy Soule
+
+![Foto del album: The Elder Scrolls IV: Oblivion: Original Game Soundtrack](https://i.scdn.co/image/ab67616d00001e02db65cfec2e8e37303140c881)
+
+**Album:** The Elder Scrolls IV: Oblivion: Original Game Soundtrack
+
+📅 2023-10-22 12:12:20
+
+
+# **Dearly Beloved I** / Project Destati
+
+![Foto del album: Project Destati: LIGHT](https://i.scdn.co/image/ab67616d00001e0260dd62d574ae759ff4939bf5)
+
+**Album:** Project Destati: LIGHT
+
+📅 2023-10-22 12:09:54
+
+
+# **Travelers** / Andrew Prahlow
+
+![Foto del album: Outer Wilds (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02db6b8ae97f69fee1d432334d)
+
+**Album:** Outer Wilds (Original Soundtrack)
+
+📅 2023-10-22 12:06:04
+
+
+# **The Choice** / Gustavo Santaolalla|Alan Umstead
+
+![Foto del album: The Last of Us](https://i.scdn.co/image/ab67616d00001e0268e5e7cc9256ca8c0917a9dd)
+
+**Album:** The Last of Us
+
+📅 2023-10-22 11:44:47
+
+
+# **Nascence** / Austin Wintory
+
+![Foto del album: Journey (Original Video Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02408d222041f4a60f7d38b223)
+
+**Album:** Journey (Original Video Game Soundtrack)
+
+📅 2023-10-22 11:43:04
+
+
+# **Title Theme** / TPR
+
+![Foto del album: A Melancholy Tribute To The Legend Of Zelda: Ocarina Of Time](https://i.scdn.co/image/ab67616d00001e02cf7dfdbaa8fbb5ddab474de7)
+
+**Album:** A Melancholy Tribute To The Legend Of Zelda: Ocarina Of Time
+
+📅 2023-10-22 11:41:16
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-22 09:25:09
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-22 09:22:31
+
+
+# **Aftermath** / Caravan Palace
+
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+
+**Album:** <I°_°I>
+
+📅 2023-10-22 09:04:17
+
+
 # **Lone Digger** / Caravan Palace
 
 ![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2023-10-20 12:34:58
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2023-10-20 12:30:23
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-10-20 12:26:43
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-10-20 12:23:27
-
-
-# **High Times - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-10-20 11:56:25
-
-
-# **Blinding Lights** / The Weeknd
-
-![Foto del album: After Hours](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-**Album:** After Hours
-
-📅 2023-10-20 11:06:38
-
-
-# **Enemy (with JID) - from the series Arcane League of Legends** / Imagine Dragons|JID|Arcane|League of Legends
-
-![Foto del album: Enemy (with JID) [from the series Arcane League of Legends]](https://i.scdn.co/image/ab67616d00001e02aa597e50829169e6994eb403)
-
-**Album:** Enemy (with JID) [from the series Arcane League of Legends]
-
-📅 2023-10-20 11:05:40
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2023-10-20 10:51:42
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 10:47:12
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 10:43:47
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 10:03:06
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 10:03:01
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 09:56:37
