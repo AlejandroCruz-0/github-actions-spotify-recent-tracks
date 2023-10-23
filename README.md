@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-10-23 09:12:01
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-10-22 22:44:07
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-10-22 22:38:30
+
+
+# **Zanarkand (Final Fantasy X)** / Nobuo Uematsu
+
+![Foto del album: Distant Worlds II: More Music from Final Fantasy](https://i.scdn.co/image/ab67616d00001e023479a61eaae6d85a0308fe1a)
+
+**Album:** Distant Worlds II: More Music from Final Fantasy
+
+📅 2023-10-22 12:25:27
+
+
 # **Gusty Garden Galaxy** / TPR|Roxane Genot
 
 ![Foto del album: To The Stars: Melancholy Music From Super Mario Galaxy](https://i.scdn.co/image/ab67616d00001e02b744e20e0ee76fd3bb05aac4)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-10-21 13:34:08
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 13:23:00
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-20 13:12:58
-
-
-# **Passive** / A Perfect Circle
-
-![Foto del album: eMOTIVe](https://i.scdn.co/image/ab67616d00001e02b899c5d781cdb8bd0788b27f)
-
-**Album:** eMOTIVe
-
-📅 2023-10-20 12:35:44
-
-
-# **Pet** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2023-10-20 12:34:58
