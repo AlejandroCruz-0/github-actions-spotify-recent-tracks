@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** <I°_°I>
 
+📅 2023-10-26 09:07:09
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-10-26 09:03:19
+
+
+# **Lone Digger** / Caravan Palace
+
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+
+**Album:** <I°_°I>
+
 📅 2023-10-25 12:16:04
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** When The Pawn...
 
 📅 2023-10-25 09:38:21
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2023-10-25 09:33:23
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-25 08:59:51
