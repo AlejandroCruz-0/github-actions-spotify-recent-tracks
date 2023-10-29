@@ -906,3 +906,4 @@ For more information check: https://httpstatuses.com/503
 2023-10-28 00:34:21,471 - __main__ - ERROR - Server error '503 Service Unavailable' for url 'https://api.spotify.com/v1/me'
 For more information check: https://httpstatuses.com/503
 2023-10-28 12:12:14,266 - __main__ - INFO - Operación completada
+2023-10-29 00:38:05,319 - __main__ - INFO - Operación completada

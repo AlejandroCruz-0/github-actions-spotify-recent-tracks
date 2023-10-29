@@ -13,22 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **Light up the Night** / Jamie Berry|Robert Edwards|Andrew Griffiths|Octavia Rose
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Light up the Night](https://i.scdn.co/image/ab67616d00001e0280ea787d4ba2b03f961b8e87)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Light up the Night
 
-📅 2023-10-27 12:30:37
+📅 2023-10-28 13:15:58
 
 
-# **Two Fish in a Pond** / IXIK
+# **Renegade Soundwave** / The Electric Swing Circus
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
-**Album:** shorts
+**Album:** It Flew By
 
-📅 2023-10-27 12:27:09
+📅 2023-10-28 13:14:43
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-10-28 13:11:39
+
+
+# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
+
+![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+
+**Album:** Electro Swing (Original Soundtrack)
+
+📅 2023-10-28 13:08:27
+
+
+# **Silent Movie** / Little Violet
+
+![Foto del album: Code Red](https://i.scdn.co/image/ab67616d00001e02eb7fc38f09adbe25271162dd)
+
+**Album:** Code Red
+
+📅 2023-10-28 13:06:04
+
+
+# **Hybrid** / Swingrowers
+
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+
+**Album:** Hybrid
+
+📅 2023-10-28 13:02:46
+
+
+# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
+
+![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
+
+**Album:** Lost In The Rhythm
+
+📅 2023-10-28 12:59:43
+
+
+# **The Penniless Optimist** / The Electric Swing Circus
+
+![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
+
+**Album:** The Electric Swing Circus
+
+📅 2023-10-28 12:56:36
 
 
 # **Lone Digger** / Caravan Palace
@@ -37,52 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** <I°_°I>
 
-📅 2023-10-27 12:25:43
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-10-27 12:21:53
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-27 12:18:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-27 12:13:47
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-27 12:00:59
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-10-27 10:57:43
+📅 2023-10-28 12:53:49
 
 
 # **Two Fish in a Pond** / IXIK
@@ -91,7 +100,25 @@ Nombre: **lotario1999**
 
 **Album:** shorts
 
-📅 2023-10-27 10:54:56
+📅 2023-10-28 12:49:59
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-10-28 12:48:35
+
+
+# **The Penniless Optimist** / The Electric Swing Circus
+
+![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
+
+**Album:** The Electric Swing Circus
+
+📅 2023-10-28 12:18:16
 
 
 # **Lone Digger** / Caravan Palace
@@ -100,7 +127,16 @@ Nombre: **lotario1999**
 
 **Album:** <I°_°I>
 
-📅 2023-10-27 10:53:31
+📅 2023-10-28 12:18:06
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-10-28 12:14:16
 
 
 # **MAD** / Caravan Palace
@@ -109,85 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** MAD
 
-📅 2023-10-27 10:49:41
+📅 2023-10-28 12:12:51
 
 
-# **Love Lockdown** / Kanye West
+# **Judas** / Depeche Mode
 
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** 808s & Heartbreak
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-10-27 09:55:49
-
-
-# **Amazing** / Kanye West|Jeezy
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-10-27 09:51:19
+📅 2023-10-28 11:29:22
 
 
-# **Heartless** / Kanye West
+# **Mercy in You** / Depeche Mode
 
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** 808s & Heartbreak
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-10-27 09:47:22
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
-
-**Album:** High Times: Singles 1992-2006
-
-📅 2023-10-26 14:19:45
+📅 2023-10-28 11:18:58
 
 
-# **Canned Heat - Remastered** / Jamiroquai
+# **Condemnation** / Depeche Mode
 
-![Foto del album: High Times: Singles 1992-2006](https://i.scdn.co/image/ab67616d00001e021eccab770c074d1a087ef6ab)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** High Times: Singles 1992-2006
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-10-26 14:19:38
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-10-26 13:34:48
+📅 2023-10-28 11:14:37
 
 
-# **MAD** / Caravan Palace
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** MAD
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-10-26 13:21:34
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-10-26 12:55:41
+📅 2023-10-28 11:11:08
 
 
-# **MAD** / Caravan Palace
+# **I Feel You** / Depeche Mode
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** MAD
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-10-26 10:45:34
+📅 2023-10-28 11:05:42
