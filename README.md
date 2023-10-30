@@ -13,85 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Lone Digger** / Caravan Palace
+# **Renegade Soundwave** / The Electric Swing Circus
 
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
-**Album:** <I°_°I>
+**Album:** It Flew By
 
-📅 2023-10-29 20:39:48
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-10-29 20:35:58
+📅 2023-10-30 09:12:40
 
 
-# **Mad About You** / Hooverphonic
+# **Brokopoly** / Lyre Le Temps
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Brokopoly](https://i.scdn.co/image/ab67616d00001e023ad29fa29c3ea6b2e9d3dc8f)
 
-**Album:** The Magnificent Tree
+**Album:** Brokopoly
 
-📅 2023-10-29 20:32:58
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-29 20:28:28
+📅 2023-10-30 09:09:36
 
 
-# **Mad About You** / Hooverphonic
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** The Magnificent Tree
+**Album:** Panic
 
-📅 2023-10-29 20:22:05
-
-
-# **RoboCop** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-10-29 14:29:46
+📅 2023-10-30 09:07:17
 
 
-# **Paranoid** / Kanye West|Mr Hudson
+# **Follow the Stars** / Swingrowers
 
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
 
-**Album:** 808s & Heartbreak
+**Album:** Hybrid
 
-📅 2023-10-29 14:29:32
-
-
-# **Love Lockdown** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-10-29 14:24:54
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-10-29 14:20:24
+📅 2023-10-30 09:04:05
 
 
 # **Tipsy Gypsy** / Paul J. Borg|Sandor Mihaly Jozsa
@@ -100,34 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Electro Swing (Original Soundtrack)
 
-📅 2023-10-29 14:15:52
-
-
-# **Two Fish in a Pond** / IXIK
-
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
-
-**Album:** shorts
-
-📅 2023-10-29 14:11:30
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-10-29 14:10:06
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-10-29 14:06:38
+📅 2023-10-30 09:00:45
 
 
 # **Lost In The Rhythm** / Jamie Berry|Octavia Rose
@@ -136,7 +64,34 @@ Nombre: **lotario1999**
 
 **Album:** Lost In The Rhythm
 
-📅 2023-10-29 14:03:27
+📅 2023-10-30 08:58:31
+
+
+# **Empires** / The Electric Swing Circus
+
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+
+**Album:** It Flew By
+
+📅 2023-10-30 08:55:24
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-10-30 08:52:13
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-10-30 08:50:49
 
 
 # **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
@@ -145,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Hybrid
 
-📅 2023-10-29 14:00:20
+📅 2023-10-30 08:47:21
 
 
 # **Lone Digger** / Caravan Palace
@@ -154,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** <I°_°I>
 
-📅 2023-10-29 13:57:23
+📅 2023-10-30 08:44:23
 
 
 # **MAD** / Caravan Palace
@@ -163,31 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** MAD
 
-📅 2023-10-29 13:53:32
+📅 2023-10-30 08:40:33
 
 
-# **Mad About You** / Hooverphonic
+# **Niamos! (Morlana Club Mix)** / Nicholas Britell
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** The Magnificent Tree
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2023-10-28 15:28:47
-
-
-# **Light up the Night** / Jamie Berry|Robert Edwards|Andrew Griffiths|Octavia Rose
-
-![Foto del album: Light up the Night](https://i.scdn.co/image/ab67616d00001e0280ea787d4ba2b03f961b8e87)
-
-**Album:** Light up the Night
-
-📅 2023-10-28 13:15:58
+📅 2023-10-30 00:03:07
 
 
-# **Renegade Soundwave** / The Electric Swing Circus
+# **WE BEGIN (Time Grappler)** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-10-30 00:02:11
+
+
+# **Andor (Main Title Theme) - Episode 1** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-10-30 00:01:35
+
+
+# **Empires** / The Electric Swing Circus
 
 ![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
 **Album:** It Flew By
 
-📅 2023-10-28 13:14:43
+📅 2023-10-29 22:17:16
+
+
+# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
+
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+
+**Album:** Hybrid
+
+📅 2023-10-29 22:15:55
+
+
+# **Lone Digger** / Caravan Palace
+
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+
+**Album:** <I°_°I>
+
+📅 2023-10-29 22:12:58
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-10-29 22:09:06
+
+
+# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
+
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+
+**Album:** Hybrid
+
+📅 2023-10-29 20:41:00
