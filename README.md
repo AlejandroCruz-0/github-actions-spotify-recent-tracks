@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **I Don't Smoke** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2023-11-02 00:14:52
+
+
+# **Dynasties and Dystopia (from the series Arcane League of Legends)** / Denzel Curry|Gizzle|Bren Joy
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2023-11-02 00:11:34
+
+
+# **Caminar Sola** / Julieta Venegas
+
+![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
+
+**Album:** Caminar Sola
+
+📅 2023-11-02 00:08:36
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2023-11-02 00:05:12
+
+
+# **Tightrope** / LP
+
+![Foto del album: Lost on You](https://i.scdn.co/image/ab67616d00001e02edd52840c88ba5e7163071cf)
+
+**Album:** Lost on You
+
+📅 2023-11-02 00:00:56
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2023-11-01 23:55:18
+
+
+# **My Favourite Game** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2023-11-01 18:09:59
+
+
 # **The Well** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Magnolia (Music from the Motion Picture)
 
 📅 2023-11-01 13:45:24
-
-
-# **Don't Wanna Fight** / Alabama Shakes
-
-![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
-
-**Album:** Sound & Color (Deluxe Edition)
-
-📅 2023-11-01 13:42:07
-
-
-# **Not Your Kind of People** / Garbage
-
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027971d0342f46ec9c28c894c5)
-
-**Album:** Not Your Kind of People
-
-📅 2023-11-01 13:38:15
-
-
-# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
-
-![Foto del album: God Willin' & The Creek Don't Rise](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
-
-**Album:** God Willin' & The Creek Don't Rise
-
-📅 2023-11-01 13:30:37
-
-
-# **All Neon Like** / Björk
-
-![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
-
-**Album:** Homogenic
-
-📅 2023-11-01 13:27:07
-
-
-# **Control** / Broken Bells
-
-![Foto del album: After the Disco](https://i.scdn.co/image/ab67616d00001e029c111e02e4ae7cc0d1caa91d)
-
-**Album:** After the Disco
-
-📅 2023-11-01 13:21:13
-
-
-# **In Our Prime** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-01 13:17:31
-
-
-# **Sucker for the Witch** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
-
-**Album:** Psychic Warfare
-
-📅 2023-11-01 13:12:53
