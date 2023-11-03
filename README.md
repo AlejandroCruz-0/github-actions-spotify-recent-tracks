@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Rock the Casbah - Remastered** / The Clash
+
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+
+**Album:** Combat Rock (Remastered)
+
+📅 2023-11-03 09:08:39
+
+
+# **Me Van a Matar** / Julieta Venegas
+
+![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
+
+**Album:** Escena Alterlatina
+
+📅 2023-11-03 09:04:56
+
+
+# **Rapto** / Gustavo Cerati
+
+![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
+
+**Album:** Fuerza Natural
+
+📅 2023-11-03 09:00:54
+
+
+# **I'll Keep Coming** / Low Roar
+
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+
+**Album:** 0
+
+📅 2023-11-03 08:56:57
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2023-11-03 08:51:04
+
+
+# **Francis Forever** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2023-11-03 08:47:48
+
+
+# **The Suburbs** / Arcade Fire
+
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+
+**Album:** The Suburbs (Deluxe)
+
+📅 2023-11-03 08:45:17
+
+
+# **Legendary** / Welshly Arms
+
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+
+**Album:** No Place Is Home
+
+📅 2023-11-03 08:39:42
+
+
+# **Time Deer** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-11-03 08:35:50
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2023-11-02 20:54:01
+
+
 # **Insides In** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fire And Water
 
 📅 2023-11-02 16:21:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-11-02 16:21:10
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-11-02 16:17:26
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-02 14:33:46
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-11-02 14:29:39
-
-
-# **Jobless Monday** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-11-02 12:39:38
-
-
-# **Year in Review** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-02 12:39:26
-
-
-# **MONTERO (Call Me By Your Name)** / Lil Nas X
-
-![Foto del album: MONTERO (Call Me By Your Name)](https://i.scdn.co/image/ab67616d00001e02664034dd80e91b28f773598d)
-
-**Album:** MONTERO (Call Me By Your Name)
-
-📅 2023-11-02 12:35:37
-
-
-# **Points of Authority** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2023-11-02 12:33:19
-
-
-# **Tightrope** / LP
-
-![Foto del album: Lost On You](https://i.scdn.co/image/ab67616d00001e02c54bb44453799029379d30c4)
-
-**Album:** Lost On You
-
-📅 2023-11-02 12:29:45
-
-
-# **Francis Forever** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-11-02 11:50:10
