@@ -13,112 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Two Fish in a Pond** / IXIK
+# **Terror Bird** / Bent Knee
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** shorts
+**Album:** Land Animal
 
-📅 2023-11-03 15:13:12
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-11-03 15:12:30
+📅 2023-11-05 19:01:48
 
 
-# **Coldest Winter** / Kanye West
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** 808s & Heartbreak
+**Album:** Panic
 
-📅 2023-11-03 11:50:27
-
-
-# **See You In My Nightmares** / Kanye West|Lil Wayne
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:49:36
+📅 2023-11-05 18:57:38
 
 
-# **Bad News** / Kanye West
+# **Bottle Up And Explode!** / Elliott Smith
 
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** 808s & Heartbreak
+**Album:** XO
 
-📅 2023-11-03 11:45:18
-
-
-# **Street Lights** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:41:19
-
-
-# **RoboCop** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:38:10
-
-
-# **Paranoid** / Kanye West|Mr Hudson
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:33:35
-
-
-# **Love Lockdown** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:28:57
-
-
-# **Amazing** / Kanye West|Jeezy
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:24:27
-
-
-# **Heartless** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:20:28
-
-
-# **Welcome To Heartbreak** / Kanye West|Kid Cudi
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-03 11:16:58
+📅 2023-11-05 18:54:26
 
 
 # **Fuel** / Metallica
@@ -127,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Reload
 
-📅 2023-11-03 10:34:00
+📅 2023-11-05 18:51:28
 
 
 # **First Love/Late Spring** / Mitski
@@ -136,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Bury Me At Makeout Creek
 
-📅 2023-11-03 10:30:27
+📅 2023-11-05 18:46:57
 
 
 # **Insides In** / Bent Knee
@@ -145,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2023-11-03 10:25:48
+📅 2023-11-05 18:42:18
 
 
 # **Will Do** / TV On The Radio
@@ -154,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2023-11-03 10:19:18
+📅 2023-11-05 18:35:48
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -163,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2023-11-03 10:15:32
+📅 2023-11-05 18:32:03
 
 
 # **Fever** / The Black Keys
@@ -172,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-11-03 10:12:06
+📅 2023-11-05 18:28:37
 
 
 # **Congregation** / Low
@@ -181,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2023-11-03 10:08:00
+📅 2023-11-05 18:24:30
 
 
 # **I Love You** / Woodkid
@@ -190,4 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-11-03 10:04:07
+📅 2023-11-05 18:20:38
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-11-05 18:16:47
+
+
+# **A Mistake** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-11-05 14:26:10
+
+
+# **Paper Bag** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-11-05 14:24:45
+
+
+# **Love Ridden** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-11-05 14:21:06
+
+
+# **Limp** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2023-11-05 14:17:44
+
+
+# **Hybrid** / Swingrowers
+
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+
+**Album:** Hybrid
+
+📅 2023-11-05 11:52:48
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-11-05 11:51:21
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-11-05 11:49:57
+
+
+# **Empires** / The Electric Swing Circus
+
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+
+**Album:** It Flew By
+
+📅 2023-11-05 11:35:46
