@@ -13,67 +13,94 @@ Nombre: **lotario1999**
 
 
 
+# **My Favourite Game** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2023-11-06 13:40:14
+
+
+# **The Well** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-11-06 13:37:03
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2023-11-06 13:31:31
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2023-11-06 13:26:03
+
+
+# **Tightrope** / LP
+
+![Foto del album: Lost On You](https://i.scdn.co/image/ab67616d00001e02c54bb44453799029379d30c4)
+
+**Album:** Lost On You
+
+📅 2023-11-06 13:21:47
+
+
+# **The Suburbs** / Arcade Fire
+
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+
+**Album:** The Suburbs (Deluxe)
+
+📅 2023-11-06 12:11:26
+
+
+# **Legendary** / Welshly Arms
+
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+
+**Album:** No Place Is Home
+
+📅 2023-11-06 12:06:11
+
+
+# **Time Deer** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-11-06 12:02:18
+
+
+# **Pressure** / Billy Joel
+
+![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
+
+**Album:** The Nylon Curtain
+
+📅 2023-11-06 11:57:31
+
+
 # **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
 
 ![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
 
 **Album:** MONTERO
 
-📅 2023-11-06 09:12:16
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-11-06 09:08:43
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-11-06 09:04:03
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-11-06 08:57:44
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-06 08:54:18
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-11-06 08:50:11
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-11-06 08:46:19
+📅 2023-11-06 11:52:50
 
 
 # **Oh I Wept** / Free
@@ -82,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2023-11-06 08:42:29
+📅 2023-11-06 11:48:57
 
 
 # **Mad About You** / Hooverphonic
@@ -91,43 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-11-06 08:38:01
-
-
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
-
-![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
-
-**Album:** MONTERO
-
-📅 2023-11-05 19:02:13
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-11-05 19:01:48
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-11-05 18:57:38
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-11-05 18:54:26
+📅 2023-11-06 11:44:30
 
 
 # **Fuel** / Metallica
@@ -136,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Reload
 
-📅 2023-11-05 18:51:28
+📅 2023-11-06 11:32:16
 
 
 # **First Love/Late Spring** / Mitski
@@ -145,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Bury Me At Makeout Creek
 
-📅 2023-11-05 18:46:57
+📅 2023-11-06 11:29:20
 
 
 # **Insides In** / Bent Knee
@@ -154,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2023-11-05 18:42:18
+📅 2023-11-06 11:24:41
 
 
 # **Will Do** / TV On The Radio
@@ -163,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2023-11-05 18:35:48
+📅 2023-11-06 11:18:11
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -172,22 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2023-11-05 18:32:03
+📅 2023-11-06 11:14:25
 
 
-# **Fever** / The Black Keys
+# **That's Right!** / Swingrowers
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
 
-**Album:** Turn Blue
+**Album:** Remote
 
-📅 2023-11-05 18:28:37
+📅 2023-11-06 11:08:04
 
 
-# **Congregation** / Low
+# **MAD** / Caravan Palace
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
 
-**Album:** Ones and Sixes
+**Album:** MAD
 
-📅 2023-11-05 18:24:30
+📅 2023-11-06 10:55:54
+
+
+# **Cómo Sé** / Julieta Venegas
+
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+
+**Album:** Aqui
+
+📅 2023-11-06 09:36:52
