@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Love Lockdown** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-07 08:40:55
+
+
+# **Heartless** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-07 08:36:02
+
+
+# **Welcome To Heartbreak** / Kanye West|Kid Cudi
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-07 08:31:54
+
+
 # **My Favourite Game** / The Cardigans
 
 ![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bueninvento
 
 📅 2023-11-06 11:14:25
-
-
-# **That's Right!** / Swingrowers
-
-![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
-
-**Album:** Remote
-
-📅 2023-11-06 11:08:04
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-11-06 10:55:54
-
-
-# **Cómo Sé** / Julieta Venegas
-
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
-
-**Album:** Aqui
-
-📅 2023-11-06 09:36:52
