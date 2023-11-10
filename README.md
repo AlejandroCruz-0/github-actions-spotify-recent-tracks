@@ -13,130 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-11-08 10:14:14
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2023-11-08 10:03:57
-
-
-# **Cómo Sé** / Julieta Venegas
-
-![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
-
-**Album:** Aqui
-
-📅 2023-11-08 09:59:06
-
-
-# **Pressure** / Billy Joel
-
-![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
-
-**Album:** The Nylon Curtain
-
-📅 2023-11-08 09:55:54
-
-
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
-
-![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
-
-**Album:** MONTERO
-
-📅 2023-11-08 09:51:13
-
-
-# **INDUSTRY BABY (feat. Jack Harlow)** / Lil Nas X|Jack Harlow
-
-![Foto del album: MONTERO](https://i.scdn.co/image/ab67616d00001e02be82673b5f79d9658ec0a9fd)
-
-**Album:** MONTERO
-
-📅 2023-11-08 09:45:39
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-11-08 09:45:00
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2023-11-08 09:40:50
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2023-11-08 09:37:38
-
-
-# **Fuel** / Metallica
-
-![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
-
-**Album:** Reload
-
-📅 2023-11-08 09:34:40
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2023-11-08 09:30:09
-
-
-# **Insides In** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2023-11-08 09:25:30
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-11-08 09:19:00
-
-
 # **Sería Feliz** / Julieta Venegas
 
 ![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
 **Album:** Bueninvento
 
-📅 2023-11-08 09:15:15
+📅 2023-11-09 18:10:54
 
 
 # **Fever** / The Black Keys
@@ -145,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2023-11-08 09:11:48
+📅 2023-11-09 18:07:28
 
 
 # **Congregation** / Low
@@ -154,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2023-11-08 09:07:42
+📅 2023-11-09 18:03:21
 
 
 # **I Love You** / Woodkid
@@ -163,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The Golden Age
 
-📅 2023-11-08 09:03:50
+📅 2023-11-09 17:59:30
 
 
 # **Oh I Wept** / Free
@@ -172,16 +55,25 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2023-11-08 08:59:59
+📅 2023-11-09 17:55:39
 
 
-# **Hybrid** / Swingrowers
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Hybrid
+**Album:** The Magnificent Tree
 
-📅 2023-11-08 08:50:49
+📅 2023-11-09 17:51:11
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-11-09 17:47:10
 
 
 # **MAD** / Caravan Palace
@@ -190,4 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** MAD
 
-📅 2023-11-08 08:49:28
+📅 2023-11-09 17:45:45
+
+
+# **Lone Digger** / Caravan Palace
+
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+
+**Album:** <I°_°I>
+
+📅 2023-11-09 14:03:49
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-11-09 12:37:07
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-11-09 12:35:42
+
+
+# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
+
+![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+
+**Album:** Electro Swing (Original Soundtrack)
+
+📅 2023-11-09 10:22:34
+
+
+# **Pressure - Klischée Remix** / Klischée|Marina & The Kats
+
+![Foto del album: Pressure (Klischée Remix)](https://i.scdn.co/image/ab67616d00001e02270c49ee317dfa989a5662a8)
+
+**Album:** Pressure (Klischée Remix)
+
+📅 2023-11-09 10:11:27
+
+
+# **Midnight** / Swingrowers
+
+![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
+
+**Album:** Remote
+
+📅 2023-11-09 10:08:02
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2023-11-09 10:04:18
+
+
+# **Empires** / The Electric Swing Circus
+
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+
+**Album:** It Flew By
+
+📅 2023-11-09 10:01:06
+
+
+# **Brokopoly** / Lyre Le Temps
+
+![Foto del album: Brokopoly](https://i.scdn.co/image/ab67616d00001e023ad29fa29c3ea6b2e9d3dc8f)
+
+**Album:** Brokopoly
+
+📅 2023-11-09 09:57:55
+
+
+# **Let The Music Play** / Tom ESC|Josh Wunderlich
+
+![Foto del album: Let the Music Play](https://i.scdn.co/image/ab67616d00001e02a3ebe36b43138c8099a38df4)
+
+**Album:** Let the Music Play
+
+📅 2023-11-09 09:55:36
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-09 09:52:21
+
+
+# **That's Right!** / Swingrowers
+
+![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
+
+**Album:** Remote
+
+📅 2023-11-09 09:48:53
