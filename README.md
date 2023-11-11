@@ -13,49 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Two Fish in a Pond** / IXIK
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
 
-**Album:** Bueninvento
+**Album:** shorts
 
-📅 2023-11-09 18:10:54
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-09 18:07:28
+📅 2023-11-10 20:28:01
 
 
-# **Congregation** / Low
+# **MAD** / Caravan Palace
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
 
-**Album:** Ones and Sixes
+**Album:** MAD
 
-📅 2023-11-09 18:03:21
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-11-09 17:59:30
+📅 2023-11-10 20:26:36
 
 
-# **Oh I Wept** / Free
+# **Hybrid** / Swingrowers
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
 
-**Album:** Fire And Water
+**Album:** Hybrid
 
-📅 2023-11-09 17:55:39
+📅 2023-11-10 19:07:10
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-11-10 19:06:14
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-11-10 19:04:50
+
+
+# **The Magnificent Tree** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-11-10 18:46:24
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-11-10 18:45:03
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-11-10 18:40:44
 
 
 # **Mad About You** / Hooverphonic
@@ -64,130 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-11-09 17:51:11
+📅 2023-11-10 18:36:42
 
 
-# **Two Fish in a Pond** / IXIK
+# **All Neon Like** / Björk
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
 
-**Album:** shorts
+**Album:** Homogenic
 
-📅 2023-11-09 17:47:10
+📅 2023-11-10 17:02:57
 
 
-# **MAD** / Caravan Palace
+# **Control** / Broken Bells
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: After the Disco](https://i.scdn.co/image/ab67616d00001e029c111e02e4ae7cc0d1caa91d)
 
-**Album:** MAD
+**Album:** After the Disco
 
-📅 2023-11-09 17:45:45
+📅 2023-11-10 17:00:28
 
 
-# **Lone Digger** / Caravan Palace
+# **In Our Prime** / The Black Keys
 
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** <I°_°I>
+**Album:** Turn Blue
 
-📅 2023-11-09 14:03:49
+📅 2023-11-10 16:56:46
 
 
-# **Two Fish in a Pond** / IXIK
+# **Sucker for the Witch** / Clutch
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
 
-**Album:** shorts
+**Album:** Psychic Warfare
 
-📅 2023-11-09 12:37:07
+📅 2023-11-10 16:52:07
 
 
-# **MAD** / Caravan Palace
+# **Retrograde** / James Blake
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
 
-**Album:** MAD
+**Album:** Overgrown
 
-📅 2023-11-09 12:35:42
+📅 2023-11-10 16:48:45
 
 
-# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
+# **Hunter** / Björk
 
-![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
 
-**Album:** Electro Swing (Original Soundtrack)
+**Album:** Homogenic
 
-📅 2023-11-09 10:22:34
+📅 2023-11-10 16:45:01
 
 
-# **Pressure - Klischée Remix** / Klischée|Marina & The Kats
+# **Tom The Model** / Beth Gibbons|Rustin Man
 
-![Foto del album: Pressure (Klischée Remix)](https://i.scdn.co/image/ab67616d00001e02270c49ee317dfa989a5662a8)
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
 
-**Album:** Pressure (Klischée Remix)
+**Album:** Out Of Season
 
-📅 2023-11-09 10:11:27
+📅 2023-11-10 16:40:45
 
 
-# **Midnight** / Swingrowers
+# **Sound & Color** / Alabama Shakes
 
-![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
+![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
 
-**Album:** Remote
+**Album:** Sound & Color (Deluxe Edition)
 
-📅 2023-11-09 10:08:02
+📅 2023-11-10 16:37:05
 
 
-# **Rock It for Me** / Caravan Palace
+# **I Get Overwhelmed** / Dark Rooms
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: I Get Overwhelmed](https://i.scdn.co/image/ab67616d00001e023eea2fd4aa4287e42d80144e)
 
-**Album:** Panic
+**Album:** I Get Overwhelmed
 
-📅 2023-11-09 10:04:18
+📅 2023-11-10 16:34:01
 
 
-# **Empires** / The Electric Swing Circus
+# **Will Do** / TV On The Radio
 
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** It Flew By
+**Album:** Nine Types of Light
 
-📅 2023-11-09 10:01:06
+📅 2023-11-10 16:29:15
 
 
-# **Brokopoly** / Lyre Le Temps
+# **Fever** / The Black Keys
 
-![Foto del album: Brokopoly](https://i.scdn.co/image/ab67616d00001e023ad29fa29c3ea6b2e9d3dc8f)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Brokopoly
+**Album:** Turn Blue
 
-📅 2023-11-09 09:57:55
-
-
-# **Let The Music Play** / Tom ESC|Josh Wunderlich
-
-![Foto del album: Let the Music Play](https://i.scdn.co/image/ab67616d00001e02a3ebe36b43138c8099a38df4)
-
-**Album:** Let the Music Play
-
-📅 2023-11-09 09:55:36
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-09 09:52:21
-
-
-# **That's Right!** / Swingrowers
-
-![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
-
-**Album:** Remote
-
-📅 2023-11-09 09:48:53
+📅 2023-11-10 16:22:32
