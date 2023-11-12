@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Coldest Winter** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:26:59
+
+
+# **See You In My Nightmares** / Kanye West|Lil Wayne
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:24:15
+
+
+# **Bad News** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:19:57
+
+
+# **Street Lights** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:15:58
+
+
+# **RoboCop** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:12:48
+
+
+# **Paranoid** / Kanye West|Mr Hudson
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:08:14
+
+
+# **Love Lockdown** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:03:36
+
+
+# **Hybrid** / Swingrowers
+
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+
+**Album:** Hybrid
+
+📅 2023-11-10 20:28:36
+
+
 # **Two Fish in a Pond** / IXIK
 
 ![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2023-11-10 16:56:46
-
-
-# **Sucker for the Witch** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
-
-**Album:** Psychic Warfare
-
-📅 2023-11-10 16:52:07
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2023-11-10 16:48:45
-
-
-# **Hunter** / Björk
-
-![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
-
-**Album:** Homogenic
-
-📅 2023-11-10 16:45:01
-
-
-# **Tom The Model** / Beth Gibbons|Rustin Man
-
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
-
-**Album:** Out Of Season
-
-📅 2023-11-10 16:40:45
-
-
-# **Sound & Color** / Alabama Shakes
-
-![Foto del album: Sound & Color (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02d5abe87cecc0f78512973a57)
-
-**Album:** Sound & Color (Deluxe Edition)
-
-📅 2023-11-10 16:37:05
-
-
-# **I Get Overwhelmed** / Dark Rooms
-
-![Foto del album: I Get Overwhelmed](https://i.scdn.co/image/ab67616d00001e023eea2fd4aa4287e42d80144e)
-
-**Album:** I Get Overwhelmed
-
-📅 2023-11-10 16:34:01
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-11-10 16:29:15
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-10 16:22:32
