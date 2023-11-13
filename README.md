@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-11-12 12:38:54
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-11-12 12:35:28
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-11-12 12:31:21
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-11-12 12:26:40
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-11-12 12:22:49
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-11-12 12:18:22
+
+
+# **Pinocchio Story** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-11 21:27:58
+
+
 # **Coldest Winter** / Kanye West
 
 ![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** MAD
 
 📅 2023-11-10 19:04:50
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-11-10 18:46:24
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-11-10 18:45:03
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-11-10 18:40:44
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-11-10 18:36:42
-
-
-# **All Neon Like** / Björk
-
-![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02b6f50e46dac445dff914a56f)
-
-**Album:** Homogenic
-
-📅 2023-11-10 17:02:57
-
-
-# **Control** / Broken Bells
-
-![Foto del album: After the Disco](https://i.scdn.co/image/ab67616d00001e029c111e02e4ae7cc0d1caa91d)
-
-**Album:** After the Disco
-
-📅 2023-11-10 17:00:28
-
-
-# **In Our Prime** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-10 16:56:46
