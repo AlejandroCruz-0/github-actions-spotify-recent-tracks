@@ -13,58 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-11-14 13:33:41
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-14 13:30:14
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-11-14 13:26:08
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-11-14 13:22:16
-
-
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
 **Album:** Fire And Water
 
-📅 2023-11-14 13:18:25
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-11-14 11:11:26
+📅 2023-11-15 17:37:30
 
 
 # **Mad About You** / Hooverphonic
@@ -73,88 +28,97 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-11-14 11:11:24
+📅 2023-11-15 17:33:03
 
 
-# **Holy Ghost** / Bent Knee
+# **It's Not Because of You** / Witchcraft
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Legend](https://i.scdn.co/image/ab67616d00001e02edc7a57add129d1479f4c1c8)
 
-**Album:** Land Animal
+**Album:** Legend
 
-📅 2023-11-14 11:07:39
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2023-11-14 11:00:37
+📅 2023-11-15 13:55:44
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Radio Mecca** / Brant Bjork
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Gods & Goddesses](https://i.scdn.co/image/ab67616d00001e027628af3a4667d02a978a050c)
 
-**Album:** Bueninvento
+**Album:** Gods & Goddesses
 
-📅 2023-11-14 10:56:52
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-11-14 10:53:26
+📅 2023-11-15 13:55:28
 
 
-# **Congregation** / Low
+# **Low** / 1000mods
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Vultures](https://i.scdn.co/image/ab67616d00001e02efdf583a0639954448633a42)
 
-**Album:** Ones and Sixes
+**Album:** Vultures
 
-📅 2023-11-14 10:49:19
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2023-11-14 10:45:27
+📅 2023-11-15 13:51:32
 
 
-# **Oh I Wept** / Free
+# **These Men Are Wolves** / The Heavy Eyes
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Maera](https://i.scdn.co/image/ab67616d00001e02a24252b1d53f0fe8478b7695)
 
-**Album:** Fire And Water
+**Album:** Maera
 
-📅 2023-11-14 10:41:36
+📅 2023-11-15 13:47:12
 
 
-# **Doom Saloon** / Clutch
+# **Sucker for the Witch** / Clutch
 
 ![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
 
 **Album:** Psychic Warfare
 
-📅 2023-11-14 10:04:52
+📅 2023-11-15 13:44:25
 
 
-# **Your Love Is Incarceration** / Clutch
+# **Sleestak Lightning** / Clutch
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
-**Album:** Psychic Warfare
+**Album:** Strange Cousins From the West
 
-📅 2023-11-14 10:03:56
+📅 2023-11-15 13:41:03
+
+
+# **Aglo Ha Cambiado** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2023-11-15 13:37:16
+
+
+# **Freakonomics** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2023-11-15 13:33:07
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2023-11-15 13:29:46
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-11-15 13:23:17
 
 
 # **MAD** / Caravan Palace
@@ -163,16 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** MAD
 
-📅 2023-11-14 10:00:11
-
-
-# **Silent Movie** / Little Violet
-
-![Foto del album: Code Red](https://i.scdn.co/image/ab67616d00001e02eb7fc38f09adbe25271162dd)
-
-**Album:** Code Red
-
-📅 2023-11-13 13:39:07
+📅 2023-11-15 13:19:02
 
 
 # **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
@@ -181,13 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-13 13:36:39
+📅 2023-11-15 12:22:55
 
 
-# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Electro Swing (Original Soundtrack)
+**Album:** <I°_°I>
 
-📅 2023-11-13 13:33:11
+📅 2023-11-15 12:20:36
+
+
+# **That's Right!** / Swingrowers
+
+![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
+
+**Album:** Remote
+
+📅 2023-11-15 12:16:45
+
+
+# **Two Fish in a Pond** / IXIK
+
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+
+**Album:** shorts
+
+📅 2023-11-15 12:13:27
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-11-15 12:12:03
+
+
+# **Street Lights** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-15 09:35:31
+
+
+# **RoboCop** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-15 09:32:40
