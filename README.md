@@ -13,13 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Waves** / Hooverphonic
+# **First Love/Late Spring** / Mitski
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
 
-**Album:** The Magnificent Tree
+**Album:** Bury Me At Makeout Creek
 
-📅 2023-11-17 09:08:18
+📅 2023-11-17 13:08:06
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-11-17 13:03:27
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-11-17 12:56:50
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-11-17 12:53:05
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-11-17 12:49:39
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2023-11-17 12:45:32
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2023-11-17 12:41:40
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-11-17 12:37:49
 
 
 # **Mad About You** / Hooverphonic
@@ -28,52 +91,25 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-11-17 09:04:16
+📅 2023-11-17 12:33:22
 
 
-# **Silent Movie** / Little Violet
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Code Red](https://i.scdn.co/image/ab67616d00001e02eb7fc38f09adbe25271162dd)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Code Red
+**Album:** Land Animal
 
-📅 2023-11-17 08:47:13
-
-
-# **Brokopoly** / Lyre Le Temps
-
-![Foto del album: Brokopoly](https://i.scdn.co/image/ab67616d00001e023ad29fa29c3ea6b2e9d3dc8f)
-
-**Album:** Brokopoly
-
-📅 2023-11-17 08:46:22
+📅 2023-11-17 12:29:38
 
 
-# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Hybrid
+**Album:** The Magnificent Tree
 
-📅 2023-11-17 08:44:03
-
-
-# **Two Fish in a Pond** / IXIK
-
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
-
-**Album:** shorts
-
-📅 2023-11-17 08:41:06
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-17 08:39:41
+📅 2023-11-17 12:19:22
 
 
 # **Lone Digger** / Caravan Palace
@@ -82,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** <I°_°I>
 
-📅 2023-11-17 08:36:03
+📅 2023-11-17 11:47:43
 
 
 # **MAD** / Caravan Palace
@@ -91,103 +127,67 @@ Nombre: **lotario1999**
 
 **Album:** MAD
 
-📅 2023-11-17 08:32:03
+📅 2023-11-17 11:45:41
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **See You In My Nightmares** / Kanye West|Lil Wayne
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** 808s & Heartbreak
 
-📅 2023-11-16 19:56:57
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2023-11-16 19:53:29
+📅 2023-11-17 11:31:51
 
 
-# **MAD** / Caravan Palace
+# **Bad News** / Kanye West
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** MAD
+**Album:** 808s & Heartbreak
 
-📅 2023-11-16 19:49:39
-
-
-# **Two Fish in a Pond** / IXIK
-
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
-
-**Album:** shorts
-
-📅 2023-11-16 17:39:03
+📅 2023-11-17 11:30:14
 
 
-# **Lone Digger** / Caravan Palace
+# **Street Lights** / Kanye West
 
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** <I°_°I>
+**Album:** 808s & Heartbreak
 
-📅 2023-11-16 17:38:53
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-11-16 17:35:03
+📅 2023-11-17 11:26:16
 
 
-# **Firebirds** / Clutch
+# **RoboCop** / Kanye West
 
-![Foto del album: Psychic Warfare (Deluxe)](https://i.scdn.co/image/ab67616d00001e02fd6664359005416fa3f151e4)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** Psychic Warfare (Deluxe)
+**Album:** 808s & Heartbreak
 
-📅 2023-11-16 13:33:53
-
-
-# **X-Ray Visions** / Clutch
-
-![Foto del album: Psychic Warfare (Deluxe)](https://i.scdn.co/image/ab67616d00001e02fd6664359005416fa3f151e4)
-
-**Album:** Psychic Warfare (Deluxe)
-
-📅 2023-11-16 13:31:23
+📅 2023-11-17 11:23:06
 
 
-# **Two Fish in a Pond** / IXIK
+# **Paranoid** / Kanye West|Mr Hudson
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** shorts
+**Album:** 808s & Heartbreak
 
-📅 2023-11-16 13:27:01
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2023-11-16 13:25:36
+📅 2023-11-17 11:18:31
 
 
-# **MAD** / Caravan Palace
+# **Love Lockdown** / Kanye West
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** MAD
+**Album:** 808s & Heartbreak
 
-📅 2023-11-16 13:21:46
+📅 2023-11-17 11:13:54
+
+
+# **Amazing** / Kanye West|Jeezy
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2023-11-17 11:09:23
