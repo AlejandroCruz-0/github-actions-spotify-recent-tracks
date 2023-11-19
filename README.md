@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-18 12:21:22
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-11-18 12:17:54
+
+
+# **Fuel** / Metallica
+
+![Foto del album: Reload](https://i.scdn.co/image/ab67616d00001e0206cb74d39d123ebe1b3c6631)
+
+**Album:** Reload
+
+📅 2023-11-17 13:08:58
+
+
 # **First Love/Late Spring** / Mitski
 
 ![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** 808s & Heartbreak
 
 📅 2023-11-17 11:23:06
-
-
-# **Paranoid** / Kanye West|Mr Hudson
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-17 11:18:31
-
-
-# **Love Lockdown** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-17 11:13:54
-
-
-# **Amazing** / Kanye West|Jeezy
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-17 11:09:23
