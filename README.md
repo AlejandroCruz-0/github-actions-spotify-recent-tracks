@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
+
+![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+
+**Album:** Electro Swing (Original Soundtrack)
+
+📅 2023-11-18 12:21:39
+
+
 # **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** 808s & Heartbreak
 
 📅 2023-11-17 11:26:16
-
-
-# **RoboCop** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2023-11-17 11:23:06
