@@ -13,40 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Souvenirs** / Lyre Le Temps
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: Outside the Box](https://i.scdn.co/image/ab67616d00001e020d68ac1ddac7e56d26a44129)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Outside the Box
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-21 09:12:45
-
-
-# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
-
-![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
-
-**Album:** Electro Swing (Original Soundtrack)
-
-📅 2023-11-21 09:09:15
+📅 2023-11-21 21:04:20
 
 
-# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
+# **Love Lockdown** / Kanye West
 
-![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
 
-**Album:** Lost In The Rhythm
+**Album:** 808s & Heartbreak
 
-📅 2023-11-21 09:06:52
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2023-11-21 09:03:45
+📅 2023-11-21 21:00:53
 
 
 # **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
@@ -55,34 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-21 08:59:55
-
-
-# **Hybrid** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-11-21 08:56:27
-
-
-# **Two Fish in a Pond** / IXIK
-
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
-
-**Album:** shorts
-
-📅 2023-11-21 08:53:24
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-11-21 08:51:59
+📅 2023-11-21 14:00:31
 
 
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
@@ -91,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-20 20:12:19
+📅 2023-11-21 12:04:48
 
 
 # **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
@@ -100,94 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-20 20:12:15
+📅 2023-11-21 12:04:42
 
 
-# **Brokopoly** / Lyre Le Temps
+# **Insides In** / Bent Knee
 
-![Foto del album: Brokopoly](https://i.scdn.co/image/ab67616d00001e023ad29fa29c3ea6b2e9d3dc8f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Brokopoly
+**Album:** Land Animal
 
-📅 2023-11-20 10:30:07
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-20 10:29:47
+📅 2023-11-21 11:51:15
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **Will Do** / TV On The Radio
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Nine Types of Light
 
-📅 2023-11-20 10:24:26
-
-
-# **Hybrid** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-11-20 10:20:58
+📅 2023-11-21 11:45:47
 
 
-# **MAD** / Caravan Palace
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** MAD
+**Album:** Bueninvento
 
-📅 2023-11-20 10:17:29
-
-
-# **Coffee & TV** / Blur
-
-![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
-
-**Album:** 13
-
-📅 2023-11-20 10:05:47
+📅 2023-11-21 11:42:01
 
 
-# **Tom The Model** / Beth Gibbons|Rustin Man
+# **Fever** / The Black Keys
 
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Out Of Season
+**Album:** Turn Blue
 
-📅 2023-11-20 10:05:33
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-11-20 10:01:52
+📅 2023-11-21 11:38:35
 
 
-# **I Get Overwhelmed** / Dark Rooms
+# **Congregation** / Low
 
-![Foto del album: I Get Overwhelmed](https://i.scdn.co/image/ab67616d00001e023eea2fd4aa4287e42d80144e)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** I Get Overwhelmed
+**Album:** Ones and Sixes
 
-📅 2023-11-20 09:58:14
+📅 2023-11-21 11:34:28
 
 
-# **Down By The Water** / PJ Harvey
+# **I Love You** / Woodkid
 
-![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** To Bring You My Love
+**Album:** The Golden Age
 
-📅 2023-11-20 09:17:01
+📅 2023-11-21 11:30:37
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-11-21 11:26:46
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-11-21 11:22:18
+
+
+# **Cómo Sé** / Julieta Venegas
+
+![Foto del album: Aqui](https://i.scdn.co/image/ab67616d00001e02d2eaaf55ec9f77dffccc48ef)
+
+**Album:** Aqui
+
+📅 2023-11-21 11:08:27
+
+
+# **Pressure** / Billy Joel
+
+![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02e5e5f24cf490dfc7041eafc3)
+
+**Album:** The Nylon Curtain
+
+📅 2023-11-21 11:06:19
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2023-11-21 11:01:35
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-11-21 10:58:09
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2023-11-21 10:47:18
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-11-21 10:39:29
+
+
+# **Lone Digger** / Caravan Palace
+
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+
+**Album:** <I°_°I>
+
+📅 2023-11-21 10:33:47
