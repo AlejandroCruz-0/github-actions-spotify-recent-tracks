@@ -13,148 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Land Animal
 
-📅 2023-11-25 01:43:16
+📅 2023-11-25 17:59:21
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** <I°_°I>
 
-📅 2023-11-25 00:34:29
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-25 00:32:20
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-25 00:03:40
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-25 00:03:19
-
-
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-24 22:56:26
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-24 22:54:19
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-24 22:50:42
-
-
-# **50 Ways to Leave Your Lover** / Paul Simon
-
-![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
-
-**Album:** Still Crazy After All These Years
-
-📅 2023-11-24 22:46:52
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2023-11-24 21:34:43
-
-
-# **Far From Any Road** / The Handsome Family
-
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
-
-**Album:** Singing Bones
-
-📅 2023-11-24 21:30:51
-
-
-# **Avalanche** / Leonard Cohen
-
-![Foto del album: Songs Of Love And Hate](https://i.scdn.co/image/ab67616d00001e026a0b525ea5e6146f7f33369f)
-
-**Album:** Songs Of Love And Hate
-
-📅 2023-11-24 21:28:03
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-24 13:47:16
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-24 13:45:49
-
-
-# **That Man** / Caro Emerald
-
-![Foto del album: Deleted Scenes From The Cutting Room Floor](https://i.scdn.co/image/ab67616d00001e02ca96a3471c3cb5128e64195f)
-
-**Album:** Deleted Scenes From The Cutting Room Floor
-
-📅 2023-11-24 12:56:21
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-11-24 12:56:06
+📅 2023-11-25 17:46:08
 
 
 # **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
@@ -163,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Hybrid
 
-📅 2023-11-24 12:52:55
+📅 2023-11-25 17:42:30
 
 
 # **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
@@ -172,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-24 12:49:58
+📅 2023-11-25 17:39:32
 
 
 # **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
@@ -181,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-24 12:46:18
+📅 2023-11-25 17:35:53
 
 
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
@@ -190,4 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-24 12:42:38
+📅 2023-11-25 17:32:13
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 17:28:36
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 17:24:45
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 15:21:44
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 15:21:19
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 11:47:30
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 11:47:26
+
+
+# **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 10:14:27
+
+
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 10:13:27
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 10:09:47
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 10:06:11
+
+
+# **Why Am I Anxious** / Tom Cardy
+
+![Foto del album: Artificial Intelligence](https://i.scdn.co/image/ab67616d00001e0278f5c629df4c0dfe7425b5e6)
+
+**Album:** Artificial Intelligence
+
+📅 2023-11-25 09:47:19
+
+
+# **Night Cover - Instrumental** / Matara Kan
+
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e028021911c90a6d506831e8cf8)
+
+**Album:** Night Cover
+
+📅 2023-11-25 09:47:14
+
+
+# **Night Cover** / Matara Kan
+
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e028021911c90a6d506831e8cf8)
+
+**Album:** Night Cover
+
+📅 2023-11-25 09:43:30
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-25 09:25:39
