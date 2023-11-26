@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-11-25 21:54:03
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Night Cover
 
 📅 2023-11-25 09:43:30
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-25 09:25:39
