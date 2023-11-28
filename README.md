@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-27 23:45:45
+
+
+# **Night Cover** / Matara Kan
+
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e028021911c90a6d506831e8cf8)
+
+**Album:** Night Cover
+
+📅 2023-11-27 23:41:50
+
+
+# **Night Cover** / Matara Kan
+
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e028021911c90a6d506831e8cf8)
+
+**Album:** Night Cover
+
+📅 2023-11-27 23:21:56
+
+
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Odyssée - EP
 
 📅 2023-11-27 12:28:24
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-11-27 12:26:23
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-27 12:24:49
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-27 11:50:38
