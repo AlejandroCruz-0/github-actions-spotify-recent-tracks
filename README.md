@@ -13,112 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Two Fish in a Pond** / IXIK
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** shorts
 
-📅 2023-11-27 23:45:45
-
-
-# **Night Cover** / Matara Kan
-
-![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e028021911c90a6d506831e8cf8)
-
-**Album:** Night Cover
-
-📅 2023-11-27 23:41:50
+📅 2023-11-28 18:50:26
 
 
-# **Night Cover** / Matara Kan
-
-![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e028021911c90a6d506831e8cf8)
-
-**Album:** Night Cover
-
-📅 2023-11-27 23:21:56
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-27 14:30:29
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-11-27 14:30:18
-
-
-# **Midnight** / Swingrowers
+# **That's Right!** / Swingrowers
 
 ![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
 
 **Album:** Remote
 
-📅 2023-11-27 13:38:20
+📅 2023-11-28 18:49:36
 
 
-# **Just One Dance** / Caro Emerald
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: Deleted Scenes From The Cutting Room Floor](https://i.scdn.co/image/ab67616d00001e02ca96a3471c3cb5128e64195f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Deleted Scenes From The Cutting Room Floor
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-27 13:36:00
-
-
-# **Tipsy Gypsy** / Paul J. Borg|Sandor Mihaly Jozsa
-
-![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
-
-**Album:** Electro Swing (Original Soundtrack)
-
-📅 2023-11-27 13:31:59
+📅 2023-11-28 18:46:17
 
 
-# **Washington Square** / The Correspondents
+# **MAD** / Caravan Palace
 
-![Foto del album: What's Happened to Soho?](https://i.scdn.co/image/ab67616d00001e028824a3d21fc5f51f3d6b9a1a)
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
 
-**Album:** What's Happened to Soho?
+**Album:** MAD
 
-📅 2023-11-27 13:29:46
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2023-11-27 13:26:11
-
-
-# **Pressure - Klischée Remix** / Klischée|Marina & The Kats
-
-![Foto del album: Pressure (Klischée Remix)](https://i.scdn.co/image/ab67616d00001e02270c49ee317dfa989a5662a8)
-
-**Album:** Pressure (Klischée Remix)
-
-📅 2023-11-27 13:22:21
-
-
-# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-11-27 13:18:57
+📅 2023-11-28 18:42:50
 
 
 # **Empires** / The Electric Swing Circus
@@ -127,7 +55,16 @@ Nombre: **lotario1999**
 
 **Album:** It Flew By
 
-📅 2023-11-27 13:15:59
+📅 2023-11-28 17:36:17
+
+
+# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
+
+![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
+
+**Album:** Lost In The Rhythm
+
+📅 2023-11-28 17:25:01
 
 
 # **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
@@ -136,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-27 13:12:48
+📅 2023-11-28 17:21:54
 
 
 # **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
@@ -145,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-27 13:09:09
+📅 2023-11-28 17:18:14
 
 
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
@@ -154,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-27 13:05:29
+📅 2023-11-28 17:14:35
 
 
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
@@ -163,31 +100,94 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-11-27 13:01:53
+📅 2023-11-28 17:10:58
 
 
-# **me and jesse [part one]** / Robert Paul Corless
+# **Overdrive - Instrumental** / Odyssey Eurobeat
 
-![Foto del album: Volume Twenty Four Trios Part 2](https://i.scdn.co/image/ab67616d00001e02688b4db32b025385055a1d12)
+![Foto del album: Overdrive](https://i.scdn.co/image/ab67616d00001e0265286eb95cf7467dc1cafa3c)
 
-**Album:** Volume Twenty Four Trios Part 2
+**Album:** Overdrive
 
-📅 2023-11-27 12:30:59
-
-
-# **Jackson Cleaners** / Joel P West
-
-![Foto del album: Just Mercy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e026a61563a04c94d72c075b0f3)
-
-**Album:** Just Mercy (Original Motion Picture Soundtrack)
-
-📅 2023-11-27 12:30:41
+📅 2023-11-28 16:54:41
 
 
-# **Le départ** / L'Impératrice
+# **Overdrive** / Odyssey Eurobeat
 
-![Foto del album: Odyssée - EP](https://i.scdn.co/image/ab67616d00001e0291d5af63d5acc752950d5927)
+![Foto del album: Overdrive](https://i.scdn.co/image/ab67616d00001e0265286eb95cf7467dc1cafa3c)
 
-**Album:** Odyssée - EP
+**Album:** Overdrive
 
-📅 2023-11-27 12:28:24
+📅 2023-11-28 16:51:02
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-28 13:22:29
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-28 13:20:52
+
+
+# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
+
+![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+
+**Album:** Electro Swing (Original Soundtrack)
+
+📅 2023-11-28 13:10:47
+
+
+# **Peeping Tom - Original Mix** / Jamie Berry|Rosie Harte
+
+![Foto del album: Peeping Tom](https://i.scdn.co/image/ab67616d00001e02e2c682e406b9a9dfb29e35db)
+
+**Album:** Peeping Tom
+
+📅 2023-11-28 13:10:36
+
+
+# **Butterfly** / Swingrowers
+
+![Foto del album: Butterfly](https://i.scdn.co/image/ab67616d00001e02ef428bee6793ab1a683663e6)
+
+**Album:** Butterfly
+
+📅 2023-11-28 13:06:54
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-11-28 13:03:16
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-28 12:14:50
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-11-28 12:12:29
