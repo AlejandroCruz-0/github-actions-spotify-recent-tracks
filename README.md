@@ -13,76 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **Silent Movie** / Little Violet
+# **Tangled** / Maroon 5
 
-![Foto del album: Code Red](https://i.scdn.co/image/ab67616d00001e02eb7fc38f09adbe25271162dd)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Code Red
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-04 09:00:35
-
-
-# **The Devil in Disguise** / Paul J. Borg|Sandor Mihaly Jozsa
-
-![Foto del album: Electro Swing (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
-
-**Album:** Electro Swing (Original Soundtrack)
-
-📅 2023-12-04 08:57:17
+📅 2023-12-04 18:32:39
 
 
-# **Done for Tomorrow** / Lyre Le Temps
+# **She Will Be Loved - Radio Mix** / Maroon 5
 
-![Foto del album: Prohibition Swing](https://i.scdn.co/image/ab67616d00001e02957054a3b59b33181462706d)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Prohibition Swing
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-04 08:54:54
-
-
-# **Washington Square** / The Correspondents
-
-![Foto del album: What's Happened to Soho?](https://i.scdn.co/image/ab67616d00001e028824a3d21fc5f51f3d6b9a1a)
-
-**Album:** What's Happened to Soho?
-
-📅 2023-12-04 08:51:59
+📅 2023-12-04 18:29:15
 
 
-# **Two Fish in a Pond** / IXIK
+# **Shiver** / Maroon 5
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** shorts
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-04 08:48:24
-
-
-# **Healing Dance** / Swingrowers|Davide Shorty
-
-![Foto del album: Outsidein](https://i.scdn.co/image/ab67616d00001e0232870f6b9a79ae6ceb5db1e5)
-
-**Album:** Outsidein
-
-📅 2023-12-04 08:47:00
+📅 2023-12-04 18:24:55
 
 
-# **MAD** / Caravan Palace
+# **This Love** / Maroon 5
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** MAD
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-04 08:43:05
+📅 2023-12-04 18:21:56
 
 
-# **Mad About You** / Hooverphonic
+# **Shiver** / Maroon 5
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** The Magnificent Tree
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-04 08:39:31
+📅 2023-12-04 17:59:47
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2023-12-04 17:56:47
 
 
 # **Waves** / Hooverphonic
@@ -91,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-12-04 08:05:16
+📅 2023-12-04 17:35:33
 
 
 # **Mad About You** / Hooverphonic
@@ -100,34 +82,88 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-12-04 08:04:30
+📅 2023-12-04 17:35:23
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Decapitation Blues** / Clutch
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Psychic Warfare
 
-📅 2023-12-04 08:00:36
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-04 07:56:38
+📅 2023-12-04 14:23:40
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Behold the Colossus** / Clutch
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Psychic Warfare
 
-📅 2023-12-04 07:49:37
+📅 2023-12-04 14:23:33
+
+
+# **Noble Savage** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:19:42
+
+
+# **Our Lady of Electric Light** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:16:52
+
+
+# **Doom Saloon** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:13:00
+
+
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:11:47
+
+
+# **Sucker for the Witch** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:08:33
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:05:12
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-04 14:01:14
 
 
 # **X-Ray Visions** / Clutch
@@ -136,25 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Psychic Warfare
 
-📅 2023-12-04 00:08:08
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-03 21:59:06
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-03 20:07:25
+📅 2023-12-04 13:58:14
 
 
 # **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
@@ -163,16 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-03 20:03:33
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-03 19:59:21
+📅 2023-12-04 13:36:58
 
 
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
@@ -181,13 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-03 19:25:37
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-03 19:20:34
+📅 2023-12-04 12:54:09
