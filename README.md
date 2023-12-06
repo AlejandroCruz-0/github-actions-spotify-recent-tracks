@@ -19,6 +19,96 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
+📅 2023-12-06 09:00:23
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 08:55:52
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 08:51:27
+
+
+# **A Mind With A Heart Of Its Own** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 08:42:33
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 08:42:31
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 08:38:19
+
+
+# **The Boys Of Summer** / Don Henley
+
+![Foto del album: Building The Perfect Beast](https://i.scdn.co/image/ab67616d00001e02e59d7ff5a9d7634c02135b19)
+
+**Album:** Building The Perfect Beast
+
+📅 2023-12-05 22:35:37
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-05 22:21:43
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: The Best Of Everything - The Definitive Career Spanning Hits Collection 1976-2016](https://i.scdn.co/image/ab67616d00001e02a2bc5fd7e51b61a904e7c20c)
+
+**Album:** The Best Of Everything - The Definitive Career Spanning Hits Collection 1976-2016
+
+📅 2023-12-05 21:39:39
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-05 21:39:23
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
 📅 2023-12-05 21:06:06
 
 
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Shocking Miss Emerald (The Remixes)
 
 📅 2023-12-05 18:57:39
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-05 05:50:14
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-05 05:46:02
-
-
-# **The Sun** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 18:46:43
-
-
-# **Tangled** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 18:32:39
-
-
-# **She Will Be Loved - Radio Mix** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 18:29:15
-
-
-# **Shiver** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 18:24:55
-
-
-# **This Love** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 18:21:56
-
-
-# **Shiver** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 17:59:47
-
-
-# **This Love** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2023-12-04 17:56:47
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-04 17:35:33
