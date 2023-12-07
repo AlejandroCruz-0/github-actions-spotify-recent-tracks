@@ -13,31 +13,130 @@ Nombre: **lotario1999**
 
 
 
-# **Hang Fire - Remastered** / The Rolling Stones|Bob Clearmountain
+# **End of Day** / Nicholas Britell
 
-![Foto del album: Tattoo You (2009 Re-Mastered)](https://i.scdn.co/image/ab67616d00001e0208fc42e575043a753f60d675)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** Tattoo You (2009 Re-Mastered)
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2023-12-06 16:39:07
-
-
-# **Runnin' Down A Dream** / Tom Petty
-
-![Foto del album: The Best Of Everything - The Definitive Career Spanning Hits Collection 1976-2016](https://i.scdn.co/image/ab67616d00001e02a2bc5fd7e51b61a904e7c20c)
-
-**Album:** The Best Of Everything - The Definitive Career Spanning Hits Collection 1976-2016
-
-📅 2023-12-06 16:37:08
+📅 2023-12-07 09:03:49
 
 
-# **Rock And Roll Records** / Eric Clapton|Tom Petty
+# **Andor (Main Title Theme) - Episode 2** / Nicholas Britell
 
-![Foto del album: Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale](https://i.scdn.co/image/ab67616d00001e02ba0fc34853f791af05dea26a)
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
 
-**Album:** Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
 
-📅 2023-12-06 16:32:46
+📅 2023-12-07 09:02:28
+
+
+# **The Cassian Way** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 09:01:37
+
+
+# **Kenari Male Wanted for Questioning** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:59:55
+
+
+# **Bix Has a Secret** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:58:56
+
+
+# **Kenari Council** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:57:48
+
+
+# **Bix Caleen** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:56:01
+
+
+# **Rix Road** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:55:10
+
+
+# **B2** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:53:19
+
+
+# **Pre-Mor Shakedown** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:52:02
+
+
+# **Morlana Drop** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:51:05
+
+
+# **Niamos! (Morlana Club Mix)** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:49:21
+
+
+# **WE BEGIN (Time Grappler)** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:47:39
+
+
+# **Andor (Main Title Theme) - Episode 1** / Nicholas Britell
+
+![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+
+**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+
+📅 2023-12-07 08:47:02
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -46,148 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-06 16:30:26
+📅 2023-12-07 08:45:30
 
 
-# **A Mind With A Heart Of Its Own** / Tom Petty
+# **Empires** / The Electric Swing Circus
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
-**Album:** Full Moon Fever
+**Album:** It Flew By
 
-📅 2023-12-06 15:22:11
+📅 2023-12-06 22:01:13
 
 
-# **Love Is A Long Road** / Tom Petty
+# **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Full Moon Fever
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-06 15:21:54
+📅 2023-12-06 22:00:52
 
 
-# **Le départ** / L'Impératrice
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
 
-![Foto del album: Odyssée - EP](https://i.scdn.co/image/ab67616d00001e0291d5af63d5acc752950d5927)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Odyssée - EP
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-06 12:40:36
+📅 2023-12-06 21:56:33
 
 
-# **Jackson Cleaners** / Joel P West
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
-![Foto del album: Just Mercy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e026a61563a04c94d72c075b0f3)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Just Mercy (Original Motion Picture Soundtrack)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-06 12:40:24
+📅 2023-12-06 21:52:51
 
 
-# **Horses - Remastered** / Chapelier Fou
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: ! (Remastered)](https://i.scdn.co/image/ab67616d00001e024e9b8449bf5bfb1cce7ee3af)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** ! (Remastered)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-06 12:38:08
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-12-06 12:36:35
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 12:34:03
-
-
-# **A Mind With A Heart Of Its Own** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 11:50:51
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 11:49:50
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 11:30:54
-
-
-# **A Mind With A Heart Of Its Own** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 10:42:42
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 10:42:24
-
-
-# **A Mind With A Heart Of Its Own** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 10:24:23
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 10:24:18
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 10:20:03
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 10:12:54
+📅 2023-12-06 21:49:13
