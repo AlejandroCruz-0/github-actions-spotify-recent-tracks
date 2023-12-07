@@ -13,76 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Hang Fire - Remastered** / The Rolling Stones|Bob Clearmountain
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Tattoo You (2009 Re-Mastered)](https://i.scdn.co/image/ab67616d00001e0208fc42e575043a753f60d675)
 
-**Album:** Full Moon Fever
+**Album:** Tattoo You (2009 Re-Mastered)
 
-📅 2023-12-06 09:00:23
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 08:55:52
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 08:51:27
-
-
-# **A Mind With A Heart Of Its Own** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 08:42:33
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 08:42:31
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-06 08:38:19
-
-
-# **The Boys Of Summer** / Don Henley
-
-![Foto del album: Building The Perfect Beast](https://i.scdn.co/image/ab67616d00001e02e59d7ff5a9d7634c02135b19)
-
-**Album:** Building The Perfect Beast
-
-📅 2023-12-05 22:35:37
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-05 22:21:43
+📅 2023-12-06 16:39:07
 
 
 # **Runnin' Down A Dream** / Tom Petty
@@ -91,7 +28,16 @@ Nombre: **lotario1999**
 
 **Album:** The Best Of Everything - The Definitive Career Spanning Hits Collection 1976-2016
 
-📅 2023-12-05 21:39:39
+📅 2023-12-06 16:37:08
+
+
+# **Rock And Roll Records** / Eric Clapton|Tom Petty
+
+![Foto del album: Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale](https://i.scdn.co/image/ab67616d00001e02ba0fc34853f791af05dea26a)
+
+**Album:** Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale
+
+📅 2023-12-06 16:32:46
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -100,7 +46,16 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-05 21:39:23
+📅 2023-12-06 16:30:26
+
+
+# **A Mind With A Heart Of Its Own** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 15:22:11
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -109,7 +64,43 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-05 21:06:06
+📅 2023-12-06 15:21:54
+
+
+# **Le départ** / L'Impératrice
+
+![Foto del album: Odyssée - EP](https://i.scdn.co/image/ab67616d00001e0291d5af63d5acc752950d5927)
+
+**Album:** Odyssée - EP
+
+📅 2023-12-06 12:40:36
+
+
+# **Jackson Cleaners** / Joel P West
+
+![Foto del album: Just Mercy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e026a61563a04c94d72c075b0f3)
+
+**Album:** Just Mercy (Original Motion Picture Soundtrack)
+
+📅 2023-12-06 12:40:24
+
+
+# **Horses - Remastered** / Chapelier Fou
+
+![Foto del album: ! (Remastered)](https://i.scdn.co/image/ab67616d00001e024e9b8449bf5bfb1cce7ee3af)
+
+**Album:** ! (Remastered)
+
+📅 2023-12-06 12:38:08
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-12-06 12:36:35
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -118,76 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-05 19:43:17
+📅 2023-12-06 12:34:03
 
 
-# **Will Do** / TV On The Radio
+# **A Mind With A Heart Of Its Own** / Tom Petty
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Nine Types of Light
+**Album:** Full Moon Fever
 
-📅 2023-12-05 19:21:05
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2023-12-05 19:19:48
+📅 2023-12-06 11:50:51
 
 
-# **Mad About You** / Hooverphonic
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Magnificent Tree
+**Album:** Full Moon Fever
 
-📅 2023-12-05 19:16:24
-
-
-# **Something For Christmas - 2023 Mix** / Caro Emerald|Metropole Orkest
-
-![Foto del album: Something For Christmas (2023 Mix)](https://i.scdn.co/image/ab67616d00001e02369cc92ebe400e7c9dd17090)
-
-**Album:** Something For Christmas (2023 Mix)
-
-📅 2023-12-05 19:12:20
+📅 2023-12-06 11:49:50
 
 
-# **A Night Like This** / Caro Emerald
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Deleted Scenes From The Cutting Room Floor](https://i.scdn.co/image/ab67616d00001e02ca96a3471c3cb5128e64195f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Deleted Scenes From The Cutting Room Floor
+**Album:** Full Moon Fever
 
-📅 2023-12-05 19:09:08
-
-
-# **Tangled Up - Lokee Remix** / Caro Emerald|Lokee
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-05 19:05:22
+📅 2023-12-06 11:30:54
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **A Mind With A Heart Of Its Own** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2023-12-05 19:01:31
+📅 2023-12-06 10:42:42
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2023-12-05 18:57:39
+📅 2023-12-06 10:42:24
+
+
+# **A Mind With A Heart Of Its Own** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 10:24:23
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 10:24:18
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 10:20:03
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-06 10:12:54
