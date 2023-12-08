@@ -13,130 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **End of Day** / Nicholas Britell
+# **Liquid Lunch - Eelco's 8-bit Hangover Mix (Extended Version)** / Caro Emerald|Eelco
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-07 09:03:49
+📅 2023-12-07 18:32:52
 
 
-# **Andor (Main Title Theme) - Episode 2** / Nicholas Britell
+# **Liquid Lunch - Eelco's 8-bit Hangover Mix** / Caro Emerald|Eelco
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-07 09:02:28
+📅 2023-12-07 18:28:56
 
 
-# **The Cassian Way** / Nicholas Britell
+# **Tangled Up - Kahedi Remix** / Caro Emerald|KAHEDI
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-07 09:01:37
+📅 2023-12-07 18:25:10
 
 
-# **Kenari Male Wanted for Questioning** / Nicholas Britell
+# **Tangled Up - Lokee Remix** / Caro Emerald|Lokee
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-07 08:59:55
+📅 2023-12-07 18:22:06
 
 
-# **Bix Has a Secret** / Nicholas Britell
+# **Tangled Up - Yarin & Richwood (Extended Version)** / Caro Emerald|Yarin & Richwood
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-07 08:58:56
+📅 2023-12-07 18:18:40
 
 
-# **Kenari Council** / Nicholas Britell
+# **Tangled Up - Yarin & Richwood Remix** / Caro Emerald|Yarin & Richwood
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-07 08:57:48
+📅 2023-12-07 18:14:04
 
 
-# **Bix Caleen** / Nicholas Britell
+# **Rock And Roll Records** / Eric Clapton|Tom Petty
 
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
+![Foto del album: Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale](https://i.scdn.co/image/ab67616d00001e02ba0fc34853f791af05dea26a)
 
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
+**Album:** Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale
 
-📅 2023-12-07 08:56:01
-
-
-# **Rix Road** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:55:10
-
-
-# **B2** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:53:19
-
-
-# **Pre-Mor Shakedown** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:52:02
-
-
-# **Morlana Drop** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:51:05
-
-
-# **Niamos! (Morlana Club Mix)** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:49:21
-
-
-# **WE BEGIN (Time Grappler)** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:47:39
-
-
-# **Andor (Main Title Theme) - Episode 1** / Nicholas Britell
-
-![Foto del album: Andor: Vol. 1 (Episodes 1-4) [Original Score]](https://i.scdn.co/image/ab67616d00001e026788f1db657017ab39db0ad9)
-
-**Album:** Andor: Vol. 1 (Episodes 1-4) [Original Score]
-
-📅 2023-12-07 08:47:02
+📅 2023-12-07 17:54:37
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -145,34 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-07 08:45:30
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-12-06 22:01:13
-
-
-# **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-06 22:00:52
-
-
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-06 21:56:33
+📅 2023-12-07 17:54:35
 
 
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
@@ -181,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-06 21:52:51
+📅 2023-12-07 17:32:49
 
 
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
@@ -190,4 +100,94 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-06 21:49:13
+📅 2023-12-07 17:32:45
+
+
+# **Back It Up** / Caro Emerald
+
+![Foto del album: Deleted Scenes From The Cutting Room Floor](https://i.scdn.co/image/ab67616d00001e02ca96a3471c3cb5128e64195f)
+
+**Album:** Deleted Scenes From The Cutting Room Floor
+
+📅 2023-12-07 17:27:23
+
+
+# **Empires** / The Electric Swing Circus
+
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+
+**Album:** It Flew By
+
+📅 2023-12-07 17:23:29
+
+
+# **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-07 17:20:18
+
+
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-07 17:16:39
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-07 17:12:59
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-07 17:09:22
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-07 17:05:30
+
+
+# **This Head I Hold** / Electric Guest
+
+![Foto del album: Mondo](https://i.scdn.co/image/ab67616d00001e026466e833eb9b18310fab4de4)
+
+**Album:** Mondo
+
+📅 2023-12-07 16:30:13
+
+
+# **Tainted Love** / Soft Cell
+
+![Foto del album: Non-Stop Erotic Cabaret](https://i.scdn.co/image/ab67616d00001e0249c982dae436bac27c336f45)
+
+**Album:** Non-Stop Erotic Cabaret
+
+📅 2023-12-07 16:29:40
+
+
+# **Crazy** / Gnarls Barkley
+
+![Foto del album: St. Elsewhere](https://i.scdn.co/image/ab67616d00001e02ceb0b3423d21e3da43c58b0b)
+
+**Album:** St. Elsewhere
+
+📅 2023-12-07 16:27:06
