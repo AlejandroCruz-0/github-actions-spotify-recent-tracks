@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-12-08 09:12:08
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-07 18:35:29
+
+
 # **Liquid Lunch - Eelco's 8-bit Hangover Mix (Extended Version)** / Caro Emerald|Eelco
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Mondo
 
 📅 2023-12-07 16:30:13
-
-
-# **Tainted Love** / Soft Cell
-
-![Foto del album: Non-Stop Erotic Cabaret](https://i.scdn.co/image/ab67616d00001e0249c982dae436bac27c336f45)
-
-**Album:** Non-Stop Erotic Cabaret
-
-📅 2023-12-07 16:29:40
-
-
-# **Crazy** / Gnarls Barkley
-
-![Foto del album: St. Elsewhere](https://i.scdn.co/image/ab67616d00001e02ceb0b3423d21e3da43c58b0b)
-
-**Album:** St. Elsewhere
-
-📅 2023-12-07 16:27:06
