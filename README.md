@@ -13,85 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **MAD** / Caravan Palace
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** MAD
+**Album:** Full Moon Fever
 
-📅 2023-12-08 09:12:08
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:35:29
-
-
-# **Liquid Lunch - Eelco's 8-bit Hangover Mix (Extended Version)** / Caro Emerald|Eelco
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:32:52
-
-
-# **Liquid Lunch - Eelco's 8-bit Hangover Mix** / Caro Emerald|Eelco
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:28:56
-
-
-# **Tangled Up - Kahedi Remix** / Caro Emerald|KAHEDI
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:25:10
-
-
-# **Tangled Up - Lokee Remix** / Caro Emerald|Lokee
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:22:06
-
-
-# **Tangled Up - Yarin & Richwood (Extended Version)** / Caro Emerald|Yarin & Richwood
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:18:40
-
-
-# **Tangled Up - Yarin & Richwood Remix** / Caro Emerald|Yarin & Richwood
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 18:14:04
-
-
-# **Rock And Roll Records** / Eric Clapton|Tom Petty
-
-![Foto del album: Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale](https://i.scdn.co/image/ab67616d00001e02ba0fc34853f791af05dea26a)
-
-**Album:** Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale
-
-📅 2023-12-07 17:54:37
+📅 2023-12-08 19:55:48
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -100,94 +28,166 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-07 17:54:35
+📅 2023-12-08 19:14:35
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Rock And Roll Records** / Eric Clapton|Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale](https://i.scdn.co/image/ab67616d00001e02ba0fc34853f791af05dea26a)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale
 
-📅 2023-12-07 17:32:49
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 17:32:45
+📅 2023-12-08 14:35:01
 
 
-# **Back It Up** / Caro Emerald
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Deleted Scenes From The Cutting Room Floor](https://i.scdn.co/image/ab67616d00001e02ca96a3471c3cb5128e64195f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Deleted Scenes From The Cutting Room Floor
+**Album:** Full Moon Fever
 
-📅 2023-12-07 17:27:23
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-12-07 17:23:29
+📅 2023-12-08 14:34:07
 
 
-# **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
+# **Rock And Roll Records** / Eric Clapton|Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale](https://i.scdn.co/image/ab67616d00001e02ba0fc34853f791af05dea26a)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Eric Clapton & Friends: The Breeze - An Appreciation Of JJ Cale
 
-📅 2023-12-07 17:20:18
-
-
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 17:16:39
+📅 2023-12-08 14:30:01
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Zombie Zoo** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2023-12-07 17:12:59
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-07 17:09:22
+📅 2023-12-08 12:46:12
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **A Mind With A Heart Of Its Own** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2023-12-07 17:05:30
+📅 2023-12-08 12:43:14
 
 
-# **This Head I Hold** / Electric Guest
+# **Alright For Now** / Tom Petty
 
-![Foto del album: Mondo](https://i.scdn.co/image/ab67616d00001e026466e833eb9b18310fab4de4)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Mondo
+**Album:** Full Moon Fever
 
-📅 2023-12-07 16:30:13
+📅 2023-12-08 12:39:42
+
+
+# **The Apartment Song** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 12:37:41
+
+
+# **Depending On You** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 12:35:09
+
+
+# **Yer So Bad** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 12:32:20
+
+
+# **Feel A Whole Lot Better** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 12:21:59
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 12:19:09
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 11:37:17
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 11:33:18
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 10:45:04
+
+
+# **I Won't Back Down** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 10:40:56
+
+
+# **Free Fallin'** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-08 10:37:57
+
+
+# **Arabella** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-08 09:41:06
+
+
+# **One For The Road** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-08 09:40:55
