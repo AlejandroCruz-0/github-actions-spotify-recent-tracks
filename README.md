@@ -19,124 +19,34 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2023-12-13 08:09:33
+📅 2023-12-13 21:30:27
 
 
-# **Mad About You** / Hooverphonic
+# **Brother** / Archive
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Take My Head](https://i.scdn.co/image/ab67616d00001e026f53bc6d069304908ab95733)
 
-**Album:** The Magnificent Tree
+**Album:** Take My Head
 
-📅 2023-12-13 08:05:18
+📅 2023-12-13 15:03:08
 
 
-# **Do I Wanna Know?** / Arctic Monkeys
+# **The Way You Love Me** / Archive
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Take My Head](https://i.scdn.co/image/ab67616d00001e026f53bc6d069304908ab95733)
 
-**Album:** AM
+**Album:** Take My Head
 
-📅 2023-12-13 08:00:28
+📅 2023-12-13 15:03:05
 
 
-# **Bella Belle** / The Electric Swing Circus
+# **You Make Me Feel** / Archive
 
-![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
+![Foto del album: Take My Head](https://i.scdn.co/image/ab67616d00001e026f53bc6d069304908ab95733)
 
-**Album:** The Electric Swing Circus
+**Album:** Take My Head
 
-📅 2023-12-12 23:08:03
-
-
-# **Hybrid** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-12-12 23:04:24
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-12-12 23:01:21
-
-
-# **R U Mine?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-12 22:53:29
-
-
-# **Do I Wanna Know?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-12 22:50:37
-
-
-# **Two Fish in a Pond** / IXIK
-
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
-
-**Album:** shorts
-
-📅 2023-12-12 21:44:10
-
-
-# **Bella Belle** / The Electric Swing Circus
-
-![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
-
-**Album:** The Electric Swing Circus
-
-📅 2023-12-12 21:17:06
-
-
-# **Hybrid** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-12-12 21:13:27
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-12-12 21:10:24
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-12 21:05:10
-
-
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-12 19:13:06
+📅 2023-12-13 14:59:03
 
 
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
@@ -145,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-12 19:09:52
+📅 2023-12-13 12:33:14
 
 
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
@@ -154,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-12 19:06:15
+📅 2023-12-13 12:20:34
 
 
 # **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
@@ -163,31 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-12 19:02:23
+📅 2023-12-13 12:16:42
 
 
-# **Two Fish in a Pond** / IXIK
+# **Waves** / Hooverphonic
 
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** shorts
+**Album:** The Magnificent Tree
 
-📅 2023-12-12 18:57:47
-
-
-# **Bella Belle** / The Electric Swing Circus
-
-![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
-
-**Album:** The Electric Swing Circus
-
-📅 2023-12-12 18:56:23
+📅 2023-12-13 11:53:22
 
 
-# **Hybrid** / Swingrowers
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Hybrid
+**Album:** The Magnificent Tree
 
-📅 2023-12-12 18:52:44
+📅 2023-12-13 11:52:13
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 11:42:43
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 11:38:44
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 11:11:02
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 11:10:28
+
+
+# **Zombie Zoo** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 11:04:08
+
+
+# **A Mind With A Heart Of Its Own** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 11:01:11
+
+
+# **Alright For Now** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 10:57:39
+
+
+# **The Apartment Song** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 10:55:38
+
+
+# **Depending On You** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 10:53:06
+
+
+# **Yer So Bad** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 10:50:16
+
+
+# **Feel A Whole Lot Better** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 10:47:12
