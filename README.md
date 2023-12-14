@@ -19,6 +19,51 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
+📅 2023-12-14 09:03:06
+
+
+# **One For The Road** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-13 22:07:35
+
+
+# **R U Mine?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-13 22:04:09
+
+
+# **Do I Wanna Know?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-13 22:00:47
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-13 21:30:30
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
 📅 2023-12-13 21:30:27
 
 
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Full Moon Fever
 
 📅 2023-12-13 11:01:11
-
-
-# **Alright For Now** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-13 10:57:39
-
-
-# **The Apartment Song** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-13 10:55:38
-
-
-# **Depending On You** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-13 10:53:06
-
-
-# **Yer So Bad** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-13 10:50:16
-
-
-# **Feel A Whole Lot Better** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-13 10:47:12
