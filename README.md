@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **The Chain - 2004 Remaster** / Fleetwood Mac
+
+![Foto del album: Rumours (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02e52a59a28efa4773dd2bfe1b)
+
+**Album:** Rumours (Super Deluxe)
+
+📅 2023-12-16 09:10:40
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2023-12-16 09:06:10
+
+
+# **R U Mine?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-16 09:02:02
+
+
+# **Seven Nation Army** / The White Stripes
+
+![Foto del album: Elephant](https://i.scdn.co/image/ab67616d00001e02a69f71a8794e2d867a52f98f)
+
+**Album:** Elephant
+
+📅 2023-12-16 08:58:40
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-15 13:07:00
+
+
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** AM
 
 📅 2023-12-15 10:06:42
-
-
-# **Do I Wanna Know?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-15 10:03:20
-
-
-# **Fluorescent Adolescent** / Arctic Monkeys
-
-![Foto del album: Favourite Worst Nightmare](https://i.scdn.co/image/ab67616d00001e02b1f8da74f225fa1225cdface)
-
-**Album:** Favourite Worst Nightmare
-
-📅 2023-12-15 09:30:48
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2023-12-15 09:30:40
-
-
-# **I Wanna Be Yours** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-15 09:26:33
-
-
-# **Knee Socks** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-15 09:23:29
