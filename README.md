@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **The Chain - 2004 Remaster** / Fleetwood Mac
+# **I'm Afraid of Americans** / David Bowie
 
-![Foto del album: Rumours (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02e52a59a28efa4773dd2bfe1b)
+![Foto del album: Earthling (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e024cb694aff0f461c8c9bd4e22)
 
-**Album:** Rumours (Super Deluxe)
+**Album:** Earthling (Expanded Edition)
 
-📅 2023-12-16 09:10:40
+📅 2023-12-16 13:40:15
 
 
-# **Fever** / The Black Keys
+# **London Calling - Remastered** / The Clash
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: London Calling (Remastered)](https://i.scdn.co/image/ab67616d00001e02cd9d8bc9ef04014b6e90e182)
 
-**Album:** Turn Blue
+**Album:** London Calling (Remastered)
 
-📅 2023-12-16 09:06:10
+📅 2023-12-16 13:38:34
 
 
-# **R U Mine?** / Arctic Monkeys
+# **Tabu** / Gustavo Cerati
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
 
-**Album:** AM
+**Album:** Bocanada
 
-📅 2023-12-16 09:02:02
+📅 2023-12-16 13:35:13
 
 
-# **Seven Nation Army** / The White Stripes
+# **My Very Best** / Elbow
 
-![Foto del album: Elephant](https://i.scdn.co/image/ab67616d00001e02a69f71a8794e2d867a52f98f)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Elephant
+**Album:** Leaders Of The Free World
 
-📅 2023-12-16 08:58:40
+📅 2023-12-16 13:29:16
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** iii
 
-📅 2023-12-15 13:07:00
+📅 2023-12-16 13:23:21
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Rock the Casbah - Remastered** / The Clash
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Combat Rock (Remastered)
 
-📅 2023-12-15 13:05:34
+📅 2023-12-16 13:19:49
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Gran Turismo (Remastered)
 
-📅 2023-12-15 13:01:42
+📅 2023-12-16 13:16:06
 
 
-# **Teddy Picker** / Arctic Monkeys
+# **Legendary** / Welshly Arms
 
-![Foto del album: Favourite Worst Nightmare](https://i.scdn.co/image/ab67616d00001e02b1f8da74f225fa1225cdface)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Favourite Worst Nightmare
+**Album:** No Place Is Home
 
-📅 2023-12-15 10:45:09
+📅 2023-12-16 13:12:24
 
 
-# **Fever** / The Black Keys
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Turn Blue
+**Album:** Panic
 
-📅 2023-12-15 10:44:42
+📅 2023-12-16 13:08:28
 
 
-# **I Wanna Be Yours** / Arctic Monkeys
+# **Will Do** / TV On The Radio
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** AM
+**Album:** Nine Types of Light
 
-📅 2023-12-15 10:40:35
+📅 2023-12-16 13:04:30
 
 
-# **Knee Socks** / Arctic Monkeys
+# **Immigrant Song - Remaster** / Led Zeppelin
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
 
-**Album:** AM
+**Album:** Led Zeppelin III (Remaster)
 
-📅 2023-12-15 10:37:32
+📅 2023-12-16 12:49:48
 
 
-# **Snap Out Of It** / Arctic Monkeys
+# **Electric Worry** / Clutch
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
 
-**Album:** AM
+**Album:** From Beale Street to Oblivion
 
-📅 2023-12-15 10:33:14
+📅 2023-12-16 12:49:02
 
 
-# **Why'd You Only Call Me When You're High?** / Arctic Monkeys
+# **Criminal** / Fiona Apple
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** AM
+**Album:** Tidal
 
-📅 2023-12-15 10:30:01
+📅 2023-12-16 12:43:45
 
 
-# **Fireside** / Arctic Monkeys
+# **MAD** / Caravan Palace
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
 
-**Album:** AM
+**Album:** MAD
 
-📅 2023-12-15 10:27:19
+📅 2023-12-16 12:37:42
 
 
-# **Mad Sounds** / Arctic Monkeys
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** AM
+**Album:** Full Moon Fever
 
-📅 2023-12-15 10:24:18
+📅 2023-12-16 12:34:26
 
 
-# **No. 1 Party Anthem** / Arctic Monkeys
+# **DEAD** / Unknown Brain|Kazhi
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Faceless](https://i.scdn.co/image/ab67616d00001e02a52fe6915b0dfdc979bb16a9)
 
-**Album:** AM
+**Album:** Faceless
 
-📅 2023-12-15 10:20:44
+📅 2023-12-16 11:55:47
 
 
-# **I Want It All** / Arctic Monkeys
+# **She's Back** / Arcane
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Arcane League of Legends (Original Score from Act 2 of the Animated Series)](https://i.scdn.co/image/ab67616d00001e02a47f7fb1bef417ac7945132c)
 
-**Album:** AM
+**Album:** Arcane League of Legends (Original Score from Act 2 of the Animated Series)
 
-📅 2023-12-15 10:16:40
+📅 2023-12-16 11:53:26
 
 
-# **Arabella** / Arctic Monkeys
+# **Not My Time Yet** / Sophism|Slavica
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Purple Hyacinth: IV (Original Score)](https://i.scdn.co/image/ab67616d00001e026f1f4004739c8dcbe4ade10d)
 
-**Album:** AM
+**Album:** Purple Hyacinth: IV (Original Score)
 
-📅 2023-12-15 10:13:35
+📅 2023-12-16 11:52:16
 
 
-# **One For The Road** / Arctic Monkeys
+# **Super Villain** / Stileto|Silent Child|Kendyle Paige
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Super Villain](https://i.scdn.co/image/ab67616d00001e02ca35459d8b85b0d78e6c2417)
 
-**Album:** AM
+**Album:** Super Villain
 
-📅 2023-12-15 10:10:07
+📅 2023-12-16 11:50:30
 
 
-# **R U Mine?** / Arctic Monkeys
+# **El Dorado** / Stellar
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: El Dorado](https://i.scdn.co/image/ab67616d00001e023c993a9b4d898816e66f0612)
 
-**Album:** AM
+**Album:** El Dorado
 
-📅 2023-12-15 10:06:42
+📅 2023-12-16 11:48:02
