@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Tightrope** / LP
+
+![Foto del album: Lost On You](https://i.scdn.co/image/ab67616d00001e02c54bb44453799029379d30c4)
+
+**Album:** Lost On You
+
+📅 2023-12-17 00:22:43
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-12-17 00:19:04
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-17 00:13:10
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-16 22:31:07
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2023-12-16 22:27:16
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-16 22:20:28
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-12-16 22:16:21
+
+
 # **I'm Afraid of Americans** / David Bowie
 
 ![Foto del album: Earthling (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e024cb694aff0f461c8c9bd4e22)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Tidal
 
 📅 2023-12-16 12:43:45
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-12-16 12:37:42
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-16 12:34:26
-
-
-# **DEAD** / Unknown Brain|Kazhi
-
-![Foto del album: Faceless](https://i.scdn.co/image/ab67616d00001e02a52fe6915b0dfdc979bb16a9)
-
-**Album:** Faceless
-
-📅 2023-12-16 11:55:47
-
-
-# **She's Back** / Arcane
-
-![Foto del album: Arcane League of Legends (Original Score from Act 2 of the Animated Series)](https://i.scdn.co/image/ab67616d00001e02a47f7fb1bef417ac7945132c)
-
-**Album:** Arcane League of Legends (Original Score from Act 2 of the Animated Series)
-
-📅 2023-12-16 11:53:26
-
-
-# **Not My Time Yet** / Sophism|Slavica
-
-![Foto del album: Purple Hyacinth: IV (Original Score)](https://i.scdn.co/image/ab67616d00001e026f1f4004739c8dcbe4ade10d)
-
-**Album:** Purple Hyacinth: IV (Original Score)
-
-📅 2023-12-16 11:52:16
-
-
-# **Super Villain** / Stileto|Silent Child|Kendyle Paige
-
-![Foto del album: Super Villain](https://i.scdn.co/image/ab67616d00001e02ca35459d8b85b0d78e6c2417)
-
-**Album:** Super Villain
-
-📅 2023-12-16 11:50:30
-
-
-# **El Dorado** / Stellar
-
-![Foto del album: El Dorado](https://i.scdn.co/image/ab67616d00001e023c993a9b4d898816e66f0612)
-
-**Album:** El Dorado
-
-📅 2023-12-16 11:48:02
