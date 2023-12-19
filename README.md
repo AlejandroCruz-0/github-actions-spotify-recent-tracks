@@ -13,6 +13,159 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-12-19 08:04:25
+
+
+# **Alright For Now** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:52:19
+
+
+# **The Apartment Song** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:52:12
+
+
+# **Depending On You** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:49:39
+
+
+# **Yer So Bad** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:46:51
+
+
+# **Feel A Whole Lot Better** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:43:45
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:40:55
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:36:03
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:32:04
+
+
+# **I Won't Back Down** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:27:57
+
+
+# **Free Fallin'** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-18 22:24:58
+
+
+# **Arabella** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-18 22:18:19
+
+
+# **One For The Road** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-18 22:14:51
+
+
+# **R U Mine?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-18 22:11:25
+
+
+# **Do I Wanna Know?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2023-12-18 22:08:04
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-18 21:54:42
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-18 21:44:19
+
+
 # **I Want It All** / Arctic Monkeys
 
 ![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
@@ -38,156 +191,3 @@ Nombre: **lotario1999**
 **Album:** AM
 
 📅 2023-12-18 21:06:18
-
-
-# **R U Mine?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-18 21:02:52
-
-
-# **Do I Wanna Know?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-18 20:59:30
-
-
-# **R U Mine?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-18 20:43:40
-
-
-# **Do I Wanna Know?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-18 20:43:35
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-18 20:37:25
-
-
-# **Silent Movie** / Little Violet
-
-![Foto del album: Code Red](https://i.scdn.co/image/ab67616d00001e02eb7fc38f09adbe25271162dd)
-
-**Album:** Code Red
-
-📅 2023-12-18 17:22:30
-
-
-# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-12-18 17:21:34
-
-
-# **Empires** / The Electric Swing Circus
-
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
-
-**Album:** It Flew By
-
-📅 2023-12-18 17:18:37
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-12-18 17:15:26
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-18 17:11:43
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-18 13:18:36
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-18 13:16:22
-
-
-# **Violin Concerto No. 1 in G Minor, Op. 26: 2. Adagio** / Max Bruch|Ray Chen|London Philharmonic Orchestra|Robert Trevino
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e020fc6cc89cdf942cfe0dea28a)
-
-**Album:** The Golden Age
-
-📅 2023-12-18 13:04:13
-
-
-# **Violin Concerto No. 1 in G Minor, Op. 26: 1. Vorspiel (Allegro moderato)** / Max Bruch|Ray Chen|London Philharmonic Orchestra|Robert Trevino
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e020fc6cc89cdf942cfe0dea28a)
-
-**Album:** The Golden Age
-
-📅 2023-12-18 13:03:12
-
-
-# **Estrellita (Arr. Heifetz)** / Manuel Ponce|Ray Chen|Julien Quentin
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e020fc6cc89cdf942cfe0dea28a)
-
-**Album:** The Golden Age
-
-📅 2023-12-18 12:54:28
-
-
-# **Syncopation** / Fritz Kreisler|Ray Chen|Julien Quentin
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e020fc6cc89cdf942cfe0dea28a)
-
-**Album:** The Golden Age
-
-📅 2023-12-18 12:50:58
-
-
-# **A New Satiesfaction (Gymnopédie No. 1)** / Erik Satie|Stephan Koncz|Ray Chen|Made in Berlin
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e020fc6cc89cdf942cfe0dea28a)
-
-**Album:** The Golden Age
-
-📅 2023-12-18 12:48:54
