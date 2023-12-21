@@ -13,31 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Runnin' Down A Dream** / Tom Petty
+# **The Sun** / Maroon 5
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Full Moon Fever
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-20 08:43:35
-
-
-# **A Face In The Crowd** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-20 08:38:08
+📅 2023-12-20 21:25:18
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Tangled** / Maroon 5
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Full Moon Fever
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-20 08:34:10
+📅 2023-12-20 21:21:07
+
+
+# **She Will Be Loved - Radio Mix** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2023-12-20 21:17:47
 
 
 # **Shiver** / Maroon 5
@@ -46,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-19 20:44:09
+📅 2023-12-20 21:13:29
 
 
 # **This Love** / Maroon 5
@@ -55,34 +55,25 @@ Nombre: **lotario1999**
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-19 20:33:32
+📅 2023-12-20 21:10:29
 
 
-# **One For The Road** / Arctic Monkeys
+# **Shiver** / Maroon 5
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** AM
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-19 20:13:54
-
-
-# **A Face In The Crowd** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-19 19:52:11
+📅 2023-12-20 21:03:25
 
 
-# **Love Is A Long Road** / Tom Petty
+# **This Love** / Maroon 5
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Full Moon Fever
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-19 19:52:02
+📅 2023-12-20 21:00:24
 
 
 # **Mad About You** / Hooverphonic
@@ -91,61 +82,52 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2023-12-19 19:47:08
+📅 2023-12-20 20:51:36
 
 
-# **No. 1 Party Anthem** / Arctic Monkeys
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** AM
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-19 13:13:47
-
-
-# **I Want It All** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-19 13:12:03
+📅 2023-12-20 16:11:12
 
 
-# **Arabella** / Arctic Monkeys
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** AM
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-19 13:08:57
-
-
-# **One For The Road** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2023-12-19 13:05:30
+📅 2023-12-20 16:08:41
 
 
-# **R U Mine?** / Arctic Monkeys
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** AM
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-19 13:02:04
+📅 2023-12-20 16:05:04
 
 
-# **Do I Wanna Know?** / Arctic Monkeys
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** AM
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-19 12:58:42
+📅 2023-12-20 16:01:11
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2023-12-20 12:47:49
 
 
 # **Firebirds** / Clutch
@@ -154,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Psychic Warfare
 
-📅 2023-12-19 11:52:46
+📅 2023-12-20 12:47:21
 
 
 # **X-Ray Visions** / Clutch
@@ -163,25 +145,25 @@ Nombre: **lotario1999**
 
 **Album:** Psychic Warfare
 
-📅 2023-12-19 11:52:22
+📅 2023-12-20 12:44:21
 
 
-# **Mad About You** / Hooverphonic
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Magnificent Tree
+**Album:** Full Moon Fever
 
-📅 2023-12-19 11:44:18
+📅 2023-12-20 12:40:17
 
 
-# **Mad About You** / Hooverphonic
+# **Shiver** / Maroon 5
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** The Magnificent Tree
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-19 10:15:43
+📅 2023-12-20 12:25:01
 
 
 # **This Love** / Maroon 5
@@ -190,4 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2023-12-19 09:11:15
+📅 2023-12-20 12:22:02
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-20 12:18:23
+
+
+# **Mind Eraser** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-20 11:30:37
