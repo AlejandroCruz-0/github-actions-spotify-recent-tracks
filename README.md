@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-22 09:08:21
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-22 09:03:39
+
+
+# **Shiver** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2023-12-22 08:48:59
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2023-12-22 08:48:00
+
+
+# **That's Right!** / Swingrowers
+
+![Foto del album: Remote](https://i.scdn.co/image/ab67616d00001e028cf402f2d198ff9c8e9ed8d0)
+
+**Album:** Remote
+
+📅 2023-12-21 23:03:32
+
+
+# **A Lady** / Tally Hall
+
+![Foto del album: Good & Evil](https://i.scdn.co/image/ab67616d00001e0225a5a1ed28871e8e53e62d59)
+
+**Album:** Good & Evil
+
+📅 2023-12-21 23:02:55
+
+
+# **Empires** / The Electric Swing Circus
+
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+
+**Album:** It Flew By
+
+📅 2023-12-21 23:01:50
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2023-12-21 22:58:38
+
+
+# **Washington Square** / The Correspondents
+
+![Foto del album: What's Happened to Soho?](https://i.scdn.co/image/ab67616d00001e028824a3d21fc5f51f3d6b9a1a)
+
+**Album:** What's Happened to Soho?
+
+📅 2023-12-21 16:02:13
+
+
 # **One Day - Swingrowers Remix (Dub Version)** / Caro Emerald|Swingrowers
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2023-12-21 12:33:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-21 12:29:20
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-21 11:59:33
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-21 11:53:47
-
-
-# **Karma Police** / Radiohead
-
-![Foto del album: OK Computer](https://i.scdn.co/image/ab67616d00001e02c8b444df094279e70d0ed856)
-
-**Album:** OK Computer
-
-📅 2023-12-21 11:30:48
-
-
-# **Elephant** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-12-21 11:30:30
-
-
-# **Romantic Lover** / Eyedress
-
-![Foto del album: Let's Skip to the Wedding](https://i.scdn.co/image/ab67616d00001e022a960aa5c84973aa3622f417)
-
-**Album:** Let's Skip to the Wedding
-
-📅 2023-12-21 11:26:35
-
-
-# **Oncle Jazz** / Men I Trust
-
-![Foto del album: Oncle Jazz](https://i.scdn.co/image/ab67616d00001e0271b706835a873e7a3144f6fa)
-
-**Album:** Oncle Jazz
-
-📅 2023-12-21 11:25:08
-
-
-# **WHATEVR (STILL MOODY)** / LUNACYCL
-
-![Foto del album: WHATEVR (STILL MOODY)](https://i.scdn.co/image/ab67616d00001e02e25c3ed7cc2369d47afb640b)
-
-**Album:** WHATEVR (STILL MOODY)
-
-📅 2023-12-21 11:24:10
-
-
-# **Duvet - Slowed Down Version** / bôa
-
-![Foto del album: Duvet](https://i.scdn.co/image/ab67616d00001e02786d2ae38a7a469bf4218d4a)
-
-**Album:** Duvet
-
-📅 2023-12-21 11:22:50
