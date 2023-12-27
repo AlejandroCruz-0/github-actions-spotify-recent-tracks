@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Little Black Submarines** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 09:05:25
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 09:01:13
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 08:57:29
+
+
+# **Run Right Back** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 08:53:40
+
+
+# **Money Maker** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 08:50:23
+
+
+# **Little Black Submarines** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 08:47:25
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 08:43:15
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 08:39:30
+
+
 # **Two Fish in a Pond** / IXIK
 
 ![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fashion Nugget
 
 📅 2023-12-26 14:09:37
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2023-12-26 14:05:35
-
-
-# **Rock the Casbah - Remastered** / The Clash
-
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
-
-**Album:** Combat Rock (Remastered)
-
-📅 2023-12-26 13:58:04
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2023-12-26 13:54:31
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2023-12-26 13:42:58
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-26 13:25:58
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-26 13:08:07
-
-
-# **Little Black Submarines** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-26 13:00:32
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-26 12:58:54
