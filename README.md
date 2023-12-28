@@ -13,139 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **Little Black Submarines** / The Black Keys
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** El Camino
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-27 09:05:25
+📅 2023-12-27 20:22:16
 
 
-# **Gold on the Ceiling** / The Black Keys
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** El Camino
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2023-12-27 09:01:13
+📅 2023-12-27 20:18:24
 
 
-# **Dead and Gone** / The Black Keys
+# **Oh I Wept** / Free
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** El Camino
+**Album:** Fire And Water
 
-📅 2023-12-27 08:57:29
+📅 2023-12-27 11:07:22
 
 
-# **Run Right Back** / The Black Keys
+# **Will Do** / TV On The Radio
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** El Camino
+**Album:** Nine Types of Light
 
-📅 2023-12-27 08:53:40
+📅 2023-12-27 11:07:14
 
 
-# **Money Maker** / The Black Keys
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** El Camino
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2023-12-27 08:50:23
+📅 2023-12-27 11:03:29
 
 
-# **Little Black Submarines** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-27 08:47:25
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-27 08:43:15
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-27 08:39:30
-
-
-# **Two Fish in a Pond** / IXIK
-
-![Foto del album: shorts](https://i.scdn.co/image/ab67616d00001e027ee92529839f833d52bcf665)
-
-**Album:** shorts
-
-📅 2023-12-26 19:48:42
-
-
-# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2023-12-26 19:48:14
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-12-26 19:45:17
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-12-26 18:28:35
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2023-12-26 18:15:18
-
-
-# **Judas** / Depeche Mode
+# **Walking in My Shoes** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2023-12-26 18:11:27
+📅 2023-12-27 11:02:09
 
 
-# **Holy Ghost** / Bent Knee
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Land Animal
+**Album:** Thirteenth Step
 
-📅 2023-12-26 18:06:13
+📅 2023-12-27 10:56:43
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -154,40 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2023-12-26 17:58:13
+📅 2023-12-27 10:53:27
 
 
-# **Two Weeks** / FKA twigs
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** LP1
+**Album:** El Camino
 
-📅 2023-12-26 14:25:17
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2023-12-26 14:23:19
+📅 2023-12-27 10:47:24
 
 
-# **Let's Dance - 2018 Remaster** / David Bowie
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Let's Dance (2018 Remaster)
+**Album:** El Camino
 
-📅 2023-12-26 14:09:59
+📅 2023-12-27 10:43:11
 
 
-# **Frank Sinatra** / CAKE
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0200df6727e2cfe905baa75c1e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Fashion Nugget
+**Album:** The Magnificent Tree
 
-📅 2023-12-26 14:09:37
+📅 2023-12-27 10:34:41
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2023-12-27 10:31:19
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2023-12-27 10:26:52
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2023-12-27 10:23:06
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-12-27 10:21:47
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2023-12-27 10:16:20
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2023-12-27 10:13:04
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2023-12-27 09:45:10
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-12-27 09:24:24
+
+
+# **Money Maker** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-27 09:06:30
