@@ -13,40 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Washington Square** / The Correspondents
-
-![Foto del album: What's Happened to Soho?](https://i.scdn.co/image/ab67616d00001e028824a3d21fc5f51f3d6b9a1a)
-
-**Album:** What's Happened to Soho?
-
-📅 2023-12-28 19:27:05
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2023-12-28 19:23:31
-
-
-# **Dead and Gone** / The Black Keys
+# **Nova Baby** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
 **Album:** El Camino
 
-📅 2023-12-28 19:20:30
+📅 2023-12-29 12:52:23
 
 
-# **Mad About You** / Hooverphonic
+# **Stop Stop** / The Black Keys
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** The Magnificent Tree
+**Album:** El Camino
 
-📅 2023-12-28 19:14:58
+📅 2023-12-29 12:51:54
+
+
+# **Hell of a Season** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-29 12:48:25
+
+
+# **Sister** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-29 12:44:40
 
 
 # **Run Right Back** / The Black Keys
@@ -55,52 +55,25 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
-📅 2023-12-28 14:44:56
+📅 2023-12-29 12:41:15
 
 
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2023-12-28 14:32:36
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-28 13:36:31
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-28 13:35:19
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2023-12-28 13:31:17
-
-
-# **Dead and Gone** / The Black Keys
+# **Money Maker** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
 **Album:** El Camino
 
-📅 2023-12-28 13:27:17
+📅 2023-12-29 12:37:57
+
+
+# **Little Black Submarines** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2023-12-29 12:35:00
 
 
 # **Gold on the Ceiling** / The Black Keys
@@ -109,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
-📅 2023-12-28 11:13:54
+📅 2023-12-29 12:30:49
 
 
 # **Dead and Gone** / The Black Keys
@@ -118,76 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
-📅 2023-12-28 11:11:47
+📅 2023-12-29 12:27:05
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **A Face In The Crowd** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2023-12-27 20:25:09
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2023-12-27 20:22:16
+📅 2023-12-29 11:49:11
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2023-12-27 20:18:24
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2023-12-27 11:07:22
+📅 2023-12-29 11:45:19
 
 
-# **Will Do** / TV On The Radio
+# **The Apartment Song** / Tom Petty
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Nine Types of Light
+**Album:** Full Moon Fever
 
-📅 2023-12-27 11:07:14
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2023-12-27 11:03:29
+📅 2023-12-29 11:40:07
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Depending On You** / Tom Petty
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Full Moon Fever
 
-📅 2023-12-27 11:02:09
+📅 2023-12-29 11:37:34
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Yer So Bad** / Tom Petty
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Thirteenth Step
+**Album:** Full Moon Fever
 
-📅 2023-12-27 10:56:43
+📅 2023-12-29 11:34:46
+
+
+# **Feel A Whole Lot Better** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-29 11:31:40
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-29 11:28:51
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-29 11:23:58
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2023-12-29 11:19:59
+
+
+# **Vinegar & Salt** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-12-29 10:25:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2023-12-29 10:23:15
