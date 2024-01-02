@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Alright For Now** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 09:06:29
+
+
+# **The Apartment Song** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 09:04:28
+
+
+# **Depending On You** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 09:01:56
+
+
+# **Yer So Bad** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 08:59:07
+
+
+# **Feel A Whole Lot Better** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 08:56:01
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 08:53:11
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 08:48:20
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-02 08:44:19
+
+
 # **I Feel You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** OVNI(s) [Bande Originale de la Série]
 
 📅 2024-01-01 12:29:03
-
-
-# **Blu-Tack** / MEZERG
-
-![Foto del album: Chez Mezerg](https://i.scdn.co/image/ab67616d00001e028fa72c3d38b92cac84022ab6)
-
-**Album:** Chez Mezerg
-
-📅 2024-01-01 12:27:49
-
-
-# **Saving A Life** / Richard Houghten
-
-![Foto del album: Sonata De Grillo](https://i.scdn.co/image/ab67616d00001e026c095829b6e0316b95be8636)
-
-**Album:** Sonata De Grillo
-
-📅 2024-01-01 12:25:52
-
-
-# **Journey Heavy** / Mike Ladd|David Sztanke
-
-![Foto del album: Transatlantic (Soundtrack from the Netflix Series)](https://i.scdn.co/image/ab67616d00001e022b6f53d187f85c3082d993fa)
-
-**Album:** Transatlantic (Soundtrack from the Netflix Series)
-
-📅 2024-01-01 12:23:12
-
-
-# **Le départ** / L'Impératrice
-
-![Foto del album: Odyssée - EP](https://i.scdn.co/image/ab67616d00001e0291d5af63d5acc752950d5927)
-
-**Album:** Odyssée - EP
-
-📅 2024-01-01 12:21:51
-
-
-# **C-5 Galaxy** / Nicholas Britell
-
-![Foto del album: Don't Look Up (Soundtrack from the Netflix Film)](https://i.scdn.co/image/ab67616d00001e02008a3acc7683ca1f79a8876b)
-
-**Album:** Don't Look Up (Soundtrack from the Netflix Film)
-
-📅 2024-01-01 12:19:51
-
-
-# **Confirming Hal's Story** / Nathan Barr|Dimitri Smith
-
-![Foto del album: The Diplomat (Soundtrack from the Netflix Series)](https://i.scdn.co/image/ab67616d00001e02706e375f8277000a9b1cb19b)
-
-**Album:** The Diplomat (Soundtrack from the Netflix Series)
-
-📅 2024-01-01 12:18:46
-
-
-# **me and jesse [part one]** / Robert Paul Corless
-
-![Foto del album: Volume Twenty Four Trios Part 2](https://i.scdn.co/image/ab67616d00001e02688b4db32b025385055a1d12)
-
-**Album:** Volume Twenty Four Trios Part 2
-
-📅 2024-01-01 12:17:36
-
-
-# **Jackson Cleaners** / Joel P West
-
-![Foto del album: Just Mercy (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e026a61563a04c94d72c075b0f3)
-
-**Album:** Just Mercy (Original Motion Picture Soundtrack)
-
-📅 2024-01-01 12:15:35
