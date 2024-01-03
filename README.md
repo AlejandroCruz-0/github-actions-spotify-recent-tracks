@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Alright For Now** / Tom Petty
+# **Do I Wanna Know?** / Arctic Monkeys
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
 
-**Album:** Full Moon Fever
+**Album:** AM
 
-📅 2024-01-02 09:06:29
-
-
-# **The Apartment Song** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-02 09:04:28
+📅 2024-01-02 18:55:16
 
 
-# **Depending On You** / Tom Petty
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Full Moon Fever
+**Album:** El Camino
 
-📅 2024-01-02 09:01:56
-
-
-# **Yer So Bad** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-02 08:59:07
+📅 2024-01-02 18:54:52
 
 
-# **Feel A Whole Lot Better** / Tom Petty
+# **Empires** / The Electric Swing Circus
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
-**Album:** Full Moon Fever
+**Album:** It Flew By
 
-📅 2024-01-02 08:56:01
-
-
-# **Runnin' Down A Dream** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-02 08:53:11
+📅 2024-01-02 15:16:42
 
 
-# **A Face In The Crowd** / Tom Petty
+# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
 
-**Album:** Full Moon Fever
+**Album:** Hybrid
 
-📅 2024-01-02 08:48:20
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-02 08:44:19
+📅 2024-01-02 14:36:15
 
 
-# **I Feel You** / Depeche Mode
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2024-01-02 14:33:16
+
+
+# **Judas** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-01-01 20:06:43
+📅 2024-01-02 12:16:20
 
 
-# **The Outsider** / A Perfect Circle
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Thirteenth Step
+**Album:** Land Animal
 
-📅 2024-01-01 20:06:09
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-01 20:02:03
+📅 2024-01-02 12:14:14
 
 
-# **Mad About You** / Hooverphonic
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** The Magnificent Tree
+**Album:** Bueninvento
 
-📅 2024-01-01 19:58:06
-
-
-# **Enemy (with JID) - from the series Arcane League of Legends** / Imagine Dragons|JID|Arcane|League of Legends
-
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
-
-**Album:** Mercury - Acts 1 & 2
-
-📅 2024-01-01 13:38:20
+📅 2024-01-02 12:08:40
 
 
-# **Rock It for Me** / Caravan Palace
+# **Fever** / The Black Keys
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Panic
+**Album:** Turn Blue
 
-📅 2024-01-01 13:11:20
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2024-01-01 13:07:52
+📅 2024-01-02 12:05:14
 
 
-# **Canned Heat - Remastered** / Jamiroquai
+# **Two Weeks** / FKA twigs
 
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** Driving Songs
+**Album:** LP1
 
-📅 2024-01-01 13:03:59
-
-
-# **MOUNT** / The Blaze
-
-![Foto del album: DANCEHALL](https://i.scdn.co/image/ab67616d00001e02fb8b2c04222171f2c970d6ac)
-
-**Album:** DANCEHALL
-
-📅 2024-01-01 12:32:32
+📅 2024-01-02 12:01:07
 
 
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+**Album:** Synkronized
 
-📅 2024-01-01 12:32:24
-
-
-# **Succession (Main Title Theme)** / Nicholas Britell
-
-![Foto del album: Succession: Season 1 (HBO Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e654bc3bc09b6c1e013f74a3)
-
-**Album:** Succession: Season 1 (HBO Original Series Soundtrack)
-
-📅 2024-01-01 12:30:44
+📅 2024-01-02 11:56:59
 
 
-# **Gepan** / Thylacine
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: OVNI(s) [Bande Originale de la Série]](https://i.scdn.co/image/ab67616d00001e02ac7f020906adf64cd5602b87)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** OVNI(s) [Bande Originale de la Série]
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2024-01-01 12:29:03
+📅 2024-01-02 11:50:18
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-01-02 11:46:08
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-01-02 11:42:18
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-01-02 11:37:04
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-01-02 11:31:29
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-01-02 11:28:03
+
+
+# **Arabella** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2024-01-02 10:03:31
+
+
+# **One For The Road** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2024-01-02 09:52:17
+
+
+# **R U Mine?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2024-01-02 09:48:51
