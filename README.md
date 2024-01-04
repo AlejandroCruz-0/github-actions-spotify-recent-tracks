@@ -13,103 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Do I Wanna Know?** / Arctic Monkeys
+# **Shiver** / Maroon 5
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** AM
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-01-02 18:55:16
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-02 18:54:52
+📅 2024-01-03 16:23:27
 
 
-# **Empires** / The Electric Swing Circus
+# **This Love** / Maroon 5
 
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** It Flew By
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-01-02 15:16:42
-
-
-# **Dreamland (Say Goodbye Bye Bye)** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2024-01-02 14:36:15
+📅 2024-01-03 16:23:07
 
 
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2024-01-02 14:33:16
-
-
-# **Judas** / Depeche Mode
+# **Mercy in You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-01-02 12:16:20
+📅 2024-01-03 13:16:55
 
 
-# **Holy Ghost** / Bent Knee
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Land Animal
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-01-02 12:14:14
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-01-02 12:08:40
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-02 12:05:14
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2024-01-02 12:01:07
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
-
-**Album:** Synkronized
-
-📅 2024-01-02 11:56:59
+📅 2024-01-03 13:16:05
 
 
 # **Out of Touch** / Daryl Hall & John Oates
@@ -118,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2024-01-02 11:50:18
+📅 2024-01-03 13:13:28
 
 
 # **Scoring** / bôa
@@ -127,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-01-02 11:46:08
+📅 2024-01-03 13:09:18
 
 
 # **Judas** / Depeche Mode
@@ -136,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-01-02 11:42:18
+📅 2024-01-03 13:05:27
 
 
 # **Holy Ghost** / Bent Knee
@@ -145,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2024-01-02 11:37:04
+📅 2024-01-03 13:00:13
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -154,40 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2024-01-02 11:31:29
+📅 2024-01-03 12:54:39
 
 
-# **Fever** / The Black Keys
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Turn Blue
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-01-02 11:28:03
-
-
-# **Arabella** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-02 10:03:31
+📅 2024-01-03 12:11:12
 
 
-# **One For The Road** / Arctic Monkeys
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** AM
+**Album:** Thirteenth Step
 
-📅 2024-01-02 09:52:17
+📅 2024-01-03 12:10:51
 
 
-# **R U Mine?** / Arctic Monkeys
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** AM
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-01-02 09:48:51
+📅 2024-01-03 12:07:35
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-01-03 12:01:44
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-01-03 11:57:43
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-01-03 11:53:06
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-01-03 11:49:00
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-01-03 11:45:03
+
+
+# **Sister** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-03 11:41:06
+
+
+# **Run Right Back** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-03 11:37:41
+
+
+# **Money Maker** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-03 11:34:24
