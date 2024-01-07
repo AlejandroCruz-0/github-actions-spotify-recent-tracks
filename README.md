@@ -13,94 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-05 19:41:12
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-05 12:43:20
-
-
-# **Turn Blue** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-05 12:40:39
-
-
-# **In Time** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-05 12:36:56
-
-
-# **A Face In The Crowd** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-05 12:10:40
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-05 12:07:13
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-05 12:02:50
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-01-05 11:32:37
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-01-05 00:31:18
-
-
 # **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
 **Album:** Ones and Sixes
 
-📅 2024-01-05 00:27:48
+📅 2024-01-06 21:19:35
 
 
 # **Canned Heat - Remastered** / Jamiroquai
@@ -109,7 +28,25 @@ Nombre: **lotario1999**
 
 **Album:** Driving Songs
 
-📅 2024-01-05 00:23:56
+📅 2024-01-06 21:15:44
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2024-01-06 21:11:55
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-01-06 21:08:04
 
 
 # **Oh I Wept** / Free
@@ -118,7 +55,16 @@ Nombre: **lotario1999**
 
 **Album:** Fire And Water
 
-📅 2024-01-05 00:19:24
+📅 2024-01-06 21:04:12
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-01-06 20:59:46
 
 
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
@@ -127,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-01-05 00:14:51
+📅 2024-01-06 20:56:00
 
 
 # **Walking in My Shoes** / Depeche Mode
@@ -136,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-01-05 00:13:31
+📅 2024-01-06 20:52:27
 
 
 # **Weak And Powerless** / A Perfect Circle
@@ -145,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2024-01-05 00:08:05
+📅 2024-01-06 20:47:00
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -154,16 +100,25 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-01-05 00:04:49
+📅 2024-01-06 20:43:45
 
 
-# **Duvet** / bôa
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Duvet](https://i.scdn.co/image/ab67616d00001e02786d2ae38a7a469bf4218d4a)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Duvet
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-01-04 23:58:31
+📅 2024-01-06 20:37:24
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-01-06 20:32:48
 
 
 # **Mad About You** / Hooverphonic
@@ -172,22 +127,67 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-01-04 23:54:51
+📅 2024-01-06 20:28:27
 
 
-# **Year in Review** / The Black Keys
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Turn Blue
+**Album:** El Camino
 
-📅 2024-01-04 23:50:50
+📅 2024-01-06 19:28:12
 
 
-# **Fever** / The Black Keys
+# **Shiver** / Maroon 5
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Turn Blue
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-01-04 23:38:15
+📅 2024-01-06 13:11:34
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-01-06 13:09:23
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2024-01-06 13:05:44
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-01-06 12:09:58
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-01-06 12:09:26
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-01-06 12:05:32
