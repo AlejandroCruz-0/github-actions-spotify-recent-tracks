@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2024-01-07 14:13:48
+
+
+# **Little Black Submarines** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-07 12:45:21
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-07 12:44:58
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-07 12:41:14
+
+
+# **She Will Be Loved - Radio Mix** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-01-07 11:37:43
+
+
+# **Shiver** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-01-07 11:37:18
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-01-07 11:34:18
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-07 11:30:36
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-01-07 11:26:04
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-01-07 11:21:55
+
+
 # **Congregation** / Low
 
 ![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2024-01-06 20:43:45
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-01-06 20:37:24
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-01-06 20:32:48
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-06 20:28:27
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-06 19:28:12
-
-
-# **Shiver** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-01-06 13:11:34
-
-
-# **This Love** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-01-06 13:09:23
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2024-01-06 13:05:44
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2024-01-06 12:09:58
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-01-06 12:09:26
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-01-06 12:05:32
