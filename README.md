@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-01-09 23:01:50
+
+
+# **The Pretender** / Foo Fighters
+
+![Foto del album: Echoes, Silence, Patience & Grace](https://i.scdn.co/image/ab67616d00001e0283e260c313dc1ff1f17909cf)
+
+**Album:** Echoes, Silence, Patience & Grace
+
+📅 2024-01-09 22:57:43
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-09 22:52:51
+
+
 # **Shiver** / Maroon 5
 
 ![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** El Camino
 
 📅 2024-01-07 12:44:58
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-07 12:41:14
-
-
-# **She Will Be Loved - Radio Mix** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-01-07 11:37:43
-
-
-# **Shiver** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-01-07 11:37:18
