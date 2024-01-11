@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **ノスタルジア・オブ・アイランド** / Tatsuro Yamashita
+
+![Foto del album: PACIFIC](https://i.scdn.co/image/ab67616d00001e02a7177b1d4c69494024e02579)
+
+**Album:** PACIFIC
+
+📅 2024-01-10 12:44:35
+
+
 # **The Outsider** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** El Camino
 
 📅 2024-01-07 12:45:21
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-07 12:44:58
