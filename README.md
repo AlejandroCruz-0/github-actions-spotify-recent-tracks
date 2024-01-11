@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **MAD** / Caravan Palace
+
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
+
+**Album:** MAD
+
+📅 2024-01-10 23:38:02
+
+
 # **ノスタルジア・オブ・アイランド** / Tatsuro Yamashita
 
 ![Foto del album: PACIFIC](https://i.scdn.co/image/ab67616d00001e02a7177b1d4c69494024e02579)
@@ -20,6 +29,15 @@ Nombre: **lotario1999**
 **Album:** PACIFIC
 
 📅 2024-01-10 12:44:35
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-09 23:15:19
 
 
 # **The Outsider** / A Perfect Circle
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hybrid
 
 📅 2024-01-07 14:13:56
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2024-01-07 14:13:48
-
-
-# **Little Black Submarines** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-07 12:45:21
