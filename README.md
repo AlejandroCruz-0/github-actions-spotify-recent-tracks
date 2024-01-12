@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Tangled Up - Lokee Remix** / Caro Emerald|Lokee
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-01-10 23:38:13
+
+
 # **MAD** / Caravan Palace
 
 ![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2024-01-08 09:51:16
-
-
-# **Hybrid** / Swingrowers
-
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
-
-**Album:** Hybrid
-
-📅 2024-01-07 14:13:56
