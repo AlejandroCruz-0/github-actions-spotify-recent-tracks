@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-12 23:09:53
+
+
 # **Little Black Submarines** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2024-01-09 23:01:50
-
-
-# **The Pretender** / Foo Fighters
-
-![Foto del album: Echoes, Silence, Patience & Grace](https://i.scdn.co/image/ab67616d00001e0283e260c313dc1ff1f17909cf)
-
-**Album:** Echoes, Silence, Patience & Grace
-
-📅 2024-01-09 22:57:43
