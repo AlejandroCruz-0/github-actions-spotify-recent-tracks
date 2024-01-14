@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Little Black Submarines** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-13 14:52:16
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-13 14:48:05
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-13 14:44:20
+
+
 # **Dead and Gone** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** MAD
 
 📅 2024-01-10 23:38:02
-
-
-# **ノスタルジア・オブ・アイランド** / Tatsuro Yamashita
-
-![Foto del album: PACIFIC](https://i.scdn.co/image/ab67616d00001e02a7177b1d4c69494024e02579)
-
-**Album:** PACIFIC
-
-📅 2024-01-10 12:44:35
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-09 23:15:19
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-01-09 23:01:50
