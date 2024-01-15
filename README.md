@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
+📅 2024-01-14 11:42:16
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-13 22:55:14
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
 📅 2024-01-13 22:55:05
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Turn Blue
 
 📅 2024-01-12 10:39:08
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-12 09:56:59
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-12 09:56:56
