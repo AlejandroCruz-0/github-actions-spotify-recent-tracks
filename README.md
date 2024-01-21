@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-20 21:26:46
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-01-18 14:05:05
+
+
 # **A Face In The Crowd** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** El Camino
 
 📅 2024-01-16 19:01:17
-
-
-# **Run Right Back** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-16 12:32:56
-
-
-# **Money Maker** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-16 12:30:35
