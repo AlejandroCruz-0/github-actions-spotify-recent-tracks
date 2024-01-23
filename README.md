@@ -13,40 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Do I Wanna Know?** / Arctic Monkeys
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
 
-**Album:** Bueninvento
+**Album:** AM
 
-📅 2024-01-21 23:26:31
-
-
-# **Canned Heat - Remastered** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2024-01-21 23:21:35
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-01-21 23:17:40
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-21 23:11:33
+📅 2024-01-22 17:43:39
 
 
 # **Dead and Gone** / The Black Keys
@@ -55,70 +28,43 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
-📅 2024-01-21 23:06:42
+📅 2024-01-22 17:10:17
 
 
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-21 11:16:17
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-21 11:04:19
-
-
-# **This Love** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-01-21 10:59:34
-
-
-# **Love Is A Long Road** / Tom Petty
+# **Depending On You** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
 **Album:** Full Moon Fever
 
-📅 2024-01-21 10:55:18
+📅 2024-01-22 15:42:22
 
 
-# **Gold on the Ceiling** / The Black Keys
+# **Yer So Bad** / Tom Petty
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** El Camino
+**Album:** Full Moon Fever
 
-📅 2024-01-20 21:27:16
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-20 21:26:46
+📅 2024-01-22 15:42:15
 
 
-# **Mad About You** / Hooverphonic
+# **Feel A Whole Lot Better** / Tom Petty
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Magnificent Tree
+**Album:** Full Moon Fever
 
-📅 2024-01-18 14:05:05
+📅 2024-01-22 15:39:10
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-22 15:36:20
 
 
 # **A Face In The Crowd** / Tom Petty
@@ -127,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2024-01-18 13:41:45
+📅 2024-01-22 15:31:28
 
 
 # **Love Is A Long Road** / Tom Petty
@@ -136,52 +82,79 @@ Nombre: **lotario1999**
 
 **Album:** Full Moon Fever
 
-📅 2024-01-18 13:40:13
+📅 2024-01-22 15:27:29
 
 
-# **Waiting on Words** / The Black Keys
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Turn Blue
+**Album:** Full Moon Fever
 
-📅 2024-01-18 10:04:39
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-18 10:04:35
+📅 2024-01-22 15:23:04
 
 
-# **In Our Prime** / The Black Keys
+# **Bones** / Imagine Dragons
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
 
-**Album:** Turn Blue
+**Album:** Mercury - Acts 1 & 2
 
-📅 2024-01-18 09:59:59
+📅 2024-01-22 11:53:45
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-01-22 11:39:46
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2024-01-22 11:36:34
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-01-22 11:30:33
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-01-22 11:25:01
+
+
+# **The Outsider** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
 **Album:** Thirteenth Step
 
-📅 2024-01-17 21:35:27
+📅 2024-01-22 11:20:34
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** The Magnificent Tree
 
-📅 2024-01-17 21:35:23
+📅 2024-01-22 11:16:28
 
 
 # **Mad About You** / Hooverphonic
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-01-17 21:29:32
+📅 2024-01-22 11:12:31
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-22 11:08:42
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-22 11:00:45
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-01-21 23:26:34
