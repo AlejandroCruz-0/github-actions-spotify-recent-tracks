@@ -13,85 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Stop Stop** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 14:19:06
-
-
-# **Hell of a Season** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 14:15:36
-
-
-# **Sister** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 14:11:51
-
-
-# **Run Right Back** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 14:08:25
-
-
-# **Money Maker** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 14:05:09
-
-
-# **Little Black Submarines** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 14:02:11
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 13:58:00
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-24 13:54:16
-
-
 # **She Will Be Loved - Radio Mix** / Maroon 5
 
 ![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-01-23 18:36:25
+📅 2024-01-26 12:37:51
 
 
 # **Shiver** / Maroon 5
@@ -100,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-01-23 18:36:13
+📅 2024-01-26 12:36:59
 
 
 # **This Love** / Maroon 5
@@ -109,70 +37,34 @@ Nombre: **lotario1999**
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-01-23 18:33:13
+📅 2024-01-26 12:34:00
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Waves** / Hooverphonic
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** The Magnificent Tree
 
-📅 2024-01-23 17:56:58
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-23 17:56:19
+📅 2024-01-26 12:18:49
 
 
-# **Year in Review** / The Black Keys
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Turn Blue
+**Album:** The Magnificent Tree
 
-📅 2024-01-23 12:09:07
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-01-23 12:08:52
+📅 2024-01-26 12:04:48
 
 
-# **A Face In The Crowd** / Tom Petty
+# **MAD** / Caravan Palace
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
 
-**Album:** Full Moon Fever
+**Album:** MAD
 
-📅 2024-01-23 10:58:56
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-23 10:58:04
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-23 09:45:31
+📅 2024-01-26 12:00:24
 
 
 # **Dead and Gone** / The Black Keys
@@ -181,13 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
-📅 2024-01-23 09:45:13
+📅 2024-01-26 11:57:11
 
 
-# **Do I Wanna Know?** / Arctic Monkeys
+# **Arabella** / Arctic Monkeys
 
 ![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
 
 **Album:** AM
 
-📅 2024-01-22 17:43:39
+📅 2024-01-26 11:48:05
+
+
+# **One For The Road** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2024-01-26 11:44:37
+
+
+# **Zombie Zoo** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:19:53
+
+
+# **A Mind With A Heart Of Its Own** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:18:46
+
+
+# **Alright For Now** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:15:15
+
+
+# **The Apartment Song** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:13:14
+
+
+# **Depending On You** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:10:42
+
+
+# **Yer So Bad** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:07:53
+
+
+# **Feel A Whole Lot Better** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:04:47
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 10:01:58
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 09:57:06
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-01-26 09:53:06
+
+
+# **Nova Baby** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-01-24 14:20:40
