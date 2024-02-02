@@ -13,6 +13,168 @@ Nombre: **lotario1999**
 
 
 
+# **Year in Review** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-01 13:29:58
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-01 13:26:10
+
+
+# **Shiver - Demo** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 13:01:46
+
+
+# **This Love - Demo** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:58:54
+
+
+# **Harder To Breathe - Demo** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:55:32
+
+
+# **Sweetest Goodbye** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:53:14
+
+
+# **Not Coming Home** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:48:43
+
+
+# **Through With You** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:44:22
+
+
+# **Secret** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:41:20
+
+
+# **Sunday Morning** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:36:25
+
+
+# **Must Get Out** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:32:20
+
+
+# **The Sun** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:28:21
+
+
+# **Tangled** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:24:09
+
+
+# **She Will Be Loved - Radio Mix** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:20:51
+
+
+# **Shiver** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:16:31
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-02-01 12:13:32
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-01 10:38:10
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-01-31 22:57:38
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -29,165 +191,3 @@ Nombre: **lotario1999**
 **Album:** AM
 
 📅 2024-01-31 17:29:58
-
-
-# **R U Mine?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 17:29:35
-
-
-# **Do I Wanna Know?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 17:26:14
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-31 17:13:37
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-01-31 12:13:24
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2024-01-31 12:13:09
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-01-31 12:08:59
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-01-31 12:05:08
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-01-31 11:59:55
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-01-31 11:54:21
-
-
-# **A Face In The Crowd** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-31 11:50:22
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-01-31 11:46:23
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-31 11:38:30
-
-
-# **Gold on the Ceiling** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-31 11:32:38
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-01-31 11:28:54
-
-
-# **R U Mine?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 11:11:09
-
-
-# **Do I Wanna Know?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 11:07:47
-
-
-# **One For The Road** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 11:02:21
-
-
-# **R U Mine?** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 10:58:55
