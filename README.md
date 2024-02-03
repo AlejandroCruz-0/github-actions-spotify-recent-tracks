@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-02-02 16:10:51
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-02-02 16:06:36
+
+
+# **Bullet in the Brain** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-01 13:30:10
+
+
 # **Year in Review** / The Black Keys
 
 ![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-02-01 10:38:10
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-31 22:57:38
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-01-31 22:57:20
-
-
-# **One For The Road** / Arctic Monkeys
-
-![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
-
-**Album:** AM
-
-📅 2024-01-31 17:29:58
