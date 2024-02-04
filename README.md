@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Little Black Submarines** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-02-02 16:12:22
+
+
 # **Gold on the Ceiling** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs About Jane: 10th Anniversary Edition
 
 📅 2024-02-01 12:13:32
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-01 10:38:10
