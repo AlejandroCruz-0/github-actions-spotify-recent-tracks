@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-02-04 12:46:11
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-02-04 12:45:53
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-04 12:41:27
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-04 11:53:38
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-04 11:52:42
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-04 00:51:39
+
+
 # **Little Black Submarines** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs About Jane: 10th Anniversary Edition
 
 📅 2024-02-01 12:36:25
-
-
-# **Must Get Out** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-02-01 12:32:20
-
-
-# **The Sun** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-02-01 12:28:21
-
-
-# **Tangled** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-02-01 12:24:09
-
-
-# **She Will Be Loved - Radio Mix** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-02-01 12:20:51
-
-
-# **Shiver** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-02-01 12:16:31
-
-
-# **This Love** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-02-01 12:13:32
