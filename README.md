@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-07 09:28:50
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-07 09:24:48
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-02-06 21:33:31
+
+
 # **Scoring** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
 📅 2024-02-06 12:30:41
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2024-02-06 12:28:03
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-02-06 12:23:53
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-02-06 12:18:21
