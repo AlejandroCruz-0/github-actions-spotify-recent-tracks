@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-08 16:16:12
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-08 16:12:13
+
+
+# **Sparks** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-02-08 16:06:45
+
+
+# **Spies** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-02-08 16:02:58
+
+
+# **Yellow** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-02-08 10:07:47
+
+
+# **Sparks** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-02-08 10:06:30
+
+
+# **Spies** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-02-08 10:02:43
+
+
+# **Toxic** / Britney Spears
+
+![Foto del album: In The Zone](https://i.scdn.co/image/ab67616d00001e02efc6988972cb04105f002cd4)
+
+**Album:** In The Zone
+
+📅 2024-02-08 09:53:40
+
+
+# **Intergalactic - Remastered 2009** / Beastie Boys
+
+![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
+
+**Album:** Hello Nasty (Deluxe Edition/Remastered)
+
+📅 2024-02-08 09:49:10
+
+
+# **Jackie Cane** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-07 09:28:52
+
+
 # **Waves** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2024-02-06 18:37:08
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-02-06 18:29:41
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-06 13:01:54
-
-
-# **In Your Room** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-02-06 13:01:49
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2024-02-06 12:55:25
-
-
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2024-02-06 12:50:45
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2024-02-06 12:46:06
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-06 12:42:50
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2024-02-06 12:39:02
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-02-06 12:35:02
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-02-06 12:30:41
