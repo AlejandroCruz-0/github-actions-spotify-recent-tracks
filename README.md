@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-02-09 12:42:12
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-02-09 12:42:06
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-02-09 12:36:53
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-02-09 12:31:18
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-02-09 11:55:31
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-02-09 11:45:26
+
+
+# **Figure It Out** / Royal Blood
+
+![Foto del album: Royal Blood](https://i.scdn.co/image/ab67616d00001e0269471a9c0a6073a9beb81410)
+
+**Album:** Royal Blood
+
+📅 2024-02-09 10:27:32
+
+
+# **Young Lady, You're Scaring Me** / Ron Gallo
+
+![Foto del album: HEAVY META](https://i.scdn.co/image/ab67616d00001e024b3a40c50881c54ab610a14d)
+
+**Album:** HEAVY META
+
+📅 2024-02-09 10:25:38
+
+
+# **I Sat by the Ocean** / Queens of the Stone Age
+
+![Foto del album: ...Like Clockwork](https://i.scdn.co/image/ab67616d00001e02a705b56a83b703453d8ddd04)
+
+**Album:** ...Like Clockwork
+
+📅 2024-02-09 10:21:57
+
+
+# **Summer Air** / little hurricane
+
+![Foto del album: Gold Fever](https://i.scdn.co/image/ab67616d00001e02983d0a6a021f21ee8fdefbc3)
+
+**Album:** Gold Fever
+
+📅 2024-02-09 10:18:01
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-02-09 10:15:01
+
+
+# **Gotta Get Away** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-09 10:11:19
+
+
+# **In Our Prime** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-09 10:08:19
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-09 10:02:57
+
+
+# **Runnin' Down A Dream** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-08 16:16:22
+
+
 # **A Face In The Crowd** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** Parachutes
 
 📅 2024-02-08 10:07:47
-
-
-# **Sparks** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-02-08 10:06:30
-
-
-# **Spies** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-02-08 10:02:43
-
-
-# **Toxic** / Britney Spears
-
-![Foto del album: In The Zone](https://i.scdn.co/image/ab67616d00001e02efc6988972cb04105f002cd4)
-
-**Album:** In The Zone
-
-📅 2024-02-08 09:53:40
-
-
-# **Intergalactic - Remastered 2009** / Beastie Boys
-
-![Foto del album: Hello Nasty (Deluxe Edition/Remastered)](https://i.scdn.co/image/ab67616d00001e02ab1d7b56d97842315dd0fdaa)
-
-**Album:** Hello Nasty (Deluxe Edition/Remastered)
-
-📅 2024-02-08 09:49:10
-
-
-# **Jackie Cane** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-07 09:28:52
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-07 09:28:50
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-07 09:24:48
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2024-02-06 21:33:31
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-02-06 21:32:52
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-02-06 21:28:40
-
-
-# **Little L - Remastered** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2024-02-06 19:05:37
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-02-06 18:48:24
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-02-06 18:44:04
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2024-02-06 18:41:26
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-02-06 18:37:08
