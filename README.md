@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Love Lockdown** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2024-02-09 23:57:18
+
+
+# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
+
+![Foto del album: God Willin' & The Creek Don't Rise](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
+
+**Album:** God Willin' & The Creek Don't Rise
+
+📅 2024-02-09 23:49:04
+
+
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+
+**Album:** The Future
+
+📅 2024-02-09 23:45:04
+
+
+# **Fugitive Motel** / Elbow
+
+![Foto del album: Cast Of Thousands (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e023a9c5b341de0decba2483494)
+
+**Album:** Cast Of Thousands (Deluxe Edition)
+
+📅 2024-02-09 23:38:31
+
+
+# **Little Nightmares II (Main Theme)** / Tobias Lilja
+
+![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+
+**Album:** Little Nightmares II (Original Game Soundtrack)
+
+📅 2024-02-09 23:32:39
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2024-02-09 23:29:40
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-02-09 23:23:58
+
+
+# **Tightrope** / LP
+
+![Foto del album: Lost On You](https://i.scdn.co/image/ab67616d00001e02c54bb44453799029379d30c4)
+
+**Album:** Lost On You
+
+📅 2024-02-09 23:20:33
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-09 23:16:52
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-09 23:01:59
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-09 23:00:21
+
+
 # **Scoring** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** ...Like Clockwork
 
 📅 2024-02-09 10:21:57
-
-
-# **Summer Air** / little hurricane
-
-![Foto del album: Gold Fever](https://i.scdn.co/image/ab67616d00001e02983d0a6a021f21ee8fdefbc3)
-
-**Album:** Gold Fever
-
-📅 2024-02-09 10:18:01
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-02-09 10:15:01
-
-
-# **Gotta Get Away** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-02-09 10:11:19
-
-
-# **In Our Prime** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-02-09 10:08:19
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-02-09 10:02:57
-
-
-# **Runnin' Down A Dream** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-02-08 16:16:22
-
-
-# **A Face In The Crowd** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-02-08 16:16:12
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-02-08 16:12:13
-
-
-# **Sparks** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-02-08 16:06:45
-
-
-# **Spies** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-02-08 16:02:58
-
-
-# **Yellow** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-02-08 10:07:47
