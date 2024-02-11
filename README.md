@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **We're In This Together** / Nine Inch Nails
+
+![Foto del album: The Fragile](https://i.scdn.co/image/ab67616d00001e0278b860d90b266bfcd7e4c0be)
+
+**Album:** The Fragile
+
+📅 2024-02-10 13:17:37
+
+
 # **Love Lockdown** / Kanye West
 
 ![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** HEAVY META
 
 📅 2024-02-09 10:25:38
-
-
-# **I Sat by the Ocean** / Queens of the Stone Age
-
-![Foto del album: ...Like Clockwork](https://i.scdn.co/image/ab67616d00001e02a705b56a83b703453d8ddd04)
-
-**Album:** ...Like Clockwork
-
-📅 2024-02-09 10:21:57
