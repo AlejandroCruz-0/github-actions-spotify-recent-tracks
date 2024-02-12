@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** El Camino
 
+📅 2024-02-11 23:44:53
+
+
+# **Gold on the Ceiling** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-02-11 19:33:54
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
 📅 2024-02-11 19:33:41
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nevermind (Remastered)
 
 📅 2024-02-11 14:54:39
-
-
-# **Little Beast** / Elbow
-
-![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
-
-**Album:** Asleep In The Back (Deluxe Edition)
-
-📅 2024-02-11 14:48:53
-
-
-# **Red** / Elbow
-
-![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
-
-**Album:** Asleep In The Back (Deluxe Edition)
-
-📅 2024-02-11 14:44:37
