@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **We're In This Together** / Nine Inch Nails
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: The Fragile](https://i.scdn.co/image/ab67616d00001e0278b860d90b266bfcd7e4c0be)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** The Fragile
+**Album:** El Camino
 
-📅 2024-02-10 13:17:37
+📅 2024-02-11 19:33:41
 
 
-# **Love Lockdown** / Kanye West
+# **Do You Believe** / The Cardigans
 
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** 808s & Heartbreak
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-02-09 23:57:18
+📅 2024-02-11 19:30:02
 
 
-# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: God Willin' & The Creek Don't Rise](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** God Willin' & The Creek Don't Rise
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-02-09 23:49:04
+📅 2024-02-11 19:11:18
 
 
-# **Closing Time** / Leonard Cohen
+# **Starter** / The Cardigans
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** The Future
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-02-09 23:45:04
+📅 2024-02-11 19:07:26
 
 
-# **Fugitive Motel** / Elbow
+# **Explode** / The Cardigans
 
-![Foto del album: Cast Of Thousands (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e023a9c5b341de0decba2483494)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Cast Of Thousands (Deluxe Edition)
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-02-09 23:38:31
+📅 2024-02-11 19:03:33
 
 
-# **Little Nightmares II (Main Theme)** / Tobias Lilja
+# **Erase / Rewind** / The Cardigans
 
-![Foto del album: Little Nightmares II (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e0272feca5d2c710e76a7bd1615)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Little Nightmares II (Original Game Soundtrack)
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-02-09 23:32:39
+📅 2024-02-11 18:58:38
 
 
-# **Criminal** / Fiona Apple
+# **Handy** / "Weird Al" Yankovic
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: Mandatory Fun](https://i.scdn.co/image/ab67616d00001e0277dd64257131e476a6d32e4f)
 
-**Album:** Tidal
+**Album:** Mandatory Fun
 
-📅 2024-02-09 23:29:40
+📅 2024-02-11 18:54:47
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Crazy For You** / Adele
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
 
-**Album:** Bueninvento
+**Album:** 19
 
-📅 2024-02-09 23:23:58
+📅 2024-02-11 18:51:10
 
 
-# **Tightrope** / LP
+# **Cold Shoulder** / Adele
 
-![Foto del album: Lost On You](https://i.scdn.co/image/ab67616d00001e02c54bb44453799029379d30c4)
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
 
-**Album:** Lost On You
+**Album:** 19
 
-📅 2024-02-09 23:20:33
+📅 2024-02-11 18:47:43
 
 
-# **Fever** / The Black Keys
+# **Where I Belong** / Nobuo Uematsu
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
 
-**Album:** Turn Blue
+**Album:** FINAL FANTASY VIII Original Soundtrack
 
-📅 2024-02-09 23:16:52
+📅 2024-02-11 17:28:20
 
 
-# **Mad About You** / Hooverphonic
+# **ODEKA ke Chocobo** / Nobuo Uematsu
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
 
-**Album:** The Magnificent Tree
+**Album:** FINAL FANTASY VIII Original Soundtrack
 
-📅 2024-02-09 23:01:59
+📅 2024-02-11 17:24:39
 
 
-# **Mad About You** / Hooverphonic
+# **Fisherman's Horizon** / Nobuo Uematsu
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
 
-**Album:** The Magnificent Tree
+**Album:** FINAL FANTASY VIII Original Soundtrack
 
-📅 2024-02-09 23:00:21
+📅 2024-02-11 17:23:24
 
 
-# **Scoring** / bôa
+# **Balamb GARDEN** / Nobuo Uematsu
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
 
-**Album:** Twilight
+**Album:** FINAL FANTASY VIII Original Soundtrack
 
-📅 2024-02-09 12:42:12
+📅 2024-02-11 17:17:56
 
 
-# **Judas** / Depeche Mode
+# **Liberi Fatali** / Nobuo Uematsu
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** FINAL FANTASY VIII Original Soundtrack
 
-📅 2024-02-09 12:42:06
+📅 2024-02-11 17:14:27
 
 
-# **Holy Ghost** / Bent Knee
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Land Animal
+**Album:** Full Moon Fever
 
-📅 2024-02-09 12:36:53
+📅 2024-02-11 16:40:17
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Fortunate Son** / Creedence Clearwater Revival
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Willy And The Poor Boys (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e029f39192f9f8ca1c90847b3e5)
 
-**Album:** Bueninvento
+**Album:** Willy And The Poor Boys (Expanded Edition)
 
-📅 2024-02-09 12:31:18
+📅 2024-02-11 16:36:09
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **In Bloom** / Nirvana
 
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** The Very Best of Daryl Hall / John Oates
+**Album:** Nevermind (Remastered)
 
-📅 2024-02-09 11:55:31
+📅 2024-02-11 14:58:54
 
 
-# **Scoring** / bôa
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Twilight
+**Album:** Nevermind (Remastered)
 
-📅 2024-02-09 11:45:26
+📅 2024-02-11 14:54:39
 
 
-# **Figure It Out** / Royal Blood
+# **Little Beast** / Elbow
 
-![Foto del album: Royal Blood](https://i.scdn.co/image/ab67616d00001e0269471a9c0a6073a9beb81410)
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
 
-**Album:** Royal Blood
+**Album:** Asleep In The Back (Deluxe Edition)
 
-📅 2024-02-09 10:27:32
+📅 2024-02-11 14:48:53
 
 
-# **Young Lady, You're Scaring Me** / Ron Gallo
+# **Red** / Elbow
 
-![Foto del album: HEAVY META](https://i.scdn.co/image/ab67616d00001e024b3a40c50881c54ab610a14d)
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
 
-**Album:** HEAVY META
+**Album:** Asleep In The Back (Deluxe Edition)
 
-📅 2024-02-09 10:25:38
+📅 2024-02-11 14:44:37
