@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
+📅 2024-02-12 23:16:34
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-12 23:00:29
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
 📅 2024-02-12 15:56:37
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gran Turismo (Remastered)
 
 📅 2024-02-11 19:11:18
-
-
-# **Starter** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-02-11 19:07:26
-
-
-# **Explode** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-02-11 19:03:33
