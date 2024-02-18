@@ -19,6 +19,132 @@ Nombre: **lotario1999**
 
 **Album:** 19
 
+📅 2024-02-17 21:34:58
+
+
+# **No Surprises - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 12:03:52
+
+
+# **Climbing Up the Walls - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 12:00:03
+
+
+# **Electioneering - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:55:19
+
+
+# **Fitter Happier - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:51:28
+
+
+# **Karma Police - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:49:30
+
+
+# **Let Down - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:45:09
+
+
+# **Exit Music (For A Film) - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:40:10
+
+
+# **Subterranean Homesick Alien - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:35:44
+
+
+# **Paranoid Android - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:31:16
+
+
+# **Airbag - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 11:24:51
+
+
+# **Crazy For You** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-17 11:13:15
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-17 11:13:06
+
+
+# **Crazy For You** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-16 14:39:18
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
 📅 2024-02-16 14:26:42
 
 
@@ -65,129 +191,3 @@ Nombre: **lotario1999**
 **Album:** 19
 
 📅 2024-02-16 13:00:31
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 12:57:07
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 12:53:39
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-15 13:31:09
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-02-15 13:31:02
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-02-15 13:26:26
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-15 13:21:20
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
-
-**Album:** Blue Wonder Power Milk
-
-📅 2024-02-15 12:10:15
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-02-15 12:07:26
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2024-02-15 12:02:17
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-15 10:33:26
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-15 10:31:15
-
-
-# **Suddenly** / Junip
-
-![Foto del album: Junip](https://i.scdn.co/image/ab67616d00001e02eaff1784d05f5be2773c59e8)
-
-**Album:** Junip
-
-📅 2024-02-15 09:20:59
-
-
-# **Line of Fire** / Junip
-
-![Foto del album: Junip](https://i.scdn.co/image/ab67616d00001e02eaff1784d05f5be2773c59e8)
-
-**Album:** Junip
-
-📅 2024-02-15 09:19:12
-
-
-# **Line of Fire** / Junip
-
-![Foto del album: Junip](https://i.scdn.co/image/ab67616d00001e02eaff1784d05f5be2773c59e8)
-
-**Album:** Junip
-
-📅 2024-02-15 01:22:14
