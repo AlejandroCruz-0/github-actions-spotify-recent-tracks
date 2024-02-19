@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **You Gain Something Too** / Christopher Bear|Daniel Rossen
+
+![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
+
+**Album:** Past Lives (Original Motion Picture Soundtrack)
+
+📅 2024-02-18 13:02:11
+
+
+# **Crossing** / Christopher Bear|Daniel Rossen
+
+![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
+
+**Album:** Past Lives (Original Motion Picture Soundtrack)
+
+📅 2024-02-18 13:01:05
+
+
+# **If You Leave Something Behind** / Christopher Bear|Daniel Rossen
+
+![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
+
+**Album:** Past Lives (Original Motion Picture Soundtrack)
+
+📅 2024-02-18 12:59:36
+
+
+# **Crazy For You** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-18 12:52:19
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-18 10:50:30
+
+
 # **Cold Shoulder** / Adele
 
 ![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
@@ -20,6 +65,15 @@ Nombre: **lotario1999**
 **Album:** 19
 
 📅 2024-02-17 21:34:58
+
+
+# **Lucky - Remastered** / Radiohead
+
+![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
+
+**Album:** OK Computer OKNOTOK 1997 2017
+
+📅 2024-02-17 12:07:04
 
 
 # **No Surprises - Remastered** / Radiohead
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** 19
 
 📅 2024-02-16 14:39:18
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 14:26:42
-
-
-# **My Same** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 13:11:19
-
-
-# **Make You Feel My Love** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 13:10:30
-
-
-# **Right As Rain** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 13:06:58
-
-
-# **First Love** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 13:03:41
-
-
-# **Melt My Heart to Stone** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-16 13:00:31
