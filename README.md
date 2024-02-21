@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-20 16:03:04
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-20 15:56:51
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2024-02-20 00:31:00
+
+
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** 19
 
 📅 2024-02-18 10:52:51
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-18 10:50:30
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-17 21:34:58
-
-
-# **Lucky - Remastered** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2024-02-17 12:07:04
