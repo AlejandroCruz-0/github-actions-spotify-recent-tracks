@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-20 16:06:22
+
+
 # **Love Is A Long Road** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** 19
 
 📅 2024-02-18 12:52:19
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-18 10:52:51
