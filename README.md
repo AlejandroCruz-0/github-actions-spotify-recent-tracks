@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **R U Mine?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2024-02-22 12:49:34
+
+
+# **Do I Wanna Know?** / Arctic Monkeys
+
+![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
+
+**Album:** AM
+
+📅 2024-02-22 12:47:25
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-22 12:41:59
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-02-22 12:09:37
+
+
+# **It's Up to You Now** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-22 11:39:44
+
+
+# **Bullet in the Brain** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-22 11:39:42
+
+
+# **Year in Review** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-22 11:35:26
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-02-22 11:31:37
+
+
 # **A Face In The Crowd** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** OK Computer OKNOTOK 1997 2017
 
 📅 2024-02-18 22:52:34
-
-
-# **I Promise** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2024-02-18 22:48:05
-
-
-# **Man of War** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2024-02-18 22:43:23
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-18 22:37:06
-
-
-# **Do You Remember me** / Christopher Bear|Daniel Rossen
-
-![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
-
-**Album:** Past Lives (Original Motion Picture Soundtrack)
-
-📅 2024-02-18 18:42:21
-
-
-# **You Gain Something Too** / Christopher Bear|Daniel Rossen
-
-![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
-
-**Album:** Past Lives (Original Motion Picture Soundtrack)
-
-📅 2024-02-18 13:02:11
-
-
-# **Crossing** / Christopher Bear|Daniel Rossen
-
-![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
-
-**Album:** Past Lives (Original Motion Picture Soundtrack)
-
-📅 2024-02-18 13:01:05
-
-
-# **If You Leave Something Behind** / Christopher Bear|Daniel Rossen
-
-![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
-
-**Album:** Past Lives (Original Motion Picture Soundtrack)
-
-📅 2024-02-18 12:59:36
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-02-18 12:52:19
