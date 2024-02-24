@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-24 00:22:59
+
+
 # **R U Mine?** / Arctic Monkeys
 
 ![Foto del album: AM](https://i.scdn.co/image/ab67616d00001e024ae1c4c5c45aabe565499163)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** OK Computer OKNOTOK 1997 2017
 
 📅 2024-02-18 22:52:48
-
-
-# **Man of War** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2024-02-18 22:52:34
