@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2024-02-25 09:27:18
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2024-02-25 09:22:05
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-02-25 09:17:26
+
+
+# **Crazy For You** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-02-24 00:25:18
+
+
 # **Cold Shoulder** / Adele
 
 ![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2024-02-20 00:22:33
-
-
-# **Do You Remember me** / Christopher Bear|Daniel Rossen
-
-![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
-
-**Album:** Past Lives (Original Motion Picture Soundtrack)
-
-📅 2024-02-20 00:16:45
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-19 11:34:23
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-19 11:33:42
-
-
-# **Lift** / Radiohead
-
-![Foto del album: OK Computer OKNOTOK 1997 2017](https://i.scdn.co/image/ab67616d00001e02ee58b8ce747da91d69a862cc)
-
-**Album:** OK Computer OKNOTOK 1997 2017
-
-📅 2024-02-18 22:52:48
