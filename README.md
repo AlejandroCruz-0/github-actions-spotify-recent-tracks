@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Spies** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-03-02 09:39:26
+
+
 # **Crazy For You** / Adele
 
 ![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs About Jane: 10th Anniversary Edition
 
 📅 2024-02-29 11:19:00
-
-
-# **Little Black Submarines** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-02-29 11:00:06
