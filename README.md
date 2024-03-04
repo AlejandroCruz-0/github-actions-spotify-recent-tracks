@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-03-04 08:46:34
+
+
+# **Erase / Rewind** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2024-03-04 00:29:27
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-03-04 00:29:21
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-03-04 00:25:37
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-03-03 21:28:10
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2024-02-29 12:27:33
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-02-29 12:21:59
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2024-02-29 12:16:28
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: MAD](https://i.scdn.co/image/ab67616d00001e02d6bf5a458943ad6865c5495e)
-
-**Album:** MAD
-
-📅 2024-02-29 12:14:43
-
-
-# **The Magnificent Tree** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-02-29 12:11:56
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-02-29 12:08:01
