@@ -31,6 +31,15 @@ Nombre: **lotario1999**
 📅 2024-03-10 23:14:02
 
 
+# **Freakonomics** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2024-03-10 17:22:17
+
+
 # **Let a Poor Man Be** / Clutch
 
 ![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Women in Technology
 
 📅 2024-03-07 19:22:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-03-07 19:19:49
