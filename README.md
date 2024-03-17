@@ -13,58 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Let a Poor Man Be** / Clutch
+# **First Love/Late Spring** / Mitski
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
 
-**Album:** Strange Cousins From the West
+**Album:** Bury Me At Makeout Creek
 
-📅 2024-03-14 09:27:34
-
-
-# **Freakonomics** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2024-03-13 23:46:03
+📅 2024-03-16 15:15:08
 
 
-# **Let a Poor Man Be** / Clutch
+# **Insides In** / Bent Knee
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Strange Cousins From the West
+**Album:** Land Animal
 
-📅 2024-03-13 23:44:26
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-03-13 10:34:12
+📅 2024-03-16 15:10:29
 
 
-# **Fortunate Son** / Creedence Clearwater Revival
+# **Will Do** / TV On The Radio
 
-![Foto del album: Willy And The Poor Boys (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e029f39192f9f8ca1c90847b3e5)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Willy And The Poor Boys (Expanded Edition)
+**Album:** Nine Types of Light
 
-📅 2024-03-13 10:30:11
+📅 2024-03-16 15:03:58
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Bueninvento
 
-📅 2024-03-13 10:26:38
+📅 2024-03-16 15:00:13
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-03-16 14:56:47
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2024-03-16 14:52:41
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2024-03-16 14:48:48
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2024-03-16 14:44:57
 
 
 # **Mad About You** / Hooverphonic
@@ -73,121 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-03-13 10:20:35
+📅 2024-03-16 14:40:31
 
 
-# **Your Woman** / White Town
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Women in Technology
+**Album:** Land Animal
 
-📅 2024-03-13 10:16:50
+📅 2024-03-16 14:36:46
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Child Of Vision - 2010 Remastered** / Supertramp
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Full Moon Fever
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-13 10:11:08
+📅 2024-03-16 14:25:31
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Casual Conversations - 2010 Remastered** / Supertramp
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Full Moon Fever
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-13 10:06:15
+📅 2024-03-16 14:18:00
 
 
-# **Year in Review** / The Black Keys
+# **Just Another Nervous Wreck - 2010 Remastered** / Supertramp
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Turn Blue
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-13 09:36:32
+📅 2024-03-16 14:15:02
 
 
-# **Fever** / The Black Keys
+# **Lord Is It Mine - 2010 Remastered** / Supertramp
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Turn Blue
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-13 09:35:53
+📅 2024-03-16 14:10:35
 
 
-# **Minotaur** / Clutch
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Strange Cousins From the West
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-12 08:59:26
+📅 2024-03-16 14:06:26
 
 
-# **Abraham Lincoln** / Clutch
+# **Oh Darling - 2010 Remastered** / Supertramp
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Strange Cousins From the West
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-12 08:59:18
+📅 2024-03-16 14:01:17
 
 
-# **50,000 Unstoppable Watts** / Clutch
+# **Breakfast In America - 2010 Remastered** / Supertramp
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Strange Cousins From the West
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-12 08:53:20
+📅 2024-03-16 13:57:14
 
 
-# **Struck Down** / Clutch
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Strange Cousins From the West
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-12 08:49:05
+📅 2024-03-16 13:54:35
 
 
-# **Let a Poor Man Be** / Clutch
+# **The Logical Song - Remastered 2010** / Supertramp
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Strange Cousins From the West
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-12 08:44:14
+📅 2024-03-16 13:47:26
 
 
-# **Fever** / The Black Keys
+# **Gone Hollywood - 2010 Remastered** / Supertramp
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Turn Blue
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-03-11 11:36:20
-
-
-# **Freakonomics** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2024-03-11 00:31:05
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2024-03-10 23:14:02
+📅 2024-03-16 13:40:55
