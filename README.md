@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **First Love/Late Spring** / Mitski
+# **Avalanches** / Caravan Palace
 
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Bury Me At Makeout Creek
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 15:15:08
+📅 2024-03-18 11:07:23
 
 
-# **Insides In** / Bent Knee
+# **Raccoons** / Caravan Palace
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Land Animal
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 15:10:29
+📅 2024-03-18 11:03:14
 
 
-# **Will Do** / TV On The Radio
+# **81 Special** / Caravan Palace
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Nine Types of Light
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 15:03:58
+📅 2024-03-18 10:59:46
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Mirrors** / Caravan Palace
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Bueninvento
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 15:00:13
+📅 2024-03-18 10:55:49
 
 
-# **Fever** / The Black Keys
+# **MAD** / Caravan Palace
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Turn Blue
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 14:56:47
+📅 2024-03-18 10:52:08
 
 
-# **Congregation** / Low
+# **81 Special** / Caravan Palace
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Ones and Sixes
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 14:52:41
+📅 2024-03-18 10:49:07
 
 
-# **I Love You** / Woodkid
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** The Golden Age
+**Album:** <I°_°I>
 
-📅 2024-03-16 14:48:48
+📅 2024-03-18 10:45:11
 
 
-# **Oh I Wept** / Free
+# **Empires** / The Electric Swing Circus
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
 
-**Album:** Fire And Water
+**Album:** It Flew By
 
-📅 2024-03-16 14:44:57
+📅 2024-03-18 10:40:59
 
 
-# **Mad About You** / Hooverphonic
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** The Magnificent Tree
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-03-16 14:40:31
+📅 2024-03-18 10:37:48
 
 
-# **Holy Ghost** / Bent Knee
+# **MAD** / Caravan Palace
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Land Animal
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-16 14:36:46
+📅 2024-03-18 10:34:19
 
 
-# **Child Of Vision - 2010 Remastered** / Supertramp
+# **Your Woman** / White Town
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Women in Technology
 
-📅 2024-03-16 14:25:31
+📅 2024-03-18 10:27:33
 
 
-# **Casual Conversations - 2010 Remastered** / Supertramp
+# **Somebody In My Home** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 14:18:00
+📅 2024-03-18 10:22:14
 
 
-# **Just Another Nervous Wreck - 2010 Remastered** / Supertramp
+# **Forty Four** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 14:15:02
+📅 2024-03-18 10:19:47
 
 
-# **Lord Is It Mine - 2010 Remastered** / Supertramp
+# **I Asked For Water** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 14:10:35
+📅 2024-03-18 10:16:57
 
 
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
+# **Moanin' For My Baby** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 14:06:26
+📅 2024-03-18 10:14:04
 
 
-# **Oh Darling - 2010 Remastered** / Supertramp
+# **I'm Leavin You** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 14:01:17
+📅 2024-03-18 10:11:13
 
 
-# **Breakfast In America - 2010 Remastered** / Supertramp
+# **Evil (Is Going On)** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 13:57:14
+📅 2024-03-18 10:08:13
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **All Night Boogie (All Night Long)** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 13:54:35
+📅 2024-03-18 10:05:18
 
 
-# **The Logical Song - Remastered 2010** / Supertramp
+# **No Place To Go (You Gonna Wreck My Life)** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 13:47:26
+📅 2024-03-18 10:03:02
 
 
-# **Gone Hollywood - 2010 Remastered** / Supertramp
+# **Baby How Long** / Howlin' Wolf
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Moanin' In The Moonlight
 
-📅 2024-03-16 13:40:55
+📅 2024-03-18 10:00:05
