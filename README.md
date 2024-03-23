@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **81 Special** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-03-23 09:13:19
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-03-23 09:09:23
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-03-23 09:05:41
+
+
 # **Reverse** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Moanin' In The Moonlight
 
 📅 2024-03-18 10:11:13
-
-
-# **Evil (Is Going On)** / Howlin' Wolf
-
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
-
-**Album:** Moanin' In The Moonlight
-
-📅 2024-03-18 10:08:13
-
-
-# **All Night Boogie (All Night Long)** / Howlin' Wolf
-
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
-
-**Album:** Moanin' In The Moonlight
-
-📅 2024-03-18 10:05:18
-
-
-# **No Place To Go (You Gonna Wreck My Life)** / Howlin' Wolf
-
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
-
-**Album:** Moanin' In The Moonlight
-
-📅 2024-03-18 10:03:02
