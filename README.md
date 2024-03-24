@@ -13,13 +13,49 @@ Nombre: **lotario1999**
 
 
 
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-03-23 14:18:35
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-03-23 14:08:26
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2024-03-23 14:04:16
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-03-23 13:59:10
+
+
 # **81 Special** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-03-23 09:13:19
+📅 2024-03-23 13:53:21
 
 
 # **Mirrors** / Caravan Palace
@@ -28,43 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-03-23 09:09:23
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-23 09:05:41
-
-
-# **Reverse** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-18 11:23:12
-
-
-# **Avalanches** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-18 11:07:23
-
-
-# **Raccoons** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-18 11:03:14
+📅 2024-03-23 13:49:04
 
 
 # **81 Special** / Caravan Palace
@@ -73,121 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-03-18 10:59:46
+📅 2024-03-23 13:45:23
 
 
-# **Mirrors** / Caravan Palace
+# **Year in Review** / The Black Keys
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Gangbusters Melody Club
+**Album:** Turn Blue
 
-📅 2024-03-18 10:55:49
+📅 2024-03-23 12:32:36
 
 
-# **MAD** / Caravan Palace
+# **MONTERO (Call Me By Your Name)** / Lil Nas X
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: MONTERO (Call Me By Your Name)](https://i.scdn.co/image/ab67616d00001e02664034dd80e91b28f773598d)
 
-**Album:** Gangbusters Melody Club
+**Album:** MONTERO (Call Me By Your Name)
 
-📅 2024-03-18 10:52:08
+📅 2024-03-23 12:14:37
 
 
-# **81 Special** / Caravan Palace
+# **Points of Authority** / Linkin Park
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
 
-**Album:** Gangbusters Melody Club
+**Album:** Hybrid Theory (Bonus Edition)
 
-📅 2024-03-18 10:49:07
+📅 2024-03-23 12:04:27
 
 
-# **Lone Digger** / Caravan Palace
+# **I Get Overwhelmed** / Dark Rooms
 
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+![Foto del album: Distraction Sickness](https://i.scdn.co/image/ab67616d00001e024c4eee160cbe476369bfc458)
 
-**Album:** <I°_°I>
+**Album:** Distraction Sickness
 
-📅 2024-03-18 10:45:11
+📅 2024-03-23 12:01:06
 
 
-# **Empires** / The Electric Swing Circus
+# **Map of Your Head** / Muse
 
-![Foto del album: It Flew By](https://i.scdn.co/image/ab67616d00001e021a88df8b9c4b0dce51054ea1)
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
 
-**Album:** It Flew By
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
 
-📅 2024-03-18 10:40:59
+📅 2024-03-23 11:56:04
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **A Girl Like You** / Edwyn Collins
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Gorgeous George](https://i.scdn.co/image/ab67616d00001e0251893e443844361a44675df4)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Gorgeous George
 
-📅 2024-03-18 10:37:48
+📅 2024-03-23 11:51:41
 
 
-# **MAD** / Caravan Palace
+# **The Passenger** / Iggy Pop
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
 
-**Album:** Gangbusters Melody Club
+**Album:** Lust For Life
 
-📅 2024-03-18 10:34:19
+📅 2024-03-23 11:47:40
 
 
-# **Your Woman** / White Town
+# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
 
-**Album:** Women in Technology
+**Album:** iv
 
-📅 2024-03-18 10:27:33
+📅 2024-03-23 11:42:57
 
 
-# **Somebody In My Home** / Howlin' Wolf
+# **Just Communication** / TWO-MIX
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: MOBILE SUIT GUNDAM WING Original Motion Picture Soundtrack - Operation 1](https://i.scdn.co/image/ab67616d00001e024db0de6a61658135e4282fc7)
 
-**Album:** Moanin' In The Moonlight
+**Album:** MOBILE SUIT GUNDAM WING Original Motion Picture Soundtrack - Operation 1
 
-📅 2024-03-18 10:22:14
+📅 2024-03-23 11:39:04
 
 
-# **Forty Four** / Howlin' Wolf
+# **My Body Is a Cage** / Arcade Fire
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: Neon Bible](https://i.scdn.co/image/ab67616d00001e029e0e42aa866e5fa167b19608)
 
-**Album:** Moanin' In The Moonlight
+**Album:** Neon Bible
 
-📅 2024-03-18 10:19:47
+📅 2024-03-23 11:34:35
 
 
-# **I Asked For Water** / Howlin' Wolf
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Moanin' In The Moonlight
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-03-18 10:16:57
+📅 2024-03-23 11:29:47
 
 
-# **Moanin' For My Baby** / Howlin' Wolf
+# **This fffire - New Version** / Franz Ferdinand
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
 
-**Album:** Moanin' In The Moonlight
+**Album:** This fffire
 
-📅 2024-03-18 10:14:04
+📅 2024-03-23 11:26:03
 
 
-# **I'm Leavin You** / Howlin' Wolf
+# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
 
-**Album:** Moanin' In The Moonlight
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
 
-📅 2024-03-18 10:11:13
+📅 2024-03-23 11:22:10
