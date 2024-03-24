@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Raccoons** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-03-23 23:21:50
+
+
+# **81 Special** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-03-23 23:07:29
+
+
 # **Out of Touch** / Daryl Hall & John Oates
 
 ![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
 📅 2024-03-23 11:29:47
-
-
-# **This fffire - New Version** / Franz Ferdinand
-
-![Foto del album: This fffire](https://i.scdn.co/image/ab67616d00001e0244fadeb140014c49e807c468)
-
-**Album:** This fffire
-
-📅 2024-03-23 11:26:03
-
-
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
-
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
-
-📅 2024-03-23 11:22:10
