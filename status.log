@@ -1207,3 +1207,4 @@ For more information check: https://httpstatuses.com/503
 2024-03-26 00:36:20,622 - __main__ - INFO - Operación completada
 2024-03-26 12:14:35,963 - __main__ - ERROR - Server error '500 Internal Server Error' for url 'https://api.spotify.com/v1/me/player/recently-played'
 For more information check: https://httpstatuses.com/500
+2024-03-27 00:36:08,717 - __main__ - INFO - Operación completada

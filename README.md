@@ -13,58 +13,139 @@ Nombre: **lotario1999**
 
 
 
-# **Raccoons** / Caravan Palace
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Gangbusters Melody Club
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-03-23 23:21:50
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-23 23:07:29
+📅 2024-03-26 12:10:00
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **Medication (2018 - Remaster)** / Garbage
 
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** The Very Best of Daryl Hall / John Oates
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-03-23 14:18:35
+📅 2024-03-26 12:06:17
 
 
-# **Scoring** / bôa
+# **When I Grow Up (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-03-26 12:01:59
+
+
+# **I Think I'm Paranoid (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-03-26 11:58:34
+
+
+# **Temptation Waits (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-03-26 11:54:56
+
+
+# **Enemy feat. J.I.D. (from the series Arcane League of Legends)** / Imagine Dragons|JID
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2024-03-26 11:45:46
+
+
+# **砂糖玉の月** / yanaginagi
+
+![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e02b4563e403bb37cc2bca3cfee)
+
+**Album:** ナッテ
+
+📅 2024-03-26 11:42:37
+
+
+# **Duvet** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2024-03-23 14:08:26
+📅 2024-03-26 11:37:47
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **In Bloom** / Nirvana
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Synkronized
+**Album:** Nevermind (Remastered)
 
-📅 2024-03-23 14:04:16
+📅 2024-03-26 11:34:15
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Tightrope** / LP
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Lost On You](https://i.scdn.co/image/ab67616d00001e02c54bb44453799029379d30c4)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Lost On You
 
-📅 2024-03-23 13:59:10
+📅 2024-03-26 11:30:00
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2024-03-26 11:22:57
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-03-26 11:18:18
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-03-26 11:11:48
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-03-26 11:08:02
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-03-26 11:04:24
 
 
 # **81 Special** / Caravan Palace
@@ -73,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-03-23 13:53:21
+📅 2024-03-26 10:59:56
 
 
 # **Mirrors** / Caravan Palace
@@ -82,7 +163,16 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-03-23 13:49:04
+📅 2024-03-26 10:16:20
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-03-26 10:02:41
 
 
 # **81 Special** / Caravan Palace
@@ -91,103 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-03-23 13:45:23
+📅 2024-03-26 09:59:37
 
 
-# **Year in Review** / The Black Keys
+# **Raccoons** / Caravan Palace
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Turn Blue
+**Album:** Gangbusters Melody Club
 
-📅 2024-03-23 12:32:36
-
-
-# **MONTERO (Call Me By Your Name)** / Lil Nas X
-
-![Foto del album: MONTERO (Call Me By Your Name)](https://i.scdn.co/image/ab67616d00001e02664034dd80e91b28f773598d)
-
-**Album:** MONTERO (Call Me By Your Name)
-
-📅 2024-03-23 12:14:37
-
-
-# **Points of Authority** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-03-23 12:04:27
-
-
-# **I Get Overwhelmed** / Dark Rooms
-
-![Foto del album: Distraction Sickness](https://i.scdn.co/image/ab67616d00001e024c4eee160cbe476369bfc458)
-
-**Album:** Distraction Sickness
-
-📅 2024-03-23 12:01:06
-
-
-# **Map of Your Head** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-03-23 11:56:04
-
-
-# **A Girl Like You** / Edwyn Collins
-
-![Foto del album: Gorgeous George](https://i.scdn.co/image/ab67616d00001e0251893e443844361a44675df4)
-
-**Album:** Gorgeous George
-
-📅 2024-03-23 11:51:41
-
-
-# **The Passenger** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2024-03-23 11:47:40
-
-
-# **NEXUS <PODv>** / SawanoHiroyuki[nZk]|Laco
-
-![Foto del album: iv](https://i.scdn.co/image/ab67616d00001e0270e7363795cd4644087bd510)
-
-**Album:** iv
-
-📅 2024-03-23 11:42:57
-
-
-# **Just Communication** / TWO-MIX
-
-![Foto del album: MOBILE SUIT GUNDAM WING Original Motion Picture Soundtrack - Operation 1](https://i.scdn.co/image/ab67616d00001e024db0de6a61658135e4282fc7)
-
-**Album:** MOBILE SUIT GUNDAM WING Original Motion Picture Soundtrack - Operation 1
-
-📅 2024-03-23 11:39:04
-
-
-# **My Body Is a Cage** / Arcade Fire
-
-![Foto del album: Neon Bible](https://i.scdn.co/image/ab67616d00001e029e0e42aa866e5fa167b19608)
-
-**Album:** Neon Bible
-
-📅 2024-03-23 11:34:35
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-03-23 11:29:47
+📅 2024-03-23 23:21:50
