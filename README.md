@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** The Shocking Miss Emerald (The Remixes)
 
+📅 2024-04-01 09:37:49
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-01 09:33:56
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
 📅 2024-04-01 08:43:14
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nevermind (Remastered)
 
 📅 2024-03-29 21:38:24
-
-
-# **Breed** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-03-29 21:34:07
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-03-29 21:31:04
