@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Sparks** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-04-03 08:47:18
+
+
+# **Spies** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
+
+**Album:** Parachutes
+
+📅 2024-04-03 08:43:31
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-04-03 08:37:53
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+
+**Album:** 19
+
+📅 2024-04-03 08:34:05
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-03 08:30:17
+
+
+# **Avalanches** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-03 08:25:37
+
+
+# **Reverse** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-02 09:57:39
+
+
 # **Avalanches** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gangbusters Melody Club
 
 📅 2024-03-31 11:17:27
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-31 11:14:45
-
-
-# **Clash** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-03-30 08:46:24
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-03-30 08:36:07
-
-
-# **Mirrors** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-30 08:32:26
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-30 08:28:44
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-30 08:25:40
-
-
-# **Avalanches** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-03-30 08:21:45
