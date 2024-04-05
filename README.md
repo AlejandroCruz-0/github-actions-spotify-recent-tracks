@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **White Town** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-05 09:10:23
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-05 09:07:59
+
+
+# **Fool** / Caravan Palace
+
+![Foto del album: Fool](https://i.scdn.co/image/ab67616d00001e02b7f773c257bd6f9e93f12c86)
+
+**Album:** Fool
+
+📅 2024-04-05 09:03:37
+
+
+# **Spirits** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-05 08:58:52
+
+
+# **Fool** / Caravan Palace
+
+![Foto del album: Fool](https://i.scdn.co/image/ab67616d00001e02b7f773c257bd6f9e93f12c86)
+
+**Album:** Fool
+
+📅 2024-04-05 08:54:20
+
+
+# **Hybrid** / Swingrowers
+
+![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+
+**Album:** Hybrid
+
+📅 2024-04-04 18:05:04
+
+
 # **Lost In The Rhythm** / Jamie Berry|Octavia Rose
 
 ![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Shocking Miss Emerald (The Remixes)
 
 📅 2024-04-04 13:53:19
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-04 12:21:58
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-04 12:21:27
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-04 12:17:35
-
-
-# **White Town** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-04-04 12:14:08
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-04-04 12:08:05
-
-
-# **A Face In The Crowd** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-04-04 09:53:57
