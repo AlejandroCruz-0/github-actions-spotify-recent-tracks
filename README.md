@@ -13,148 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **Avalanches** / Caravan Palace
+# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
+
+![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
+
+**Album:** Lost In The Rhythm
+
+📅 2024-04-04 17:54:42
+
+
+# **Villa Rose** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-04 08:35:32
+📅 2024-04-04 17:51:36
 
 
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-03 17:15:41
-
-
-# **Think I'm In Love** / Beck
-
-![Foto del album: The Information](https://i.scdn.co/image/ab67616d00001e02fa3dee3e3cc0aaef443f8e6e)
-
-**Album:** The Information
-
-📅 2024-04-03 11:13:31
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-03 10:38:08
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-03 10:34:05
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-03 10:30:24
-
-
-# **Mirrors** / Caravan Palace
+# **City Cook** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-03 10:22:33
+📅 2024-04-04 17:47:32
 
 
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-04-03 10:18:52
-
-
-# **Avalanches** / Caravan Palace
+# **Portobello** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-03 10:15:58
+📅 2024-04-04 17:44:07
 
 
-# **Yellow** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-04-03 09:32:19
-
-
-# **Sparks** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-04-03 08:47:18
-
-
-# **Spies** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e023d92b2ad5af9fbc8637425f0)
-
-**Album:** Parachutes
-
-📅 2024-04-03 08:43:31
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-04-03 08:37:53
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2024-04-03 08:34:05
-
-
-# **Mirrors** / Caravan Palace
+# **Blonde Dynamite** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-03 08:30:17
+📅 2024-04-04 17:41:26
 
 
-# **Avalanches** / Caravan Palace
+# **Spirits** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-03 08:25:37
+📅 2024-04-04 17:37:35
+
+
+# **Fool** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-04 17:33:42
 
 
 # **Reverse** / Caravan Palace
@@ -163,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-02 09:57:39
+📅 2024-04-04 17:30:11
 
 
 # **Avalanches** / Caravan Palace
@@ -172,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-02 09:18:34
+📅 2024-04-04 17:26:09
 
 
 # **Raccoons** / Caravan Palace
@@ -181,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-02 09:14:25
+📅 2024-04-04 17:22:00
 
 
 # **81 Special** / Caravan Palace
@@ -190,4 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-02 09:10:20
+📅 2024-04-04 17:18:31
+
+
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-04 14:00:34
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-04 13:56:55
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-04 13:53:19
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-04 12:21:58
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-04 12:21:27
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-04 12:17:35
+
+
+# **White Town** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-04 12:14:08
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-04 12:08:05
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-04-04 09:53:57
