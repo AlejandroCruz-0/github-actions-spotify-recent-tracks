@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **White Town** / White Town
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Women in Technology
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-04-05 09:10:23
+📅 2024-04-05 13:03:45
 
 
-# **Your Woman** / White Town
+# **Push It (2018 - Remaster)** / Garbage
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Women in Technology
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-05 09:07:59
+📅 2024-04-05 13:00:05
 
 
-# **Fool** / Caravan Palace
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Fool](https://i.scdn.co/image/ab67616d00001e02b7f773c257bd6f9e93f12c86)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Fool
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-05 09:03:37
+📅 2024-04-05 12:56:02
 
 
-# **Spirits** / Caravan Palace
+# **Push It (2018 - Remaster)** / Garbage
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Gangbusters Melody Club
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-05 08:58:52
+📅 2024-04-05 12:51:03
 
 
-# **Fool** / Caravan Palace
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Fool](https://i.scdn.co/image/ab67616d00001e02b7f773c257bd6f9e93f12c86)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Fool
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-05 08:54:20
+📅 2024-04-05 12:47:00
 
 
-# **Hybrid** / Swingrowers
+# **Take It Off** / The Donnas
 
-![Foto del album: Hybrid](https://i.scdn.co/image/ab67616d00001e027ed656745ff430e389d5c82d)
+![Foto del album: Spend The Night (U.S. Version)](https://i.scdn.co/image/ab67616d00001e02186a8cd23e90a03c092d308e)
 
-**Album:** Hybrid
+**Album:** Spend The Night (U.S. Version)
 
-📅 2024-04-04 18:05:04
+📅 2024-04-05 12:15:29
 
 
-# **Lost In The Rhythm** / Jamie Berry|Octavia Rose
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Lost In The Rhythm](https://i.scdn.co/image/ab67616d00001e0226b9951d2ae34a825e54d033)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Lost In The Rhythm
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-04-04 17:54:42
+📅 2024-04-05 12:02:59
 
 
-# **Villa Rose** / Caravan Palace
+# **Push It (2018 - Remaster)** / Garbage
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Gangbusters Melody Club
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-04 17:51:36
+📅 2024-04-05 11:59:17
 
 
-# **City Cook** / Caravan Palace
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Gangbusters Melody Club
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-04 17:47:32
+📅 2024-04-05 11:55:14
 
 
-# **Portobello** / Caravan Palace
+# **A Mind With A Heart Of Its Own** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:44:07
+📅 2024-04-05 11:48:37
 
 
-# **Blonde Dynamite** / Caravan Palace
+# **Alright For Now** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:41:26
+📅 2024-04-05 11:31:56
 
 
-# **Spirits** / Caravan Palace
+# **The Apartment Song** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:37:35
+📅 2024-04-05 11:29:56
 
 
-# **Fool** / Caravan Palace
+# **Depending On You** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:33:42
+📅 2024-04-05 11:27:23
 
 
-# **Reverse** / Caravan Palace
+# **Yer So Bad** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:30:11
+📅 2024-04-05 11:24:35
 
 
-# **Avalanches** / Caravan Palace
+# **Feel A Whole Lot Better** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:26:09
+📅 2024-04-05 11:21:29
 
 
-# **Raccoons** / Caravan Palace
+# **Runnin' Down A Dream** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:22:00
+📅 2024-04-05 11:18:39
 
 
-# **81 Special** / Caravan Palace
+# **A Face In The Crowd** / Tom Petty
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Gangbusters Melody Club
+**Album:** Full Moon Fever
 
-📅 2024-04-04 17:18:31
+📅 2024-04-05 11:13:47
 
 
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2024-04-04 14:00:34
+📅 2024-04-05 11:09:48
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Runnin' Down A Dream** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2024-04-04 13:56:55
+📅 2024-04-05 10:17:48
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **A Face In The Crowd** / Tom Petty
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Full Moon Fever
 
-📅 2024-04-04 13:53:19
+📅 2024-04-05 10:03:11
