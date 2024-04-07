@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-06 13:33:35
+
+
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Full Moon Fever
 
 📅 2024-04-05 11:27:23
-
-
-# **Yer So Bad** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-04-05 11:24:35
