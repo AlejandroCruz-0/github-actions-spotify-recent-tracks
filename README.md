@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Avalanches** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-08 08:10:35
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-07 09:45:14
+
+
 # **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
 📅 2024-04-05 11:55:14
-
-
-# **A Mind With A Heart Of Its Own** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-04-05 11:48:37
-
-
-# **Alright For Now** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-04-05 11:31:56
