@@ -13,13 +13,85 @@ Nombre: **lotario1999**
 
 
 
+# **Down By The Water** / PJ Harvey
+
+![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
+
+**Album:** To Bring You My Love
+
+📅 2024-04-09 15:52:14
+
+
+# **Take It Off** / The Donnas
+
+![Foto del album: Spend The Night (U.S. Version)](https://i.scdn.co/image/ab67616d00001e02186a8cd23e90a03c092d308e)
+
+**Album:** Spend The Night (U.S. Version)
+
+📅 2024-04-09 15:48:58
+
+
+# **The Last High** / The Dandy Warhols
+
+![Foto del album: Welcome To The Monkey House](https://i.scdn.co/image/ab67616d00001e02ceb6d842d08edd289475b88c)
+
+**Album:** Welcome To The Monkey House
+
+📅 2024-04-09 15:46:17
+
+
+# **Hey Pretty** / Poe
+
+![Foto del album: Haunted](https://i.scdn.co/image/ab67616d00001e0207cc05121006752926bf3698)
+
+**Album:** Haunted
+
+📅 2024-04-09 15:41:29
+
+
+# **Supervixen (2015 - Remaster)** / Garbage
+
+![Foto del album: Garbage (20th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e023dc0c108603ee8e4d12f4a9b)
+
+**Album:** Garbage (20th Anniversary Edition)
+
+📅 2024-04-09 15:37:43
+
+
 # **Special (2018 - Remaster)** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-08 17:53:32
+📅 2024-04-09 15:33:47
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-09 15:28:33
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-09 13:07:34
+
+
+# **Spirits** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-09 12:57:08
 
 
 # **Push It (2018 - Remaster)** / Garbage
@@ -28,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-08 16:58:17
+📅 2024-04-09 12:51:31
 
 
 # **Special (2018 - Remaster)** / Garbage
@@ -37,124 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-08 16:45:34
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-04-08 16:41:40
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-08 12:44:53
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 12:41:14
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 12:37:11
-
-
-# **Think I'm In Love** / Beck
-
-![Foto del album: The Information](https://i.scdn.co/image/ab67616d00001e02fa3dee3e3cc0aaef443f8e6e)
-
-**Album:** The Information
-
-📅 2024-04-08 12:22:35
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-08 12:19:15
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 12:15:36
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 12:11:33
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 12:07:38
-
-
-# **Think I'm In Love** / Beck
-
-![Foto del album: The Information](https://i.scdn.co/image/ab67616d00001e02fa3dee3e3cc0aaef443f8e6e)
-
-**Album:** The Information
-
-📅 2024-04-08 11:28:45
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-08 11:03:19
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 10:59:40
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-08 10:55:37
+📅 2024-04-09 12:47:29
 
 
 # **Down By The Water** / PJ Harvey
@@ -163,25 +118,16 @@ Nombre: **lotario1999**
 
 **Album:** To Bring You My Love
 
-📅 2024-04-08 10:39:16
+📅 2024-04-09 12:28:19
 
 
-# **Think I'm In Love** / Beck
+# **Don't Tell Me** / Madonna
 
-![Foto del album: The Information](https://i.scdn.co/image/ab67616d00001e02fa3dee3e3cc0aaef443f8e6e)
+![Foto del album: Music](https://i.scdn.co/image/ab67616d00001e028c66a574874e11eea5f89a5e)
 
-**Album:** The Information
+**Album:** Music
 
-📅 2024-04-08 10:27:02
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-08 10:23:42
+📅 2024-04-09 12:16:09
 
 
 # **Push It (2018 - Remaster)** / Garbage
@@ -190,4 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-08 10:20:03
+📅 2024-04-09 12:11:27
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-09 12:07:24
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-04-09 11:23:54
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-04-09 11:04:21
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-04-09 10:41:47
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-09 10:24:53
+
+
+# **Mambo Rocket** / Paul Borg|Sandor Jozsa
+
+![Foto del album: Electro Swing](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
+
+**Album:** Electro Swing
+
+📅 2024-04-09 10:21:10
