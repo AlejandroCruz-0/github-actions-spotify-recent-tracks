@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Starter** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2024-04-09 16:05:59
+
+
 # **Down By The Water** / PJ Harvey
 
 ![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
 📅 2024-04-09 10:24:53
-
-
-# **Mambo Rocket** / Paul Borg|Sandor Jozsa
-
-![Foto del album: Electro Swing](https://i.scdn.co/image/ab67616d00001e024e5e35c64eba62c1dd1e2e17)
-
-**Album:** Electro Swing
-
-📅 2024-04-09 10:21:10
