@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Push It (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-10 22:55:53
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-10 22:45:36
+
+
+# **The Trick Is to Keep Breathing (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-10 22:41:55
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-10 20:53:47
+
+
+# **Wake Up - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
+
+**Album:** Jagged Little Pill (Collector's Edition)
+
+📅 2024-04-10 17:41:11
+
+
 # **Not the Doctor - 2015 Remaster** / Alanis Morissette
 
 ![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nuclear Throne OST
 
 📅 2024-04-10 11:41:49
-
-
-# **Fläshyn** / Jukio Kallio
-
-![Foto del album: Nuclear Throne OST](https://i.scdn.co/image/ab67616d00001e0209ada604b2159ca4303f59d5)
-
-**Album:** Nuclear Throne OST
-
-📅 2024-04-10 11:40:20
-
-
-# **Legend of the Throne** / Jukio Kallio
-
-![Foto del album: Nuclear Throne OST](https://i.scdn.co/image/ab67616d00001e0209ada604b2159ca4303f59d5)
-
-**Album:** Nuclear Throne OST
-
-📅 2024-04-10 11:38:53
-
-
-# **Bottle Up And Explode!** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2024-04-10 11:36:09
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2024-04-10 11:32:43
-
-
-# **Handy** / "Weird Al" Yankovic
-
-![Foto del album: Mandatory Fun](https://i.scdn.co/image/ab67616d00001e0277dd64257131e476a6d32e4f)
-
-**Album:** Mandatory Fun
-
-📅 2024-04-10 11:27:48
