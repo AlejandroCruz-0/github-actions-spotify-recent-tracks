@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Mission** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-11 23:37:47
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-11 23:32:57
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-11 23:28:39
+
+
+# **Very Heaven** / Elbow
+
+![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+
+**Album:** AUDIO VERTIGO
+
+📅 2024-04-11 16:27:17
+
+
 # **Things I've Been Telling Myself for Years** / Elbow
 
 ![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e024646a4a069e62edd10af37e9)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-04-11 14:23:24
-
-
-# **Mission** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-11 13:34:51
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-11 13:22:58
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-11 13:18:40
-
-
-# **Captain** / Jukio Kallio
-
-![Foto del album: Nuclear Throne OST](https://i.scdn.co/image/ab67616d00001e0209ada604b2159ca4303f59d5)
-
-**Album:** Nuclear Throne OST
-
-📅 2024-04-11 12:54:08
