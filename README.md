@@ -13,13 +13,121 @@ Nombre: **lotario1999**
 
 
 
-# **Push It (2018 - Remaster)** / Garbage
+# **Things I've Been Telling Myself for Years** / Elbow
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e024646a4a069e62edd10af37e9)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** AUDIO VERTIGO
 
-📅 2024-04-10 22:55:53
+📅 2024-04-11 16:17:13
+
+
+# **Things I've Been Telling Myself for Years** / Elbow
+
+![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+
+**Album:** AUDIO VERTIGO
+
+📅 2024-04-11 16:13:38
+
+
+# **Balu** / Elbow
+
+![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+
+**Album:** AUDIO VERTIGO
+
+📅 2024-04-11 16:10:05
+
+
+# **Lovers' Leap** / Elbow
+
+![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+
+**Album:** AUDIO VERTIGO
+
+📅 2024-04-11 16:06:11
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2024-04-11 16:01:30
+
+
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+
+**Album:** The Future
+
+📅 2024-04-11 15:56:50
+
+
+# **Nevermind** / Leonard Cohen
+
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
+
+**Album:** Popular Problems
+
+📅 2024-04-11 15:37:56
+
+
+# **The Goal** / Leonard Cohen
+
+![Foto del album: Thanks for the Dance](https://i.scdn.co/image/ab67616d00001e024921ae768a6b73150a15e16d)
+
+**Album:** Thanks for the Dance
+
+📅 2024-04-11 15:33:16
+
+
+# **Everybody Knows** / Leonard Cohen
+
+![Foto del album: I'm Your Man](https://i.scdn.co/image/ab67616d00001e0225b12e3030dcf540319f687e)
+
+**Album:** I'm Your Man
+
+📅 2024-04-11 15:31:59
+
+
+# **Bird on the Wire** / Leonard Cohen
+
+![Foto del album: Songs From A Room](https://i.scdn.co/image/ab67616d00001e02f6d9829249efe7ddd08f1b00)
+
+**Album:** Songs From A Room
+
+📅 2024-04-11 15:26:25
+
+
+# **On the Level** / Leonard Cohen
+
+![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+
+**Album:** You Want It Darker
+
+📅 2024-04-11 15:22:58
+
+
+# **In My Secret Life** / Leonard Cohen
+
+![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
+
+**Album:** Ten New Songs
+
+📅 2024-04-11 15:19:30
+
+
+# **You Want It Darker** / Leonard Cohen
+
+![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+
+**Album:** You Want It Darker
+
+📅 2024-04-11 15:13:38
 
 
 # **Special (2018 - Remaster)** / Garbage
@@ -28,166 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-10 22:45:36
+📅 2024-04-11 15:07:38
 
 
-# **The Trick Is to Keep Breathing (2018 - Remaster)** / Garbage
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** The Magnificent Tree
 
-📅 2024-04-10 22:41:55
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-10 20:53:47
+📅 2024-04-11 15:03:33
 
 
-# **Wake Up - 2015 Remaster** / Alanis Morissette
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Jagged Little Pill (Collector's Edition)
+**Album:** The Magnificent Tree
 
-📅 2024-04-10 17:41:11
-
-
-# **Not the Doctor - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
-
-**Album:** Jagged Little Pill (Collector's Edition)
-
-📅 2024-04-10 17:26:27
+📅 2024-04-11 14:23:24
 
 
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
-
-**Album:** Jagged Little Pill (Collector's Edition)
-
-📅 2024-04-10 17:22:27
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-10 17:15:49
-
-
-# **Can't Change Me** / Chris Cornell
+# **Mission** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-10 17:12:08
+📅 2024-04-11 13:34:51
 
 
-# **Is It Any Wonder?** / Keane
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: Under The Iron Sea](https://i.scdn.co/image/ab67616d00001e022ebd3c8519497dc562f8f9aa)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Under The Iron Sea
+**Album:** Euphoria Morning
 
-📅 2024-04-10 17:08:45
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-10 17:05:39
+📅 2024-04-11 13:22:58
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2024-04-10 17:01:35
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-10 16:41:00
+📅 2024-04-11 13:18:40
 
 
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-10 15:16:35
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-10 15:03:37
-
-
-# **RoboCop** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2024-04-10 12:27:56
-
-
-# **Paranoid** / Kanye West|Mr Hudson
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2024-04-10 12:16:46
-
-
-# **Love Lockdown** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2024-04-10 12:12:08
-
-
-# **Groundwork of the Past** / Jukio Kallio
+# **Captain** / Jukio Kallio
 
 ![Foto del album: Nuclear Throne OST](https://i.scdn.co/image/ab67616d00001e0209ada604b2159ca4303f59d5)
 
 **Album:** Nuclear Throne OST
 
-📅 2024-04-10 11:54:02
-
-
-# **Biggest Bandit** / Jukio Kallio
-
-![Foto del album: Nuclear Throne OST](https://i.scdn.co/image/ab67616d00001e0209ada604b2159ca4303f59d5)
-
-**Album:** Nuclear Throne OST
-
-📅 2024-04-10 11:41:49
+📅 2024-04-11 12:54:08
