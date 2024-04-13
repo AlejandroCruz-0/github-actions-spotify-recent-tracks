@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Mission** / Chris Cornell
+# **Follow My Way** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-11 23:37:47
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-11 23:32:57
+📅 2024-04-12 15:27:00
 
 
 # **Follow My Way** / Chris Cornell
@@ -37,133 +28,142 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-11 23:28:39
+📅 2024-04-12 14:58:46
 
 
-# **Very Heaven** / Elbow
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** AUDIO VERTIGO
+**Album:** Euphoria Morning
 
-📅 2024-04-11 16:27:17
+📅 2024-04-12 14:06:10
 
 
-# **Things I've Been Telling Myself for Years** / Elbow
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e024646a4a069e62edd10af37e9)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** AUDIO VERTIGO
+**Album:** Euphoria Morning
 
-📅 2024-04-11 16:17:13
+📅 2024-04-12 13:48:33
 
 
-# **Things I've Been Telling Myself for Years** / Elbow
+# **Mission** / Chris Cornell
 
-![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** AUDIO VERTIGO
+**Album:** Euphoria Morning
 
-📅 2024-04-11 16:13:38
+📅 2024-04-12 13:21:39
 
 
-# **Balu** / Elbow
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** AUDIO VERTIGO
+**Album:** Euphoria Morning
 
-📅 2024-04-11 16:10:05
+📅 2024-04-12 13:11:35
 
 
-# **Lovers' Leap** / Elbow
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: AUDIO VERTIGO](https://i.scdn.co/image/ab67616d00001e02d4b42e4ae44e47a0354f58cf)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** AUDIO VERTIGO
+**Album:** Euphoria Morning
 
-📅 2024-04-11 16:06:11
+📅 2024-04-12 13:07:18
 
 
-# **Grounds for Divorce** / Elbow
+# **Mission** / Chris Cornell
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Seldom Seen Kid
+**Album:** Euphoria Morning
 
-📅 2024-04-11 16:01:30
+📅 2024-04-12 12:35:16
 
 
-# **Closing Time** / Leonard Cohen
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Future
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:56:50
+📅 2024-04-12 12:23:07
 
 
-# **Nevermind** / Leonard Cohen
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Popular Problems
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:37:56
+📅 2024-04-12 12:18:50
 
 
-# **The Goal** / Leonard Cohen
+# **Wave Goodbye** / Chris Cornell
 
-![Foto del album: Thanks for the Dance](https://i.scdn.co/image/ab67616d00001e024921ae768a6b73150a15e16d)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Thanks for the Dance
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:33:16
+📅 2024-04-12 11:33:59
 
 
-# **Everybody Knows** / Leonard Cohen
+# **Mission** / Chris Cornell
 
-![Foto del album: I'm Your Man](https://i.scdn.co/image/ab67616d00001e0225b12e3030dcf540319f687e)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** I'm Your Man
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:31:59
+📅 2024-04-12 11:23:19
 
 
-# **Bird on the Wire** / Leonard Cohen
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: Songs From A Room](https://i.scdn.co/image/ab67616d00001e02f6d9829249efe7ddd08f1b00)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Songs From A Room
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:26:25
+📅 2024-04-12 11:19:15
 
 
-# **On the Level** / Leonard Cohen
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** You Want It Darker
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:22:58
+📅 2024-04-12 11:14:58
 
 
-# **In My Secret Life** / Leonard Cohen
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Ten New Songs
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:19:30
+📅 2024-04-12 10:59:41
 
 
-# **You Want It Darker** / Leonard Cohen
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** You Want It Darker
+**Album:** Euphoria Morning
 
-📅 2024-04-11 15:13:38
+📅 2024-04-12 10:55:22
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-12 10:50:16
 
 
 # **Special (2018 - Remaster)** / Garbage
@@ -172,22 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-11 15:07:38
+📅 2024-04-12 10:37:18
 
 
-# **Mad About You** / Hooverphonic
+# **Push It (2018 - Remaster)** / Garbage
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** The Magnificent Tree
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-11 15:03:33
+📅 2024-04-12 10:26:20
 
 
-# **Mad About You** / Hooverphonic
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** The Magnificent Tree
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-11 14:23:24
+📅 2024-04-12 10:22:18
