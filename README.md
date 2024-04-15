@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Fool** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-14 23:44:54
+
+
+# **81 Special** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-14 23:41:23
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-14 23:37:33
+
+
+# **Avalanches** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-14 23:33:41
+
+
 # **Can't Change Me** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-04-12 14:06:10
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 13:48:33
-
-
-# **Mission** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 13:21:39
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 13:11:35
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 13:07:18
