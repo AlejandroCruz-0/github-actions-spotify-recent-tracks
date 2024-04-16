@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 18:43:26
+
+
 # **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
 ![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-04-15 10:58:24
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-15 10:54:21
