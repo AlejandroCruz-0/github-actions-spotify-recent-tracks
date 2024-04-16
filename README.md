@@ -13,22 +13,85 @@ Nombre: **lotario1999**
 
 
 
-# **Fool** / Caravan Palace
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Gangbusters Melody Club
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-14 23:44:54
+📅 2024-04-15 18:30:25
 
 
-# **81 Special** / Caravan Palace
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Gangbusters Melody Club
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-14 23:41:23
+📅 2024-04-15 18:26:49
+
+
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 17:58:23
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 17:47:31
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 17:43:55
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 17:40:02
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 17:35:39
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 14:25:03
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-15 14:13:42
 
 
 # **Mirrors** / Caravan Palace
@@ -37,97 +100,79 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-14 23:37:33
+📅 2024-04-15 13:39:49
 
 
-# **Avalanches** / Caravan Palace
+# **Spirits** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-04-14 23:33:41
+📅 2024-04-15 13:26:31
 
 
-# **Can't Change Me** / Chris Cornell
+# **Push It (2018 - Remaster)** / Garbage
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Euphoria Morning
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-14 20:44:55
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-14 20:41:35
+📅 2024-04-15 13:14:47
 
 
-# **Follow My Way** / Chris Cornell
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Euphoria Morning
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-14 20:06:01
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-14 17:28:31
+📅 2024-04-15 13:00:44
 
 
-# **Flutter Girl** / Chris Cornell
+# **Precious** / Depeche Mode
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Playing the Angel (Deluxe)](https://i.scdn.co/image/ab67616d00001e02ed1506834f09438351cf1dc5)
 
-**Album:** Euphoria Morning
+**Album:** Playing the Angel (Deluxe)
 
-📅 2024-04-13 23:51:33
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-13 23:39:57
+📅 2024-04-15 11:47:10
 
 
-# **Can't Change Me** / Chris Cornell
+# **Erase / Rewind** / The Cardigans
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Euphoria Morning
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-04-13 20:02:16
+📅 2024-04-15 11:33:40
 
 
-# **Follow My Way** / Chris Cornell
+# **Push It (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-15 11:30:01
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-15 11:25:58
+
+
+# **Wave Goodbye** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-13 19:00:37
-
-
-# **I Am** / Alice Russell
-
-![Foto del album: I Am](https://i.scdn.co/image/ab67616d00001e0252c9b65f92cb38590483179d)
-
-**Album:** I Am
-
-📅 2024-04-13 14:44:43
+📅 2024-04-15 11:10:01
 
 
 # **Mission** / Chris Cornell
@@ -136,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-13 14:26:57
+📅 2024-04-15 10:58:24
 
 
 # **When I'm Down** / Chris Cornell
@@ -145,49 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-13 14:22:54
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-13 14:18:35
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 15:37:42
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 15:27:00
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 14:58:46
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-12 14:06:10
+📅 2024-04-15 10:54:21
