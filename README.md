@@ -13,112 +13,112 @@ Nombre: **lotario1999**
 
 
 
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Euphoria Morning
 
-📅 2024-04-15 18:43:26
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-15 18:30:25
+📅 2024-04-16 16:54:45
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Euphoria Morning
 
-📅 2024-04-15 18:26:49
-
-
-# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-15 17:58:23
+📅 2024-04-16 16:50:27
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **The Brink of Death** / 光田 康典
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2024-04-15 17:47:31
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-15 17:43:55
+📅 2024-04-16 15:15:08
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **Chrono Cross -Scars of Time-** / 光田 康典
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2024-04-15 17:40:02
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-15 17:35:39
+📅 2024-04-16 15:04:38
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Arni (Home World)** / 光田 康典
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2024-04-15 14:25:03
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-15 14:13:42
+📅 2024-04-16 11:25:53
 
 
-# **Mirrors** / Caravan Palace
+# **The Brink of Death** / 光田 康典
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Gangbusters Melody Club
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2024-04-15 13:39:49
+📅 2024-04-16 11:13:43
 
 
-# **Spirits** / Caravan Palace
+# **Chrono Cross -Scars of Time-** / 光田 康典
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
 
-**Album:** Gangbusters Melody Club
+**Album:** Chrono Cross Original Soundtrack
 
-📅 2024-04-15 13:26:31
+📅 2024-04-16 11:11:03
+
+
+# **Red** / Elbow
+
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
+
+**Album:** Asleep In The Back (Deluxe Edition)
+
+📅 2024-04-16 11:08:34
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-04-16 10:44:13
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-04-16 10:18:06
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-04-16 09:54:35
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-04-16 09:50:14
 
 
 # **Push It (2018 - Remaster)** / Garbage
@@ -127,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-15 13:14:47
+📅 2024-04-16 09:46:07
 
 
 # **Special (2018 - Remaster)** / Garbage
@@ -136,58 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-15 13:00:44
+📅 2024-04-16 09:42:04
 
 
-# **Precious** / Depeche Mode
+# **Nevermind** / Leonard Cohen
 
-![Foto del album: Playing the Angel (Deluxe)](https://i.scdn.co/image/ab67616d00001e02ed1506834f09438351cf1dc5)
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
 
-**Album:** Playing the Angel (Deluxe)
+**Album:** Popular Problems
 
-📅 2024-04-15 11:47:10
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-15 11:33:40
+📅 2024-04-16 09:35:23
 
 
-# **Push It (2018 - Remaster)** / Garbage
+# **A Thousand Kisses Deep** / Leonard Cohen
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Ten New Songs
 
-📅 2024-04-15 11:30:01
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-15 11:25:58
+📅 2024-04-16 09:30:09
 
 
-# **Wave Goodbye** / Chris Cornell
+# **Closing Time** / Leonard Cohen
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
 
-**Album:** Euphoria Morning
+**Album:** The Future
 
-📅 2024-04-15 11:10:01
+📅 2024-04-16 09:23:07
 
 
-# **Mission** / Chris Cornell
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Euphoria Morning
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-15 10:58:24
+📅 2024-04-16 09:15:20
+
+
+# **Undressed** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-16 08:42:26
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-16 08:32:01
