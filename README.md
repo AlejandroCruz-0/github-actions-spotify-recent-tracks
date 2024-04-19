@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-04-18 20:39:31
+
+
 # **Love Is A Long Road** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-04-17 12:37:29
-
-
-# **Badaboum** / Hooverphonic
-
-![Foto del album: In Wonderland](https://i.scdn.co/image/ab67616d00001e029e99c13f72a625d32358f1c3)
-
-**Album:** In Wonderland
-
-📅 2024-04-17 11:13:27
