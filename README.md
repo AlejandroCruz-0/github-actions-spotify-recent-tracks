@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **A Face In The Crowd** / Tom Petty
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Full Moon Fever
+**Album:** Synkronized
 
-📅 2024-04-18 20:39:31
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-04-18 20:29:16
+📅 2024-04-19 18:20:21
 
 
-# **Push It (2018 - Remaster)** / Garbage
+# **Canned Heat - Remastered 2006** / Jamiroquai
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Driving Songs
 
-📅 2024-04-18 17:26:30
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-18 17:10:52
+📅 2024-04-19 18:11:58
 
 
-# **Can't Change Me** / Chris Cornell
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2024-04-19 17:44:45
+
+
+# **Plains of Time (Home World)** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-04-19 17:19:33
+
+
+# **Shore of Dreams (Another World)** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-04-19 17:03:33
+
+
+# **Reminisce -Enduring Thoughts-** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-04-19 17:01:09
+
+
+# **Dances with Lizards** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-04-19 16:57:44
+
+
+# **Plains of Time (Home World)** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-04-19 16:55:02
+
+
+# **Arni (Home World)** / 光田 康典
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-04-19 16:51:36
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-04-19 16:37:59
+
+
+# **Wave Goodbye** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-18 15:00:58
+📅 2024-04-19 16:06:54
 
 
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-18 14:25:33
-
-
-# **Spirits** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-04-18 13:46:42
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-18 13:15:02
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-18 13:03:42
-
-
-# **Starter** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-18 11:35:10
-
-
-# **Can't Change Me** / Chris Cornell
+# **Mission** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-18 11:24:53
+📅 2024-04-19 15:54:21
 
 
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-18 11:21:29
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-18 11:17:26
-
-
-# **Mexican Moon** / Concrete Blonde
-
-![Foto del album: Mexican Moon](https://i.scdn.co/image/ab67616d00001e02c787b18e75b8f9cde01b548d)
-
-**Album:** Mexican Moon
-
-📅 2024-04-17 18:29:14
-
-
-# **Hey Pretty** / Poe
-
-![Foto del album: Haunted](https://i.scdn.co/image/ab67616d00001e0207cc05121006752926bf3698)
-
-**Album:** Haunted
-
-📅 2024-04-17 18:18:52
-
-
-# **Erase / Rewind** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-04-17 18:15:06
-
-
-# **Can't Change Me** / Chris Cornell
+# **When I'm Down** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-17 18:11:27
+📅 2024-04-19 15:50:19
 
 
-# **Push It (2018 - Remaster)** / Garbage
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2024-04-17 18:08:04
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-17 18:04:00
+📅 2024-04-19 15:46:01
 
 
-# **Mad About You** / Hooverphonic
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** The Magnificent Tree
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-17 12:37:29
+📅 2024-04-19 15:39:12
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-19 15:18:25
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-19 15:14:33
+
+
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-19 15:09:04
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-04-19 15:05:27
+
+
+# **Once** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-04-19 12:10:48
