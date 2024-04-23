@@ -13,121 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **So He Won't Break** / The Black Keys
+# **Polly** / Nirvana
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Attack & Release
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 18:04:57
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-04-21 17:56:48
+📅 2024-04-22 16:59:45
 
 
-# **Fever** / The Black Keys
+# **Lithium** / Nirvana
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Turn Blue
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 17:52:23
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-04-21 17:48:18
+📅 2024-04-22 16:56:52
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Breed** / Nirvana
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Bueninvento
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 17:44:17
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-04-21 17:40:49
+📅 2024-04-22 16:52:35
 
 
-# **Once I Flew** / White Town
+# **Come As You Are** / Nirvana
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Women in Technology
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 17:06:28
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-04-21 16:55:21
+📅 2024-04-22 16:49:30
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **In Bloom** / Nirvana
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 13:33:34
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-04-21 11:09:18
+📅 2024-04-22 16:45:52
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 10:54:06
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-04-21 10:41:18
+📅 2024-04-22 16:41:36
 
 
-# **Erase / Rewind** / The Cardigans
+# **Come As You Are** / Nirvana
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Nevermind (Remastered)
 
-📅 2024-04-21 00:32:25
+📅 2024-04-22 16:01:47
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-04-22 15:51:44
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-04-22 15:47:29
+
+
+# **Can't Change Me** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-22 15:40:46
 
 
 # **Push It (2018 - Remaster)** / Garbage
@@ -136,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-21 00:21:28
+📅 2024-04-22 15:30:09
 
 
 # **Special (2018 - Remaster)** / Garbage
@@ -145,49 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-04-21 00:17:25
+📅 2024-04-22 15:26:05
 
 
-# **Oceans** / Pearl Jam
+# **Wake Up - 2015 Remaster** / Alanis Morissette
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
 
-**Album:** Ten
+**Album:** Jagged Little Pill (Collector's Edition)
 
-📅 2024-04-20 08:20:30
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-04-20 08:01:12
+📅 2024-04-22 13:08:12
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Not the Doctor - 2015 Remaster** / Alanis Morissette
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Jagged Little Pill (Collector's Edition)
 
-📅 2024-04-20 07:55:14
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-04-19 18:35:46
+📅 2024-04-22 12:07:04
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **You Oughta Know - 2015 Remaster** / Alanis Morissette
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
 
-**Album:** Synkronized
+**Album:** Jagged Little Pill (Collector's Edition)
 
-📅 2024-04-19 18:20:21
+📅 2024-04-22 12:02:48
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-22 11:54:27
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-22 11:50:09
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-22 11:21:09
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-22 11:10:50
+
+
+# **Preaching The End Of The World** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-22 11:05:43
