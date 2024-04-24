@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 01:06:45
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 01:01:33
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 00:56:37
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 00:52:09
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 00:48:10
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 00:35:18
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-24 00:27:51
+
+
+# **Live Here Without You** / Sponge
+
+![Foto del album: New Pop Sunday](https://i.scdn.co/image/ab67616d00001e0206f2ef9fc4a8fb405c85c2af)
+
+**Album:** New Pop Sunday
+
+📅 2024-04-23 18:24:31
+
+
 # **Can't Change Me - French Version** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Arcane League of Legends (Soundtrack from the Animated Series)
 
 📅 2024-04-23 13:34:54
-
-
-# **Misfit Toys (from the series Arcane League of Legends)** / Pusha T|Mako
-
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
-
-📅 2024-04-23 13:23:05
-
-
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
-
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
-
-📅 2024-04-23 13:19:56
-
-
-# **Enemy feat. J.I.D. (from the series Arcane League of Legends)** / Imagine Dragons|JID
-
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
-
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
-
-📅 2024-04-23 13:16:10
-
-
-# **We Live Here** / Christopher Bear|Daniel Rossen
-
-![Foto del album: Past Lives (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0241cf2eba2ea2689dc5b7771d)
-
-**Album:** Past Lives (Original Motion Picture Soundtrack)
-
-📅 2024-04-23 13:03:23
-
-
-# **Lonely Sunday** / Reignwolf
-
-![Foto del album: Lonely Sunday](https://i.scdn.co/image/ab67616d00001e02b7bbe6c8b5dde3e69d056c58)
-
-**Album:** Lonely Sunday
-
-📅 2024-04-23 12:54:42
-
-
-# **Summertime** / Killer Boogie
-
-![Foto del album: Detroit](https://i.scdn.co/image/ab67616d00001e021ac238c9467f5fee62e532d5)
-
-**Album:** Detroit
-
-📅 2024-04-23 12:36:19
-
-
-# **Sleestak Lightning** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2024-04-23 12:31:39
-
-
-# **Aglo Ha Cambiado** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
-
-**Album:** Strange Cousins From the West
-
-📅 2024-04-23 12:27:52
