@@ -13,13 +13,112 @@ Nombre: **lotario1999**
 
 
 
+# **81 Special** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-25 18:57:49
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-25 18:53:53
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-25 18:50:11
+
+
+# **Nothing Compares 2 U** / Chris Cornell
+
+![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
+
+**Album:** No One Sings Like You Anymore
+
+📅 2024-04-25 17:14:56
+
+
+# **Patience** / Chris Cornell
+
+![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
+
+**Album:** No One Sings Like You Anymore
+
+📅 2024-04-25 17:04:41
+
+
+# **Sad Sad City** / Chris Cornell
+
+![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
+
+**Album:** No One Sings Like You Anymore
+
+📅 2024-04-25 17:00:27
+
+
+# **Jump Into The Fire** / Chris Cornell
+
+![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
+
+**Album:** No One Sings Like You Anymore
+
+📅 2024-04-25 16:56:38
+
+
+# **Get It While You Can** / Chris Cornell
+
+![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
+
+**Album:** No One Sings Like You Anymore
+
+📅 2024-04-25 16:53:03
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-25 16:49:40
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-25 16:45:28
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-25 16:41:13
+
+
 # **Steel Rain** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-04-24 15:54:35
+📅 2024-04-25 15:12:03
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -28,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-24 15:43:44
+📅 2024-04-25 14:59:43
 
 
 # **Disappearing One** / Chris Cornell
@@ -37,124 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-24 15:39:16
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 15:35:20
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 15:24:17
-
-
-# **Fur Lined** / How To Destroy Angels
-
-![Foto del album: How To Destroy Angels](https://i.scdn.co/image/ab67616d00001e022eaac04d7932f46f783c4ee2)
-
-**Album:** How To Destroy Angels
-
-📅 2024-04-24 14:00:27
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-04-24 13:48:58
-
-
-# **Not Your Kind of People** / Garbage
-
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
-
-**Album:** Not Your Kind of People
-
-📅 2024-04-24 13:45:14
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 13:25:10
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 13:15:04
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 13:10:30
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 12:53:02
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 12:46:45
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 12:22:39
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 12:18:12
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-24 12:14:15
+📅 2024-04-25 14:55:15
 
 
 # **Sweet Euphoria** / Chris Cornell
@@ -163,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-24 10:58:09
+📅 2024-04-25 14:51:30
 
 
 # **Moonchild** / Chris Cornell
@@ -172,22 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-24 10:45:44
+📅 2024-04-25 14:48:23
 
 
-# **Arni (Home World)** / 光田 康典
+# **81 Special** / Caravan Palace
 
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Chrono Cross Original Soundtrack
+**Album:** Gangbusters Melody Club
 
-📅 2024-04-24 09:57:22
+📅 2024-04-25 13:34:40
 
 
-# **The Brink of Death** / 光田 康典
+# **Mirrors** / Caravan Palace
 
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Chrono Cross Original Soundtrack
+**Album:** Gangbusters Melody Club
 
-📅 2024-04-24 09:46:33
+📅 2024-04-25 13:24:30
+
+
+# **Blonde Dynamite** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-25 13:17:16
+
+
+# **Spirits** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-04-25 13:13:26
