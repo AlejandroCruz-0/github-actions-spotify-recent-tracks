@@ -13,112 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **81 Special** / Caravan Palace
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Gangbusters Melody Club
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-25 18:57:49
-
-
-# **Mirrors** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-04-25 18:53:53
+📅 2024-04-26 13:13:47
 
 
-# **MAD** / Caravan Palace
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Gangbusters Melody Club
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-25 18:50:11
-
-
-# **Nothing Compares 2 U** / Chris Cornell
-
-![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
-
-**Album:** No One Sings Like You Anymore
-
-📅 2024-04-25 17:14:56
-
-
-# **Patience** / Chris Cornell
-
-![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
-
-**Album:** No One Sings Like You Anymore
-
-📅 2024-04-25 17:04:41
-
-
-# **Sad Sad City** / Chris Cornell
-
-![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
-
-**Album:** No One Sings Like You Anymore
-
-📅 2024-04-25 17:00:27
-
-
-# **Jump Into The Fire** / Chris Cornell
-
-![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
-
-**Album:** No One Sings Like You Anymore
-
-📅 2024-04-25 16:56:38
-
-
-# **Get It While You Can** / Chris Cornell
-
-![Foto del album: No One Sings Like You Anymore](https://i.scdn.co/image/ab67616d00001e0211bd0182c7faa293c5d4f8bc)
-
-**Album:** No One Sings Like You Anymore
-
-📅 2024-04-25 16:53:03
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-25 16:49:40
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-25 16:45:28
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-25 16:41:13
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-25 15:12:03
+📅 2024-04-26 12:55:19
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -127,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-25 14:59:43
+📅 2024-04-26 12:47:41
 
 
 # **Disappearing One** / Chris Cornell
@@ -136,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-25 14:55:15
+📅 2024-04-26 12:43:14
 
 
 # **Sweet Euphoria** / Chris Cornell
@@ -145,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-25 14:51:30
+📅 2024-04-26 12:39:28
 
 
 # **Moonchild** / Chris Cornell
@@ -154,40 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-04-25 14:48:23
+📅 2024-04-26 12:36:21
 
 
-# **81 Special** / Caravan Palace
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
 
-**Album:** Gangbusters Melody Club
+**Album:** With Orchestra Live
 
-📅 2024-04-25 13:34:40
-
-
-# **Mirrors** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-04-25 13:24:30
+📅 2024-04-26 11:25:33
 
 
-# **Blonde Dynamite** / Caravan Palace
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Gangbusters Melody Club
+**Album:** The Magnificent Tree
 
-📅 2024-04-25 13:17:16
+📅 2024-04-26 11:15:28
 
 
-# **Spirits** / Caravan Palace
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
 
-**Album:** Gangbusters Melody Club
+**Album:** With Orchestra Live
 
-📅 2024-04-25 13:13:26
+📅 2024-04-26 11:11:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-04-26 11:06:47
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-04-26 11:03:04
+
+
+# **Hey Pretty** / Poe
+
+![Foto del album: Haunted](https://i.scdn.co/image/ab67616d00001e0207cc05121006752926bf3698)
+
+**Album:** Haunted
+
+📅 2024-04-26 10:54:09
+
+
+# **Erase / Rewind** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2024-04-26 10:50:23
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-04-26 10:46:44
+
+
+# **Not Your Kind of People** / Garbage
+
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
+
+**Album:** Not Your Kind of People
+
+📅 2024-04-26 10:43:00
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2024-04-26 10:38:01
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2024-04-26 10:33:38
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2024-04-26 10:28:53
+
+
+# **Iron** / Woodkid
+
+![Foto del album: Iron](https://i.scdn.co/image/ab67616d00001e02cb833e941e1ba35590da5c6b)
+
+**Album:** Iron
+
+📅 2024-04-26 10:25:14
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-04-26 10:18:58
