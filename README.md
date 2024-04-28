@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-27 14:11:52
+
+
 # **Moonchild** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Seldom Seen Kid
 
 📅 2024-04-26 10:28:53
-
-
-# **Iron** / Woodkid
-
-![Foto del album: Iron](https://i.scdn.co/image/ab67616d00001e02cb833e941e1ba35590da5c6b)
-
-**Album:** Iron
-
-📅 2024-04-26 10:25:14
