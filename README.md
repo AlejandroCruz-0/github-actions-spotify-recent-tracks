@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-28 13:28:31
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-28 13:24:04
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-04-28 13:20:12
+
+
 # **Sweet Euphoria** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Not Your Kind of People
 
 📅 2024-04-26 10:43:00
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2024-04-26 10:38:01
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2024-04-26 10:33:38
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2024-04-26 10:28:53
