@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-04-30 18:22:50
+
+
 # **Scoring** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-04-30 00:39:19
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-04-30 00:34:36
