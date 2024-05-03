@@ -13,22 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** With Orchestra Live
+**Album:** Euphoria Morning
 
-📅 2024-05-01 18:08:04
+📅 2024-05-02 18:25:09
 
 
-# **Mad About You** / Hooverphonic
+# **Sweet Euphoria** / Chris Cornell
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Magnificent Tree
+**Album:** Euphoria Morning
 
-📅 2024-05-01 17:57:59
+📅 2024-05-02 18:21:24
 
 
 # **Moonchild** / Chris Cornell
@@ -37,25 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-01 13:44:36
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-01 12:50:57
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-01 12:12:03
+📅 2024-05-02 18:18:16
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -64,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-01 12:01:59
+📅 2024-05-02 18:08:07
 
 
 # **Disappearing One** / Chris Cornell
@@ -73,121 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-01 11:57:31
+📅 2024-05-02 18:03:40
 
 
-# **Disappearing One** / Chris Cornell
+# **Journal of Ardency** / Class Actress
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Journal of Ardency](https://i.scdn.co/image/ab67616d00001e02b93795b9ff849059a84e543b)
 
-**Album:** Euphoria Morning
+**Album:** Journal of Ardency
 
-📅 2024-05-01 11:51:18
+📅 2024-05-02 16:16:24
 
 
-# **Moonchild** / Chris Cornell
+# **Bachelorette** / Björk
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Homogenic](https://i.scdn.co/image/ab67616d00001e02992370c34c86fda1e172d0c5)
 
-**Album:** Euphoria Morning
+**Album:** Homogenic
 
-📅 2024-05-01 11:47:32
+📅 2024-05-02 16:05:57
 
 
-# **Disappearing One** / Chris Cornell
+# **Pjanoo - Radio Edit** / Eric Prydz
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Pjanoo](https://i.scdn.co/image/ab67616d00001e02bf82130ce529153496038461)
 
-**Album:** Euphoria Morning
+**Album:** Pjanoo
 
-📅 2024-05-01 11:43:28
+📅 2024-05-02 15:57:31
 
 
-# **Deeply** / bôa
+# **Not the Doctor - 2015 Remaster** / Alanis Morissette
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
 
-**Album:** Twilight
+**Album:** Jagged Little Pill (Collector's Edition)
 
-📅 2024-04-30 18:22:50
+📅 2024-05-02 15:54:53
 
 
-# **Scoring** / bôa
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Twilight
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 18:12:27
+📅 2024-05-02 13:47:30
 
 
-# **Scoring** / bôa
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Twilight
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 18:08:23
+📅 2024-05-02 13:24:20
 
 
-# **Welcome** / bôa
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Twilight
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 11:52:47
+📅 2024-05-02 13:20:43
 
 
-# **One Day** / bôa
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Twilight
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 11:19:46
+📅 2024-05-02 13:16:50
 
 
-# **Deeply** / bôa
+# **One Day - Swingrowers Remix** / Caro Emerald|Swingrowers
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Twilight
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 11:17:05
+📅 2024-05-02 13:05:10
 
 
-# **Scoring** / bôa
+# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Twilight
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 11:12:31
+📅 2024-05-02 12:54:12
 
 
-# **Hey Pretty** / Poe
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Haunted](https://i.scdn.co/image/ab67616d00001e0207cc05121006752926bf3698)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Haunted
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 10:56:56
+📅 2024-05-02 12:50:35
 
 
-# **Erase / Rewind** / The Cardigans
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 10:40:41
+📅 2024-05-02 12:46:42
 
 
-# **Push It (2018 - Remaster)** / Garbage
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2024-04-30 10:37:02
+📅 2024-05-02 12:40:50
+
+
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-05-02 12:36:57
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-05-02 12:33:30
