@@ -13,76 +13,103 @@ Nombre: **lotario1999**
 
 
 
-# **Disappearing One** / Chris Cornell
+# **Erase / Rewind** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2024-05-05 17:59:28
+
+
+# **Push It (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-05-05 17:55:49
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-05-05 17:51:46
+
+
+# **You Oughta Know - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2024-05-05 17:48:03
+
+
+# **Can't Change Me** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-05-04 13:08:51
+📅 2024-05-05 17:39:07
 
 
-# **Mission** / Chris Cornell
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Euphoria Morning
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-05-04 13:00:06
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-04 12:56:02
+📅 2024-05-05 17:35:45
 
 
-# **Follow My Way** / Chris Cornell
+# **2 Wicky** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
 
-**Album:** Euphoria Morning
+**Album:** A New Stereophonic Sound Spectacular
 
-📅 2024-05-04 12:51:45
-
-
-# **Preaching The End Of The World** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-04 12:46:38
+📅 2024-05-05 17:29:23
 
 
-# **Flutter Girl** / Chris Cornell
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
 
-**Album:** Euphoria Morning
+**Album:** With Orchestra Live
 
-📅 2024-05-04 12:41:59
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-04 12:20:37
+📅 2024-05-05 17:18:49
 
 
-# **Sweet Euphoria** / Chris Cornell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Euphoria Morning
+**Album:** The Magnificent Tree
 
-📅 2024-05-03 16:00:02
+📅 2024-05-05 17:14:49
+
+
+# **Perfect - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
+
+**Album:** Jagged Little Pill (Collector's Edition)
+
+📅 2024-05-05 15:58:33
+
+
+# **You Oughta Know - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
+
+**Album:** Jagged Little Pill (Collector's Edition)
+
+📅 2024-05-05 15:47:52
 
 
 # **Moonchild** / Chris Cornell
@@ -91,16 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-03 15:43:07
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-03 15:34:10
+📅 2024-05-05 15:43:30
 
 
 # **Disappearing One** / Chris Cornell
@@ -109,70 +127,25 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-03 15:29:43
+📅 2024-05-05 15:39:01
 
 
-# **Steel Rain** / Chris Cornell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Euphoria Morning
+**Album:** The Magnificent Tree
 
-📅 2024-05-03 13:15:44
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-03 13:04:54
+📅 2024-05-05 15:34:50
 
 
-# **Disappearing One** / Chris Cornell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Euphoria Morning
+**Album:** The Magnificent Tree
 
-📅 2024-05-03 13:00:27
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-05-03 12:42:04
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-05-03 12:18:08
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-05-03 12:14:15
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-05-03 12:09:16
+📅 2024-05-05 13:09:36
 
 
 # **Disappearing One** / Chris Cornell
@@ -181,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-03 11:34:34
+📅 2024-05-05 12:48:17
 
 
 # **Moonchild** / Chris Cornell
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-03 11:30:49
+📅 2024-05-05 12:44:16
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-05 12:38:25
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-05 12:28:58
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-05 12:24:58
