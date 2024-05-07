@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-06 21:51:51
+
+
+# **Push It (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-05-06 20:11:23
+
+
 # **Can't Change Me** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bastion Original Soundtrack
 
 📅 2024-05-06 09:12:27
-
-
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-05-06 09:09:41
-
-
-# **Fur Lined** / How To Destroy Angels
-
-![Foto del album: How To Destroy Angels](https://i.scdn.co/image/ab67616d00001e022eaac04d7932f46f783c4ee2)
-
-**Album:** How To Destroy Angels
-
-📅 2024-05-06 09:05:38
