@@ -19,124 +19,70 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-06 21:51:51
+📅 2024-05-07 19:59:18
 
 
-# **Push It (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-05-06 20:11:23
-
-
-# **Can't Change Me** / Chris Cornell
+# **Pillow Of Your Bones** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-05-06 19:50:55
+📅 2024-05-07 19:54:39
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2024-05-06 19:47:33
-
-
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
-
-**Album:** Jagged Little Pill (Collector's Edition)
-
-📅 2024-05-06 19:43:41
+📅 2024-05-07 19:50:10
 
 
-# **A Face In The Crowd** / Tom Petty
+# **Moonchild** / Chris Cornell
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Full Moon Fever
+**Album:** Euphoria Morning
 
-📅 2024-05-06 17:27:41
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-05-06 17:06:34
+📅 2024-05-07 19:46:06
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Full Moon Fever
+**Album:** Euphoria Morning
 
-📅 2024-05-06 14:04:09
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-05-06 13:08:04
+📅 2024-05-07 19:41:55
 
 
-# **A Face In The Crowd** / Tom Petty
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Full Moon Fever
+**Album:** Euphoria Morning
 
-📅 2024-05-06 11:05:07
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-05-06 10:54:40
+📅 2024-05-07 19:31:27
 
 
-# **Head over Feet - 2015 Remaster** / Alanis Morissette
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Jagged Little Pill (Collector's Edition)
+**Album:** Euphoria Morning
 
-📅 2024-05-06 10:38:56
-
-
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (Collector's Edition)](https://i.scdn.co/image/ab67616d00001e02572eeb58e8ee977b3658b67f)
-
-**Album:** Jagged Little Pill (Collector's Edition)
-
-📅 2024-05-06 10:34:20
+📅 2024-05-07 19:06:20
 
 
-# **Scoring** / bôa
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Twilight
+**Album:** Euphoria Morning
 
-📅 2024-05-06 10:28:58
+📅 2024-05-07 18:52:28
 
 
 # **Deeply** / bôa
@@ -145,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-05-06 09:38:27
+📅 2024-05-07 17:15:05
 
 
 # **Scoring** / bôa
@@ -154,7 +100,16 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-05-06 09:22:24
+📅 2024-05-07 16:58:51
+
+
+# **Anna Maria** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-07 15:22:14
 
 
 # **Scoring** / bôa
@@ -163,31 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-05-06 09:18:31
+📅 2024-05-07 14:58:48
 
 
-# **Hey Pretty** / Poe
+# **Deeply** / bôa
 
-![Foto del album: Haunted](https://i.scdn.co/image/ab67616d00001e0207cc05121006752926bf3698)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Haunted
+**Album:** Twilight
 
-📅 2024-05-06 09:18:21
-
-
-# **Legend of the Throne** / Jukio Kallio
-
-![Foto del album: Nuclear Throne OST](https://i.scdn.co/image/ab67616d00001e0209ada604b2159ca4303f59d5)
-
-**Album:** Nuclear Throne OST
-
-📅 2024-05-06 09:14:35
+📅 2024-05-07 12:30:28
 
 
-# **Build That Wall (Zia's Theme)** / Darren Korb
+# **Scoring** / bôa
 
-![Foto del album: Bastion Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0297ae11a69efd78d88238ba45)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Bastion Original Soundtrack
+**Album:** Twilight
 
-📅 2024-05-06 09:12:27
+📅 2024-05-07 12:03:12
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-07 11:54:14
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2024-05-07 11:37:03
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-07 11:18:36
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-07 11:07:41
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-07 11:05:08
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-07 11:03:11
