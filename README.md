@@ -15,20 +15,47 @@ Nombre: **lotario1999**
 
 # **i** / Kendrick Lamar
 
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+
+**Album:** i
+
+📅 2024-05-08 19:26:43
+
+
+# **i** / Kendrick Lamar
+
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+
+**Album:** i
+
+📅 2024-05-08 19:01:21
+
+
+# **i** / Kendrick Lamar
+
 ![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
 **Album:** i
 
-📅 2024-05-07 20:33:15
+📅 2024-05-08 18:57:24
 
 
-# **Disappearing One** / Chris Cornell
+# **Can't Change Me - French Version** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-05-07 19:59:18
+📅 2024-05-08 18:15:05
+
+
+# **Steel Rain** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-08 18:00:35
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -37,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-07 19:54:39
+📅 2024-05-08 17:54:53
 
 
 # **Disappearing One** / Chris Cornell
@@ -46,148 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-07 19:50:10
+📅 2024-05-08 17:50:26
 
 
-# **Moonchild** / Chris Cornell
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Euphoria Morning
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-05-07 19:46:06
+📅 2024-05-08 17:25:04
 
 
-# **Disappearing One** / Chris Cornell
+# **Not Your Kind of People** / Garbage
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
 
-**Album:** Euphoria Morning
+**Album:** Not Your Kind of People
 
-📅 2024-05-07 19:41:55
+📅 2024-05-08 17:09:21
 
 
-# **Disappearing One** / Chris Cornell
+# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
 
-**Album:** Euphoria Morning
+**Album:** THE MOUSE & THE MASK
 
-📅 2024-05-07 19:31:27
+📅 2024-05-08 17:00:27
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **i** / Kendrick Lamar
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
-**Album:** Euphoria Morning
+**Album:** i
 
-📅 2024-05-07 19:06:20
+📅 2024-05-08 16:57:59
 
 
-# **Disappearing One** / Chris Cornell
+# **C U Girl** / Steve Lacy
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: C U Girl](https://i.scdn.co/image/ab67616d00001e02447d52024a6ac588ad418ae5)
 
-**Album:** Euphoria Morning
+**Album:** C U Girl
 
-📅 2024-05-07 18:52:28
+📅 2024-05-08 15:15:27
 
 
-# **Deeply** / bôa
+# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
 
-**Album:** Twilight
+**Album:** THE MOUSE & THE MASK
 
-📅 2024-05-07 17:15:05
+📅 2024-05-08 15:05:00
 
 
-# **Scoring** / bôa
+# **i** / Kendrick Lamar
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
-**Album:** Twilight
+**Album:** i
 
-📅 2024-05-07 16:58:51
+📅 2024-05-08 15:02:33
 
 
-# **Anna Maria** / bôa
+# **Babydoll** / Dominic Fike
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Don't Forget About Me, Demos](https://i.scdn.co/image/ab67616d00001e027b1b6f41c1645af9757d5616)
 
-**Album:** Twilight
+**Album:** Don't Forget About Me, Demos
 
-📅 2024-05-07 15:22:14
+📅 2024-05-08 14:50:38
 
 
-# **Scoring** / bôa
+# **C U Girl** / Steve Lacy
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: C U Girl](https://i.scdn.co/image/ab67616d00001e02447d52024a6ac588ad418ae5)
 
-**Album:** Twilight
+**Album:** C U Girl
 
-📅 2024-05-07 14:58:48
+📅 2024-05-08 14:48:59
 
 
-# **Deeply** / bôa
+# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
 
-**Album:** Twilight
+**Album:** THE MOUSE & THE MASK
 
-📅 2024-05-07 12:30:28
+📅 2024-05-08 14:46:49
 
 
-# **Scoring** / bôa
+# **i** / Kendrick Lamar
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
-**Album:** Twilight
+**Album:** i
 
-📅 2024-05-07 12:03:12
+📅 2024-05-08 14:44:22
 
 
-# **Scoring** / bôa
+# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
 
-**Album:** Twilight
+**Album:** THE MOUSE & THE MASK
 
-📅 2024-05-07 11:54:14
+📅 2024-05-08 14:33:49
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **i** / Kendrick Lamar
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** i
 
-📅 2024-05-07 11:37:03
-
-
-# **Sweet Euphoria** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-07 11:18:36
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-07 11:07:41
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-07 11:05:08
+📅 2024-05-08 14:31:22
