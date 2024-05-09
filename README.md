@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Navajo** / Masego
+
+![Foto del album: Navajo](https://i.scdn.co/image/ab67616d00001e0228f137f2d8bda3ddd5d045cf)
+
+**Album:** Navajo
+
+📅 2024-05-08 22:49:23
+
+
+# **i** / Kendrick Lamar
+
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+
+**Album:** i
+
+📅 2024-05-08 22:46:09
+
+
+# **i** / Kendrick Lamar
+
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+
+**Album:** i
+
+📅 2024-05-08 22:41:17
+
+
+# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
+
+![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
+
+**Album:** THE MOUSE & THE MASK
+
+📅 2024-05-08 20:10:17
+
+
 # **i** / Kendrick Lamar
 
 ![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** C U Girl
 
 📅 2024-05-08 14:48:59
-
-
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
-
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
-
-**Album:** THE MOUSE & THE MASK
-
-📅 2024-05-08 14:46:49
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-05-08 14:44:22
-
-
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
-
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
-
-**Album:** THE MOUSE & THE MASK
-
-📅 2024-05-08 14:33:49
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-05-08 14:31:22
