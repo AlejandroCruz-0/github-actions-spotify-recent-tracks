@@ -13,13 +13,157 @@ Nombre: **lotario1999**
 
 
 
-# **Navajo** / Masego
+# **Fever** / The Black Keys
 
-![Foto del album: Navajo](https://i.scdn.co/image/ab67616d00001e0228f137f2d8bda3ddd5d045cf)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Navajo
+**Album:** Turn Blue
 
-📅 2024-05-08 22:49:23
+📅 2024-05-09 18:20:01
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-05-09 18:06:46
+
+
+# **Twilight** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-09 18:01:15
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-09 16:48:57
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-09 15:56:31
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-09 15:52:55
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-05-09 15:35:46
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2024-05-09 11:46:33
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-05-09 11:36:19
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-09 11:32:10
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2024-05-09 11:12:55
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-05-09 10:59:16
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2024-05-09 10:55:47
+
+
+# **Canned Heat - Remastered 2006** / Jamiroquai
+
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+
+**Album:** Driving Songs
+
+📅 2024-05-09 10:51:54
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2024-05-09 10:48:05
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-05-09 10:42:46
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-05-09 10:36:30
 
 
 # **i** / Kendrick Lamar
@@ -28,79 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** i
 
-📅 2024-05-08 22:46:09
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
-
-**Album:** i
-
-📅 2024-05-08 22:41:17
-
-
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
-
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
-
-**Album:** THE MOUSE & THE MASK
-
-📅 2024-05-08 20:10:17
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
-
-**Album:** i
-
-📅 2024-05-08 19:26:43
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
-
-**Album:** i
-
-📅 2024-05-08 19:01:21
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-05-08 18:57:24
-
-
-# **Can't Change Me - French Version** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-08 18:15:05
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-08 18:00:35
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-08 17:54:53
+📅 2024-05-09 10:31:56
 
 
 # **Disappearing One** / Chris Cornell
@@ -109,85 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-08 17:50:26
+📅 2024-05-09 10:27:46
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2024-05-08 17:25:04
-
-
-# **Not Your Kind of People** / Garbage
-
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
-
-**Album:** Not Your Kind of People
-
-📅 2024-05-08 17:09:21
-
-
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
-
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
-
-**Album:** THE MOUSE & THE MASK
-
-📅 2024-05-08 17:00:27
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-05-08 16:57:59
-
-
-# **C U Girl** / Steve Lacy
-
-![Foto del album: C U Girl](https://i.scdn.co/image/ab67616d00001e02447d52024a6ac588ad418ae5)
-
-**Album:** C U Girl
-
-📅 2024-05-08 15:15:27
-
-
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
-
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
-
-**Album:** THE MOUSE & THE MASK
-
-📅 2024-05-08 15:05:00
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-05-08 15:02:33
-
-
-# **Babydoll** / Dominic Fike
-
-![Foto del album: Don't Forget About Me, Demos](https://i.scdn.co/image/ab67616d00001e027b1b6f41c1645af9757d5616)
-
-**Album:** Don't Forget About Me, Demos
-
-📅 2024-05-08 14:50:38
-
-
-# **C U Girl** / Steve Lacy
-
-![Foto del album: C U Girl](https://i.scdn.co/image/ab67616d00001e02447d52024a6ac588ad418ae5)
-
-**Album:** C U Girl
-
-📅 2024-05-08 14:48:59
+📅 2024-05-09 10:23:42
