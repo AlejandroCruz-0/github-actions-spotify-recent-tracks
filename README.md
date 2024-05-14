@@ -13,85 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 20:17:33
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 20:13:20
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 20:09:08
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 19:57:29
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 19:53:29
-
-
-# **Mission** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 14:54:35
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 14:28:54
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 14:24:37
-
-
 # **Pillow Of Your Bones** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-05-12 14:12:30
+📅 2024-05-13 20:13:27
 
 
 # **Disappearing One** / Chris Cornell
@@ -100,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-12 14:08:02
+📅 2024-05-13 20:08:59
 
 
 # **Sweet Euphoria** / Chris Cornell
@@ -109,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-12 10:56:06
+📅 2024-05-13 19:27:22
 
 
 # **Moonchild** / Chris Cornell
@@ -118,16 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-12 10:30:04
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-12 10:25:36
+📅 2024-05-13 19:17:09
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -136,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-11 14:53:43
+📅 2024-05-13 17:49:32
 
 
 # **Disappearing One** / Chris Cornell
@@ -145,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-11 14:38:35
+📅 2024-05-13 17:34:00
 
 
 # **Moonchild** / Chris Cornell
@@ -154,7 +73,16 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-11 14:17:31
+📅 2024-05-13 17:02:49
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 16:19:50
 
 
 # **Disappearing One** / Chris Cornell
@@ -163,16 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-11 14:00:52
-
-
-# **Can't Change Me - French Version** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-11 13:56:37
+📅 2024-05-13 16:07:27
 
 
 # **Steel Rain** / Chris Cornell
@@ -181,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-11 13:52:50
+📅 2024-05-13 14:12:43
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -190,4 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-11 13:47:08
+📅 2024-05-13 14:02:14
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 13:57:04
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 13:53:17
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 13:50:10
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 13:44:09
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 13:39:30
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 12:52:30
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 12:19:50
+
+
+# **Steel Rain** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 11:41:05
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-13 11:28:50
