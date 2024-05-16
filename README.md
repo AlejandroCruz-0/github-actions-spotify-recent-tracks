@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **What You Are** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-05-15 18:22:20
+
+
 # **Gasoline** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Lonerism
 
 📅 2024-05-15 09:34:12
-
-
-# **Them Changes** / Thundercat
-
-![Foto del album: Drunk](https://i.scdn.co/image/ab67616d00001e0285c5e6c686ced3e43bae2748)
-
-**Album:** Drunk
-
-📅 2024-05-15 09:30:39
