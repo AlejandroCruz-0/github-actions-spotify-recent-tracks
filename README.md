@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **What You Are** / Audioslave
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Audioslave
+**Album:** Euphoria Morning
 
-📅 2024-05-15 18:22:20
+📅 2024-05-16 19:18:56
 
 
-# **Gasoline** / Audioslave
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Audioslave
+**Album:** Euphoria Morning
 
-📅 2024-05-15 18:05:23
+📅 2024-05-16 19:12:32
 
 
-# **Show Me How to Live** / Audioslave
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Audioslave
+**Album:** Euphoria Morning
 
-📅 2024-05-15 17:55:49
+📅 2024-05-16 19:05:03
 
 
-# **Cochise** / Audioslave
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Audioslave
+**Album:** Euphoria Morning
 
-📅 2024-05-15 17:51:12
+📅 2024-05-16 18:53:33
 
 
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
+# **When I'm Down** / Chris Cornell
 
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** THE MOUSE & THE MASK
+**Album:** Euphoria Morning
 
-📅 2024-05-15 17:37:11
+📅 2024-05-16 18:16:24
 
 
-# **i** / Kendrick Lamar
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** i
+**Album:** Euphoria Morning
 
-📅 2024-05-15 17:34:44
+📅 2024-05-16 18:05:25
 
 
-# **Eden** / Hooverphonic
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Blue Wonder Power Milk
+**Album:** Euphoria Morning
 
-📅 2024-05-15 16:42:34
+📅 2024-05-16 17:49:22
 
 
-# **2 Wicky** / Hooverphonic
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** A New Stereophonic Sound Spectacular
+**Album:** Euphoria Morning
 
-📅 2024-05-15 16:24:32
+📅 2024-05-16 17:38:53
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **In the End** / Linkin Park
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
 
-**Album:** With Orchestra Live
+**Album:** Hybrid Theory
 
-📅 2024-05-15 16:19:47
+📅 2024-05-16 13:23:52
 
 
-# **Mad About You** / Hooverphonic
+# **By Myself** / Linkin Park
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
 
-**Album:** The Magnificent Tree
+**Album:** Hybrid Theory
 
-📅 2024-05-15 16:15:36
+📅 2024-05-16 12:59:01
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Runaway** / Linkin Park
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
 
-**Album:** With Orchestra Live
+**Album:** Hybrid Theory
 
-📅 2024-05-15 14:22:01
+📅 2024-05-16 12:55:51
 
 
-# **Mad About You** / Hooverphonic
+# **Crawling** / Linkin Park
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
 
-**Album:** The Magnificent Tree
+**Album:** Hybrid Theory
 
-📅 2024-05-15 14:11:38
+📅 2024-05-16 12:52:40
 
 
-# **Mad About You** / Hooverphonic
+# **Points of Authority** / Linkin Park
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
 
-**Album:** The Magnificent Tree
+**Album:** Hybrid Theory
 
-📅 2024-05-15 11:11:23
+📅 2024-05-16 12:49:11
 
 
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
+# **Rolling in the Deep** / Adele
 
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
+![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e022118bf9b198b05a95ded6300)
 
-**Album:** THE MOUSE & THE MASK
+**Album:** 21
 
-📅 2024-05-15 10:12:25
+📅 2024-05-16 12:44:53
 
 
-# **i** / Kendrick Lamar
+# **I Do What I Want** / MISSIO
 
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** i
+**Album:** Loner
 
-📅 2024-05-15 10:01:54
+📅 2024-05-16 11:53:13
 
 
-# **Party And Bullshit** / The Notorious B.I.G.
+# **Animal** / MISSIO
 
-![Foto del album: Whos The Man ? Soundtrack](https://i.scdn.co/image/ab67616d00001e02248667da8d589ce025f1ba56)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Whos The Man ? Soundtrack
+**Album:** Loner
 
-📅 2024-05-15 09:46:23
+📅 2024-05-16 11:41:01
 
 
-# **Benzi Box** / DANGERDOOM|MF DOOM|Danger Mouse|CeeLo Green
+# **Runnin' Down A Dream** / Tom Petty
 
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** THE MOUSE & THE MASK
+**Album:** Full Moon Fever
 
-📅 2024-05-15 09:42:43
+📅 2024-05-16 11:34:14
 
 
-# **i** / Kendrick Lamar
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** i
+**Album:** Full Moon Fever
 
-📅 2024-05-15 09:39:42
+📅 2024-05-16 11:23:06
 
 
-# **Babydoll** / Dominic Fike
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Don't Forget About Me, Demos](https://i.scdn.co/image/ab67616d00001e027b1b6f41c1645af9757d5616)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Don't Forget About Me, Demos
+**Album:** Euphoria Morning
 
-📅 2024-05-15 09:35:50
+📅 2024-05-16 11:00:55
 
 
-# **Elephant** / Tame Impala
+# **Moonchild** / Chris Cornell
 
-![Foto del album: Lonerism](https://i.scdn.co/image/ab67616d00001e02370c12f82872c9cfaee80193)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Lonerism
+**Album:** Euphoria Morning
 
-📅 2024-05-15 09:34:12
+📅 2024-05-16 10:57:00
