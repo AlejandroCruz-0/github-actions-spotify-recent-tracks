@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Bones** / Imagine Dragons
+
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+
+**Album:** Mercury - Acts 1 & 2
+
+📅 2024-05-23 19:16:52
+
+
 # **Rock It for Me** / Caravan Palace
 
 ![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2024-05-22 17:28:06
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-05-22 17:19:32
