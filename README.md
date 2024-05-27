@@ -13,40 +13,76 @@ Nombre: **lotario1999**
 
 
 
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 13:11:59
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 13:01:11
+
+
+# **Welcome** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 12:52:20
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 12:38:00
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 12:35:20
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 12:30:45
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-05-26 12:26:42
+
+
 # **Show Me How to Live** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
 **Album:** Audioslave
 
-📅 2024-05-25 18:34:42
-
-
-# **What You Are** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-25 11:46:17
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-25 11:33:08
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-25 11:28:29
+📅 2024-05-26 12:10:40
 
 
 # **Cochise** / Audioslave
@@ -55,7 +91,61 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
-📅 2024-05-25 11:23:51
+📅 2024-05-26 12:06:02
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-05-26 11:49:41
+
+
+# **Gasoline** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-05-26 11:44:06
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-05-26 11:39:27
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-05-26 11:34:49
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-26 11:30:31
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-26 11:26:25
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -64,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-25 11:19:41
+📅 2024-05-26 10:45:57
 
 
 # **Disappearing One** / Chris Cornell
@@ -73,97 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-05-25 11:15:14
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-25 11:10:59
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-25 11:05:43
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-25 11:01:31
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-24 14:43:21
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-24 14:22:56
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-24 14:17:05
-
-
-# **Like a Stone** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-24 13:23:29
-
-
-# **What You Are** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-24 13:13:27
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-24 13:09:18
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-24 13:04:38
+📅 2024-05-26 10:41:30
 
 
 # **Cochise** / Audioslave
@@ -172,22 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
-📅 2024-05-24 13:00:01
+📅 2024-05-26 10:37:14
 
 
-# **i** / Kendrick Lamar
+# **Gasoline** / Audioslave
 
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** i
+**Album:** Audioslave
 
-📅 2024-05-24 12:45:31
+📅 2024-05-25 18:45:17
 
 
-# **Bones** / Imagine Dragons
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Mercury - Acts 1 & 2
+**Album:** Audioslave
 
-📅 2024-05-23 19:16:52
+📅 2024-05-25 18:34:42
