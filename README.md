@@ -13,31 +13,103 @@ Nombre: **lotario1999**
 
 
 
-# **Deeply** / bôa
+# **Sledgehammer** / Peter Gabriel
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: So (Remastered)](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
 
-**Album:** Twilight
+**Album:** So (Remastered)
 
-📅 2024-05-26 13:11:59
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-05-26 13:01:11
+📅 2024-05-27 19:10:42
 
 
-# **Welcome** / bôa
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Twilight
+**Album:** El Camino
 
-📅 2024-05-26 12:52:20
+📅 2024-05-27 18:34:03
+
+
+# **Oceans & Streams** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2024-05-27 18:17:04
+
+
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-05-27 18:03:21
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-05-27 17:57:59
+
+
+# **I Want You** / C.J.
+
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
+
+**Album:** The Music of Grand Theft Auto IV
+
+📅 2024-05-27 17:53:49
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2024-05-27 17:50:22
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2024-05-27 17:46:50
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2024-05-27 16:55:01
+
+
+# **So He Won't Break** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2024-05-27 16:42:28
+
+
+# **Rock the Casbah - Remastered** / The Clash
+
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+
+**Album:** Combat Rock (Remastered)
+
+📅 2024-05-27 16:35:51
 
 
 # **One Day** / bôa
@@ -46,148 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-05-26 12:38:00
+📅 2024-05-27 16:32:08
 
 
-# **Deeply** / bôa
+# **Dreamer** / Supertramp
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
 
-**Album:** Twilight
+**Album:** Crime Of The Century (Remastered)
 
-📅 2024-05-26 12:35:20
+📅 2024-05-27 16:29:27
 
 
-# **Scoring** / bôa
+# **Corner of the Earth - Remastered 2006** / Jamiroquai
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Summer Songs](https://i.scdn.co/image/ab67616d00001e02c5b788721910979f37bbfd4a)
 
-**Album:** Twilight
+**Album:** Summer Songs
 
-📅 2024-05-26 12:30:45
+📅 2024-05-27 16:25:52
 
 
-# **Duvet** / bôa
+# **The Doomed** / A Perfect Circle
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e0240c51247cdb3d30032c2fdf9)
 
-**Album:** Twilight
+**Album:** Eat The Elephant
 
-📅 2024-05-26 12:26:42
+📅 2024-05-27 16:21:56
 
 
-# **Show Me How to Live** / Audioslave
+# **Limp** / Fiona Apple
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Audioslave
+**Album:** When The Pawn...
 
-📅 2024-05-26 12:10:40
+📅 2024-05-27 16:17:14
 
 
-# **Cochise** / Audioslave
+# **Burn the Witch** / Radiohead
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** Audioslave
+**Album:** A Moon Shaped Pool
 
-📅 2024-05-26 12:06:02
+📅 2024-05-27 16:13:44
 
 
-# **Jeremy** / Pearl Jam
+# **Animals** / Maroon 5
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
 
-**Album:** Ten
+**Album:** V
 
-📅 2024-05-26 11:49:41
+📅 2024-05-27 16:10:02
 
 
-# **Gasoline** / Audioslave
+# **Pool Walk** / Cristobal Tapia De Veer
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Audioslave
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-05-26 11:44:06
+📅 2024-05-27 15:43:00
 
 
-# **Show Me How to Live** / Audioslave
+# **Breakfast In America - 2010 Remastered** / Supertramp
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Audioslave
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-05-26 11:39:27
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-26 11:34:49
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-26 11:30:31
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-26 11:26:25
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-26 10:45:57
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-26 10:41:30
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-26 10:37:14
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-25 18:45:17
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-25 18:34:42
+📅 2024-05-27 15:27:01
