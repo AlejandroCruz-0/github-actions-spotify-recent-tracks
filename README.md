@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Sledgehammer** / Peter Gabriel
-
-![Foto del album: So (Remastered)](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
-
-**Album:** So (Remastered)
-
-📅 2024-05-27 19:10:42
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-05-27 18:34:03
-
-
-# **Oceans & Streams** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2024-05-27 18:17:04
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-05-27 18:03:21
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-05-27 17:57:59
-
-
-# **I Want You** / C.J.
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2024-05-27 17:53:49
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2024-05-27 17:50:22
-
-
 # **Let a Poor Man Be** / Clutch
 
 ![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
 **Album:** Strange Cousins From the West
 
-📅 2024-05-27 17:46:50
+📅 2024-05-28 17:18:42
 
 
-# **Plug in Baby** / Muse
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Origin of Symmetry
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-05-27 16:55:01
-
-
-# **So He Won't Break** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2024-05-27 16:42:28
+📅 2024-05-28 17:12:02
 
 
-# **Rock the Casbah - Remastered** / The Clash
+# **Not Your Kind of People** / Garbage
 
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
 
-**Album:** Combat Rock (Remastered)
+**Album:** Not Your Kind of People
 
-📅 2024-05-27 16:35:51
-
-
-# **One Day** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-05-27 16:32:08
+📅 2024-05-28 17:08:18
 
 
-# **Dreamer** / Supertramp
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Crime Of The Century (Remastered)](https://i.scdn.co/image/ab67616d00001e0289d7032603b62e9aedb03fa2)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Crime Of The Century (Remastered)
+**Album:** Audioslave
 
-📅 2024-05-27 16:29:27
-
-
-# **Corner of the Earth - Remastered 2006** / Jamiroquai
-
-![Foto del album: Summer Songs](https://i.scdn.co/image/ab67616d00001e02c5b788721910979f37bbfd4a)
-
-**Album:** Summer Songs
-
-📅 2024-05-27 16:25:52
+📅 2024-05-28 17:03:20
 
 
-# **The Doomed** / A Perfect Circle
+# **Cochise** / Audioslave
 
-![Foto del album: Eat The Elephant](https://i.scdn.co/image/ab67616d00001e0240c51247cdb3d30032c2fdf9)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Eat The Elephant
+**Album:** Audioslave
 
-📅 2024-05-27 16:21:56
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2024-05-27 16:17:14
+📅 2024-05-28 16:58:52
 
 
-# **Burn the Witch** / Radiohead
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** A Moon Shaped Pool
+**Album:** iii
 
-📅 2024-05-27 16:13:44
-
-
-# **Animals** / Maroon 5
-
-![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
-
-**Album:** V
-
-📅 2024-05-27 16:10:02
+📅 2024-05-28 12:27:35
 
 
-# **Pool Walk** / Cristobal Tapia De Veer
+# **Sledgehammer** / Peter Gabriel
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: So (Remastered)](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** So (Remastered)
 
-📅 2024-05-27 15:43:00
+📅 2024-05-28 12:17:27
 
 
-# **Breakfast In America - 2010 Remastered** / Supertramp
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-05-28 12:11:48
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-05-28 11:47:41
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-05-28 11:32:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-05-28 11:28:40
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-05-28 10:42:45
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-05-27 15:27:01
+📅 2024-05-28 10:26:48
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-05-28 10:20:44
+
+
+# **i** / Kendrick Lamar
+
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+
+**Album:** i
+
+📅 2024-05-28 10:16:28
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-28 09:59:20
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-28 09:54:53
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-28 09:40:51
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-28 09:28:55
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-28 09:22:29
