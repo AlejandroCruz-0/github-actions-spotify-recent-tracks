@@ -13,13 +13,121 @@ Nombre: **lotario1999**
 
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-05-30 21:00:03
+📅 2024-05-31 18:28:46
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-05-31 18:25:42
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 18:18:21
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 18:14:36
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 18:11:27
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 17:19:24
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 17:09:20
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 15:40:30
+
+
+# **Steel Rain** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 11:49:59
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 11:39:26
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 11:34:58
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 11:31:07
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-05-31 11:26:10
 
 
 # **Mad About You** / Hooverphonic
@@ -28,166 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-05-30 20:53:29
+📅 2024-05-31 11:22:24
 
 
-# **Steel Rain** / Chris Cornell
+# **Your Woman** / White Town
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
-**Album:** Euphoria Morning
+**Album:** Women in Technology
 
-📅 2024-05-30 18:15:37
+📅 2024-05-31 11:18:45
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Parachutes** / Coldplay
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
 
-**Album:** Euphoria Morning
+**Album:** Parachutes
 
-📅 2024-05-30 17:49:30
+📅 2024-05-31 11:11:26
 
 
-# **Disappearing One** / Chris Cornell
+# **Spies** / Coldplay
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
 
-**Album:** Euphoria Morning
+**Album:** Parachutes
 
-📅 2024-05-30 17:45:02
+📅 2024-05-31 11:09:57
 
 
-# **Can't Change Me - French Version** / Chris Cornell
+# **Shiver** / Coldplay
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
 
-**Album:** Euphoria Morning
+**Album:** Parachutes
 
-📅 2024-05-30 17:29:53
+📅 2024-05-31 10:36:15
 
 
-# **Steel Rain** / Chris Cornell
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2024-05-30 17:19:31
+📅 2024-05-31 10:30:50
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Euphoria Morning
+**Album:** Bueninvento
 
-📅 2024-05-30 17:13:49
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-30 17:09:21
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-30 16:22:19
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-05-30 16:11:21
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 16:07:37
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 15:59:46
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 15:49:27
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 15:44:49
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 15:35:42
-
-
-# **What You Are** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 14:58:36
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 14:47:34
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 14:42:55
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-05-30 14:38:15
+📅 2024-05-31 10:25:16
