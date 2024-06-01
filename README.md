@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-05-31 23:49:33
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-05-31 23:43:59
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2024-05-31 23:40:22
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-05-31 18:40:19
+
+
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Parachutes
 
 📅 2024-05-31 11:11:26
-
-
-# **Spies** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
-
-**Album:** Parachutes
-
-📅 2024-05-31 11:09:57
-
-
-# **Shiver** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
-
-**Album:** Parachutes
-
-📅 2024-05-31 10:36:15
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-05-31 10:30:50
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-05-31 10:25:16
