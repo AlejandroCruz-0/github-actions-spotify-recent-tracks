@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2024-06-01 20:37:07
+
+
 # **Condemnation** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2024-06-01 10:56:20
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-06-01 10:50:45
