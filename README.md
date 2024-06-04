@@ -13,22 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Nobody Speak** / DJ Shadow|Run The Jewels
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** The Mountain Will Fall
+**Album:** Audioslave
 
-📅 2024-06-03 00:01:10
+📅 2024-06-03 20:00:07
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **Cochise** / Audioslave
 
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** The Very Best of Daryl Hall / John Oates
+**Album:** Audioslave
 
-📅 2024-06-02 23:57:47
+📅 2024-06-03 19:55:29
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-06-03 17:37:28
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-06-03 17:27:08
 
 
 # **Scoring** / bôa
@@ -37,70 +55,97 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-06-02 23:53:37
+📅 2024-06-03 17:22:33
 
 
-# **Mad About You** / Hooverphonic
+# **Little Miss** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2024-06-02 23:49:32
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-06-02 23:45:51
+📅 2024-06-03 16:47:53
 
 
-# **Will Do** / TV On The Radio
+# **Duvet - Acoustic** / bôa
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Nine Types of Light
+**Album:** Twilight
 
-📅 2024-06-02 23:19:59
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-02 20:56:36
+📅 2024-06-03 16:36:57
 
 
-# **I Feel You** / Depeche Mode
+# **Anna Maria** / bôa
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Twilight
 
-📅 2024-06-02 20:44:15
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-06-02 20:39:39
+📅 2024-06-03 16:31:43
 
 
-# **Badaboum** / Hooverphonic
+# **For Jasmine** / bôa
 
-![Foto del album: In Wonderland](https://i.scdn.co/image/ab67616d00001e029e99c13f72a625d32358f1c3)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** In Wonderland
+**Album:** Twilight
 
-📅 2024-06-02 20:26:46
+📅 2024-06-03 16:27:39
+
+
+# **Welcome** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-06-03 16:22:21
+
+
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-06-03 16:17:16
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-06-03 16:14:34
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-06-03 16:10:00
+
+
+# **Eden** / Hooverphonic
+
+![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+
+**Album:** Blue Wonder Power Milk
+
+📅 2024-06-03 15:40:29
+
+
+# **2 Wicky** / Hooverphonic
+
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+
+**Album:** A New Stereophonic Sound Spectacular
+
+📅 2024-06-03 15:29:58
 
 
 # **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
@@ -109,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** With Orchestra Live
 
-📅 2024-06-02 20:23:07
+📅 2024-06-03 15:25:12
 
 
 # **Mad About You** / Hooverphonic
@@ -118,25 +163,16 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-02 20:19:07
+📅 2024-06-03 15:21:12
 
 
-# **White Town** / White Town
+# **2 Wicky** / Hooverphonic
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
 
-**Album:** Women in Technology
+**Album:** A New Stereophonic Sound Spectacular
 
-📅 2024-06-02 17:13:00
-
-
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
-
-**Album:** Jagged Little Pill (2015 Remaster)
-
-📅 2024-06-02 16:57:12
+📅 2024-06-03 14:19:02
 
 
 # **Mad About You** / Hooverphonic
@@ -145,49 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-02 16:53:01
+📅 2024-06-03 14:00:25
 
 
-# **Your Woman** / White Town
+# **My World Is Empty Without You** / The Supremes
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: I Hear A Symphony](https://i.scdn.co/image/ab67616d00001e0216a6e92d6f1c8a02d68b4e44)
 
-**Album:** Women in Technology
+**Album:** I Hear A Symphony
 
-📅 2024-06-02 16:49:18
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-06-02 15:17:27
-
-
-# **Babydoll** / Dominic Fike
-
-![Foto del album: Don't Forget About Me, Demos](https://i.scdn.co/image/ab67616d00001e027b1b6f41c1645af9757d5616)
-
-**Album:** Don't Forget About Me, Demos
-
-📅 2024-06-02 15:00:32
-
-
-# **Crosshairs** / DANGERDOOM|MF DOOM|Danger Mouse
-
-![Foto del album: THE MOUSE & THE MASK](https://i.scdn.co/image/ab67616d00001e026c3fb85147fcf2972923cf2d)
-
-**Album:** THE MOUSE & THE MASK
-
-📅 2024-06-02 14:58:53
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-06-02 14:56:26
+📅 2024-06-03 13:56:44
