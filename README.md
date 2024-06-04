@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Caminar Sola** / Julieta Venegas
+
+![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
+
+**Album:** Caminar Sola
+
+📅 2024-06-03 23:52:12
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-06-03 23:48:49
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-06-03 23:45:07
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+
+**Album:** Strange Cousins From the West
+
+📅 2024-06-03 23:42:20
+
+
+# **My World Is Empty Without You** / The Supremes
+
+![Foto del album: I Hear A Symphony](https://i.scdn.co/image/ab67616d00001e0216a6e92d6f1c8a02d68b4e44)
+
+**Album:** I Hear A Symphony
+
+📅 2024-06-03 23:36:34
+
+
+# **You Keep Me Hangin' On** / The Supremes
+
+![Foto del album: The Supremes Sing Holland, Dozier, Holland](https://i.scdn.co/image/ab67616d00001e025422769f395bd15413e208ad)
+
+**Album:** The Supremes Sing Holland, Dozier, Holland
+
+📅 2024-06-03 23:33:59
+
+
+# **You Keep Me Hangin' On** / The Supremes
+
+![Foto del album: The Supremes Sing Holland, Dozier, Holland](https://i.scdn.co/image/ab67616d00001e025422769f395bd15413e208ad)
+
+**Album:** The Supremes Sing Holland, Dozier, Holland
+
+📅 2024-06-03 23:31:16
+
+
 # **Show Me How to Live** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2024-06-03 16:10:00
-
-
-# **Eden** / Hooverphonic
-
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
-
-**Album:** Blue Wonder Power Milk
-
-📅 2024-06-03 15:40:29
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2024-06-03 15:29:58
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2024-06-03 15:25:12
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-03 15:21:12
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2024-06-03 14:19:02
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-03 14:00:25
-
-
-# **My World Is Empty Without You** / The Supremes
-
-![Foto del album: I Hear A Symphony](https://i.scdn.co/image/ab67616d00001e0216a6e92d6f1c8a02d68b4e44)
-
-**Album:** I Hear A Symphony
-
-📅 2024-06-03 13:56:44
