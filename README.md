@@ -13,13 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Caminar Sola** / Julieta Venegas
+# **Avalanches** / Caravan Palace
 
-![Foto del album: Caminar Sola](https://i.scdn.co/image/ab67616d00001e0235235da04c0c9873b16c88bd)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Caminar Sola
+**Album:** Gangbusters Melody Club
 
-📅 2024-06-03 23:52:12
+📅 2024-06-04 17:54:08
+
+
+# **Raccoons** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-06-04 17:49:59
+
+
+# **81 Special** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2024-06-04 17:46:31
 
 
 # **Mirrors** / Caravan Palace
@@ -28,166 +46,148 @@ Nombre: **lotario1999**
 
 **Album:** Gangbusters Melody Club
 
-📅 2024-06-03 23:48:49
+📅 2024-06-04 17:42:35
 
 
-# **MAD** / Caravan Palace
+# **Smokestack Lightnin'** / Howlin' Wolf
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Gangbusters Melody Club
+**Album:** Moanin' In The Moonlight
 
-📅 2024-06-03 23:45:07
+📅 2024-06-04 17:37:29
 
 
-# **Let a Poor Man Be** / Clutch
+# **Smokestack Lightnin'** / Howlin' Wolf
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
 
-**Album:** Strange Cousins From the West
+**Album:** Moanin' In The Moonlight
 
-📅 2024-06-03 23:42:20
+📅 2024-06-04 17:34:56
 
 
-# **My World Is Empty Without You** / The Supremes
+# **Short Change Hero** / The Heavy
 
-![Foto del album: I Hear A Symphony](https://i.scdn.co/image/ab67616d00001e0216a6e92d6f1c8a02d68b4e44)
+![Foto del album: The House That Dirt Built](https://i.scdn.co/image/ab67616d00001e02463986d828c59a03f2ab0a3f)
 
-**Album:** I Hear A Symphony
+**Album:** The House That Dirt Built
 
-📅 2024-06-03 23:36:34
+📅 2024-06-04 17:33:37
 
 
-# **You Keep Me Hangin' On** / The Supremes
+# **Nevermind** / Leonard Cohen
 
-![Foto del album: The Supremes Sing Holland, Dozier, Holland](https://i.scdn.co/image/ab67616d00001e025422769f395bd15413e208ad)
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
 
-**Album:** The Supremes Sing Holland, Dozier, Holland
+**Album:** Popular Problems
 
-📅 2024-06-03 23:33:59
+📅 2024-06-04 17:27:14
 
 
-# **You Keep Me Hangin' On** / The Supremes
+# **Nevermind** / Leonard Cohen
 
-![Foto del album: The Supremes Sing Holland, Dozier, Holland](https://i.scdn.co/image/ab67616d00001e025422769f395bd15413e208ad)
+![Foto del album: Popular Problems](https://i.scdn.co/image/ab67616d00001e029fa34c252ff2ded009b55117)
 
-**Album:** The Supremes Sing Holland, Dozier, Holland
+**Album:** Popular Problems
 
-📅 2024-06-03 23:31:16
+📅 2024-06-04 17:06:48
 
 
-# **Show Me How to Live** / Audioslave
+# **Oh I Wept** / Free
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Audioslave
+**Album:** Fire And Water
 
-📅 2024-06-03 20:00:07
+📅 2024-06-04 16:54:32
 
 
-# **Cochise** / Audioslave
+# **Forget Myself** / Elbow
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Audioslave
+**Album:** Leaders Of The Free World
 
-📅 2024-06-03 19:55:29
+📅 2024-06-04 16:36:42
 
 
-# **One Day** / bôa
+# **I Want You** / C.J.
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
 
-**Album:** Twilight
+**Album:** The Music of Grand Theft Auto IV
 
-📅 2024-06-03 17:37:28
+📅 2024-06-04 16:31:20
 
 
-# **Deeply** / bôa
+# **Legendary** / Welshly Arms
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Twilight
+**Album:** No Place Is Home
 
-📅 2024-06-03 17:27:08
+📅 2024-06-04 16:14:54
 
 
-# **Scoring** / bôa
+# **Burn the Witch** / Radiohead
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** Twilight
+**Album:** A Moon Shaped Pool
 
-📅 2024-06-03 17:22:33
+📅 2024-06-04 16:03:27
 
 
-# **Little Miss** / bôa
+# **Animals** / Maroon 5
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
 
-**Album:** Twilight
+**Album:** V
 
-📅 2024-06-03 16:47:53
+📅 2024-06-04 15:59:45
 
 
-# **Duvet - Acoustic** / bôa
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2024-06-03 16:36:57
+📅 2024-06-04 15:54:44
 
 
-# **Anna Maria** / bôa
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2024-06-03 16:31:43
+📅 2024-06-04 15:50:48
 
 
-# **For Jasmine** / bôa
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2024-06-03 16:27:39
+📅 2024-06-04 14:43:04
 
 
-# **Welcome** / bôa
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
 
-**Album:** Twilight
+**Album:** With Orchestra Live
 
-📅 2024-06-03 16:22:21
+📅 2024-06-04 14:29:18
 
 
-# **One Day** / bôa
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2024-06-03 16:17:16
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-06-03 16:14:34
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-06-03 16:10:00
+📅 2024-06-04 14:18:33
