@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2024-06-05 18:50:41
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Moanin' In The Moonlight
 
 📅 2024-06-04 17:34:56
-
-
-# **Short Change Hero** / The Heavy
-
-![Foto del album: The House That Dirt Built](https://i.scdn.co/image/ab67616d00001e02463986d828c59a03f2ab0a3f)
-
-**Album:** The House That Dirt Built
-
-📅 2024-06-04 17:33:37
