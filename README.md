@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** With Orchestra Live
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-06-05 18:50:41
+📅 2024-06-06 17:42:36
 
 
-# **Mad About You** / Hooverphonic
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** The Magnificent Tree
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-06-05 18:40:36
+📅 2024-06-06 17:38:56
 
 
-# **Mad About You** / Hooverphonic
+# **Not Your Kind of People** / Garbage
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
 
-**Album:** The Magnificent Tree
+**Album:** Not Your Kind of People
 
-📅 2024-06-05 18:36:42
+📅 2024-06-06 17:35:11
 
 
-# **2 Wicky** / Hooverphonic
+# **Waltz #2 (XO)** / Elliott Smith
 
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** A New Stereophonic Sound Spectacular
+**Album:** XO
 
-📅 2024-06-05 11:34:02
+📅 2024-06-06 17:29:53
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Veil of Forgetting, Mother** / Nicolas Snyder
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Veil of Forgetting, Mother](https://i.scdn.co/image/ab67616d00001e02e12af2aa03992ee493677b27)
 
-**Album:** With Orchestra Live
+**Album:** Veil of Forgetting, Mother
 
-📅 2024-06-05 11:21:31
+📅 2024-06-06 17:24:13
 
 
-# **Mad About You** / Hooverphonic
+# **Levi's Dream** / Nicolas Snyder
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** The Magnificent Tree
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-05 11:17:32
+📅 2024-06-06 17:19:23
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Routine Maintenance** / Nicolas Snyder
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** With Orchestra Live
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-05 11:13:42
+📅 2024-06-06 16:53:06
 
 
-# **Mad About You** / Hooverphonic
+# **Levi's Dream** / Nicolas Snyder
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** The Magnificent Tree
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-05 11:09:43
+📅 2024-06-06 16:42:20
 
 
-# **Avalanches** / Caravan Palace
+# **Levi's Dream** / Nicolas Snyder
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Gangbusters Melody Club
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-05 11:01:25
+📅 2024-06-06 16:39:14
 
 
-# **81 Special** / Caravan Palace
+# **The Receiver (feat. Zineb Fikri)** / Nicolas Snyder|Zineb Fikri
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Gangbusters Melody Club
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-05 10:46:50
+📅 2024-06-06 16:36:53
 
 
-# **Mirrors** / Caravan Palace
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-05 10:33:03
+📅 2024-06-06 16:34:37
 
 
-# **Mirrors** / Caravan Palace
+# **Cochise** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-05 10:26:29
+📅 2024-06-06 16:30:00
 
 
-# **MAD** / Caravan Palace
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-05 10:16:22
+📅 2024-06-06 16:21:59
 
 
-# **Reverse** / Caravan Palace
+# **Cochise** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-04 18:04:31
+📅 2024-06-06 16:08:21
 
 
-# **Avalanches** / Caravan Palace
+# **Gasoline** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-04 17:54:08
+📅 2024-06-06 15:57:31
 
 
-# **Raccoons** / Caravan Palace
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-04 17:49:59
+📅 2024-06-06 15:43:00
 
 
-# **81 Special** / Caravan Palace
+# **Cochise** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-04 17:46:31
+📅 2024-06-06 15:38:22
 
 
-# **Mirrors** / Caravan Palace
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Gangbusters Melody Club
+**Album:** Audioslave
 
-📅 2024-06-04 17:42:35
+📅 2024-06-06 15:27:54
 
 
-# **Smokestack Lightnin'** / Howlin' Wolf
+# **Cochise** / Audioslave
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Moanin' In The Moonlight
+**Album:** Audioslave
 
-📅 2024-06-04 17:37:29
+📅 2024-06-06 15:23:16
 
 
-# **Smokestack Lightnin'** / Howlin' Wolf
+# **Limp** / Fiona Apple
 
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Moanin' In The Moonlight
+**Album:** When The Pawn...
 
-📅 2024-06-04 17:34:56
+📅 2024-06-06 15:18:54
