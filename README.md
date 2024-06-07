@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Scavengers** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-06 23:56:28
+
+
+# **Vesta** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-06 23:44:29
+
+
+# **Levi** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-06 23:42:36
+
+
+# **Levi's Dream** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-06 23:41:27
+
+
+# **This Road (The Mirror is a Trap – Alan Wake 2)** / Poe
+
+![Foto del album: Alan Wake 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e021fe62c0fe75825d87175f7ea)
+
+**Album:** Alan Wake 2 (Original Soundtrack)
+
+📅 2024-06-06 17:53:01
+
+
 # **My Favourite Game** / The Cardigans
 
 ![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Audioslave
 
 📅 2024-06-06 15:57:31
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-06 15:43:00
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-06 15:38:22
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-06 15:27:54
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-06 15:23:16
-
-
-# **Limp** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2024-06-06 15:18:54
