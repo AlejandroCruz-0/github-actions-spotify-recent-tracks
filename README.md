@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **What You Are** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-08 12:23:20
+
+
 # **Dead and Gone** / The Black Keys
 
 ![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gone Home: Original Soundtrack
 
 📅 2024-06-07 10:44:41
-
-
-# **Smells Like Sheep** / Nicholas Britell
-
-![Foto del album: The Big Short (Music from the Motion Picture)](https://i.scdn.co/image/ab67616d00001e024121efa2b335fc52b8a6f6c6)
-
-**Album:** The Big Short (Music from the Motion Picture)
-
-📅 2024-06-07 10:43:36
