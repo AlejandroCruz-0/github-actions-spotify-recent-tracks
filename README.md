@@ -13,67 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **What You Are** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-08 12:23:20
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2024-06-08 12:13:00
-
-
-# **Map of Your Head** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-06-08 12:09:19
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2024-06-08 12:03:24
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-06-08 11:57:42
-
-
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
-
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
-
-**Album:** Jagged Little Pill (2015 Remaster)
-
-📅 2024-06-08 11:54:01
-
-
 # **Special (2018 - Remaster)** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-06-08 11:49:52
+📅 2024-06-09 20:02:02
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-09 19:58:19
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-09 19:52:29
 
 
 # **Mad About You** / Hooverphonic
@@ -82,34 +46,34 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-08 11:45:22
+📅 2024-06-09 19:48:47
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Sparks** / Coldplay
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Parachutes
 
-📅 2024-06-08 11:38:41
-
-
-# **Not Your Kind of People** / Garbage
-
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
-
-**Album:** Not Your Kind of People
-
-📅 2024-06-08 11:28:35
+📅 2024-06-09 15:46:52
 
 
-# **Levi's Dream** / Nicolas Snyder
+# **Spies** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
+
+**Album:** Parachutes
+
+📅 2024-06-09 15:36:42
+
+
+# **Vesta** / Nicolas Snyder
 
 ![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
 **Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-08 11:13:19
+📅 2024-06-09 15:30:59
 
 
 # **Smells Like Sheep** / Nicholas Britell
@@ -118,16 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** The Big Short (Music from the Motion Picture)
 
-📅 2024-06-08 00:18:47
-
-
-# **Life Moves On** / Chris Remo
-
-![Foto del album: Gone Home: Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02303aa4ddc3326db309cc1694)
-
-**Album:** Gone Home: Original Soundtrack
-
-📅 2024-06-07 23:59:02
+📅 2024-06-09 13:22:56
 
 
 # **Scavengers** / Nicolas Snyder
@@ -136,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-07 23:57:58
+📅 2024-06-09 13:08:12
 
 
 # **Vesta** / Nicolas Snyder
@@ -145,49 +100,94 @@ Nombre: **lotario1999**
 
 **Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-07 23:55:56
+📅 2024-06-09 13:06:10
 
 
-# **Scavengers** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-07 12:12:20
-
-
-# **Vesta** / Nicolas Snyder
+# **Levi's Dream** / Nicolas Snyder
 
 ![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
 **Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-07 11:57:48
+📅 2024-06-09 13:01:37
 
 
-# **The Receiver (feat. Zineb Fikri)** / Nicolas Snyder|Zineb Fikri
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** Euphoria Morning
 
-📅 2024-06-07 11:55:57
-
-
-# **Carol** / Joe Wong
-
-![Foto del album: Carol & The End of The World (Soundtrack from the Netflix Series)](https://i.scdn.co/image/ab67616d00001e025c62badbf351cd5fdb7ab598)
-
-**Album:** Carol & The End of The World (Soundtrack from the Netflix Series)
-
-📅 2024-06-07 11:01:06
+📅 2024-06-09 12:53:46
 
 
-# **Life Moves On** / Chris Remo
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Gone Home: Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02303aa4ddc3326db309cc1694)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Gone Home: Original Soundtrack
+**Album:** Euphoria Morning
 
-📅 2024-06-07 10:44:41
+📅 2024-06-09 12:35:24
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-09 12:30:56
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-09 12:24:45
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-09 12:19:25
+
+
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2024-06-09 12:14:38
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-06-09 12:10:38
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-06-09 11:33:12
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-06-09 11:26:19
