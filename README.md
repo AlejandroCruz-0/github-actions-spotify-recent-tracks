@@ -13,58 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **You Just Have to Be Crazy** / Grant Lee Buffalo
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Fuzzy](https://i.scdn.co/image/ab67616d00001e02ee9f3b429928a49bcdebb9db)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Fuzzy
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-06-09 23:13:15
-
-
-# **We're Away - Album Version - UK Bonus Track** / Elbow
-
-![Foto del album: The Seldom Seen Kid (Bonus Tracks Version)](https://i.scdn.co/image/ab67616d00001e029b9c531e28decf2f4cd96363)
-
-**Album:** The Seldom Seen Kid (Bonus Tracks Version)
-
-📅 2024-06-09 22:58:57
+📅 2024-06-10 18:21:59
 
 
-# **Puncture Repair** / Elbow
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Leaders Of The Free World
+**Album:** Thirteenth Step
 
-📅 2024-06-09 22:56:59
-
-
-# **Great Expectations** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-06-09 22:55:11
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-06-09 22:50:06
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-06-09 22:43:10
+📅 2024-06-10 18:17:05
 
 
 # **Mad About You** / Hooverphonic
@@ -73,61 +37,52 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-09 22:37:49
+📅 2024-06-10 18:12:52
 
 
-# **Your Woman** / White Town
+# **Will Do** / TV On The Radio
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Women in Technology
+**Album:** Nine Types of Light
 
-📅 2024-06-09 22:33:44
-
-
-# **Vesta** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-09 22:29:16
+📅 2024-06-10 16:05:14
 
 
-# **You Oughta Know - 2015 Remaster** / Alanis Morissette
+# **Burn the Witch** / Radiohead
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** A Moon Shaped Pool
 
-📅 2024-06-09 20:13:27
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-06-09 20:02:02
+📅 2024-06-10 15:51:32
 
 
-# **Show Me How to Live** / Audioslave
+# **Sour Times** / Portishead
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Audioslave
+**Album:** Dummy
 
-📅 2024-06-09 19:58:19
+📅 2024-06-10 15:34:05
 
 
-# **Cochise** / Audioslave
+# **Glory Box** / Portishead
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Audioslave
+**Album:** Dummy
 
-📅 2024-06-09 19:52:29
+📅 2024-06-10 15:17:07
+
+
+# **Excuse Me** / The Herbaliser
+
+![Foto del album: Blow Your Headphones](https://i.scdn.co/image/ab67616d00001e02140f20c8c70771ada5aa8c54)
+
+**Album:** Blow Your Headphones
+
+📅 2024-06-10 14:13:55
 
 
 # **Mad About You** / Hooverphonic
@@ -136,58 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-09 19:48:47
+📅 2024-06-10 13:56:08
 
 
-# **Sparks** / Coldplay
+# **Glory Box** / Portishead
 
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Parachutes
+**Album:** Dummy
 
-📅 2024-06-09 15:46:52
-
-
-# **Spies** / Coldplay
-
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
-
-**Album:** Parachutes
-
-📅 2024-06-09 15:36:42
+📅 2024-06-10 13:52:24
 
 
-# **Vesta** / Nicolas Snyder
+# **Girl Boy** / Blonde Redhead
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** Blonde Redhead
 
-📅 2024-06-09 15:30:59
-
-
-# **Smells Like Sheep** / Nicholas Britell
-
-![Foto del album: The Big Short (Music from the Motion Picture)](https://i.scdn.co/image/ab67616d00001e024121efa2b335fc52b8a6f6c6)
-
-**Album:** The Big Short (Music from the Motion Picture)
-
-📅 2024-06-09 13:22:56
+📅 2024-06-10 13:33:07
 
 
-# **Scavengers** / Nicolas Snyder
+# **Criminal** / Fiona Apple
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** Tidal
 
-📅 2024-06-09 13:08:12
+📅 2024-06-10 13:21:59
 
 
-# **Vesta** / Nicolas Snyder
+# **Excuse Me** / The Herbaliser
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: Blow Your Headphones](https://i.scdn.co/image/ab67616d00001e02140f20c8c70771ada5aa8c54)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** Blow Your Headphones
 
-📅 2024-06-09 13:06:10
+📅 2024-06-10 13:16:17
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-06-10 13:15:05
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-10 13:11:21
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-10 12:59:42
+
+
+# **Tears In The Typing Pool** / Broadcast
+
+![Foto del album: Tender Buttons](https://i.scdn.co/image/ab67616d00001e02efeb5afb5e7bcb9c6660fe39)
+
+**Album:** Tender Buttons
+
+📅 2024-06-10 11:36:36
+
+
+# **The Suburbs (continued)** / Arcade Fire
+
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+
+**Album:** The Suburbs (Deluxe)
+
+📅 2024-06-10 11:23:13
+
+
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2024-06-10 11:21:40
+
+
+# **Separator** / Radiohead
+
+![Foto del album: The King Of Limbs](https://i.scdn.co/image/ab67616d00001e02a9be6a9b8b5831a4c431ab9f)
+
+**Album:** The King Of Limbs
+
+📅 2024-06-10 11:17:55
