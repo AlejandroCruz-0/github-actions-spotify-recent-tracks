@@ -13,130 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Finding Sam** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:22:13
-
-
-# **Sam Plays, Sam Builds** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:10:29
-
-
-# **Routine Maintenance** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:09:11
-
-
-# **Levi's Dream** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:07:15
-
-
-# **Kamen's Folly** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:05:41
-
-
-# **The Receiver (feat. Zineb Fikri)** / Nicolas Snyder|Zineb Fikri
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:03:37
-
-
-# **Levi's Dream** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-10 23:01:34
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-10 18:32:21
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-06-10 18:21:59
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-06-10 18:17:05
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-10 18:12:52
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-06-10 16:05:14
-
-
-# **Burn the Witch** / Radiohead
-
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
-
-**Album:** A Moon Shaped Pool
-
-📅 2024-06-10 15:51:32
-
-
-# **Sour Times** / Portishead
+# **Glory Box** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
 **Album:** Dummy
 
-📅 2024-06-10 15:34:05
+📅 2024-06-11 18:46:52
 
 
 # **Glory Box** / Portishead
@@ -145,16 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-10 15:17:07
-
-
-# **Excuse Me** / The Herbaliser
-
-![Foto del album: Blow Your Headphones](https://i.scdn.co/image/ab67616d00001e02140f20c8c70771ada5aa8c54)
-
-**Album:** Blow Your Headphones
-
-📅 2024-06-10 14:13:55
+📅 2024-06-11 18:32:55
 
 
 # **Mad About You** / Hooverphonic
@@ -163,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-10 13:56:08
+📅 2024-06-11 18:17:39
 
 
 # **Glory Box** / Portishead
@@ -172,22 +46,148 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-10 13:52:24
+📅 2024-06-11 18:13:55
 
 
-# **Girl Boy** / Blonde Redhead
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Blonde Redhead
+**Album:** The Magnificent Tree
 
-📅 2024-06-10 13:33:07
+📅 2024-06-11 17:51:52
 
 
-# **Criminal** / Fiona Apple
+# **Glory Box** / Portishead
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Tidal
+**Album:** Dummy
 
-📅 2024-06-10 13:21:59
+📅 2024-06-11 17:48:07
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-11 17:00:01
+
+
+# **Enjoy the Silence** / Depeche Mode
+
+![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+
+**Album:** Violator | The 12" Singles
+
+📅 2024-06-11 16:54:44
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-06-11 16:50:26
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-11 16:46:42
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-11 16:41:27
+
+
+# **My Favourite Game** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2024-06-11 16:12:53
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-06-11 15:57:39
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-11 15:53:55
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-11 15:45:50
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-11 15:38:02
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-11 15:14:48
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-11 14:09:13
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-11 14:05:04
+
+
+# **Not Your Kind of People** / Garbage
+
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
+
+**Album:** Not Your Kind of People
+
+📅 2024-06-11 13:57:08
