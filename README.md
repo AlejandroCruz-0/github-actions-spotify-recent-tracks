@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **2 Wicky** / Hooverphonic
+
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+
+**Album:** A New Stereophonic Sound Spectacular
+
+📅 2024-06-13 18:43:18
+
+
 # **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
 ![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Fat of the Land
 
 📅 2024-06-13 15:33:46
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-06-13 15:14:26
