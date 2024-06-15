@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Enjoy the Silence** / Depeche Mode
+
+![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+
+**Album:** Violator | The 12" Singles
+
+📅 2024-06-14 20:05:09
+
+
 # **Duvet** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-06-14 16:32:05
-
-
-# **Pump Action** / Overseer
-
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
-
-**Album:** Superconductor EP
-
-📅 2024-06-14 16:26:24
