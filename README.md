@@ -13,58 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2024-06-13 18:43:18
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2024-06-13 18:29:03
-
-
-# **Enjoy the Silence** / Depeche Mode
-
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
-
-**Album:** Violator | The 12" Singles
-
-📅 2024-06-13 18:25:40
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2024-06-13 18:21:22
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-06-13 18:15:40
-
-
 # **Duvet** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2024-06-13 18:11:59
+📅 2024-06-14 19:34:20
 
 
 # **Mad About You** / Hooverphonic
@@ -73,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-13 18:08:34
+📅 2024-06-14 19:30:56
 
 
 # **Glory Box** / Portishead
@@ -82,7 +37,16 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-13 18:04:51
+📅 2024-06-14 19:27:11
+
+
+# **Ready Steady Go! - Beatman & Ludmilla Radio Edit** / Paul Oakenfold|Beatman|Ludmilla
+
+![Foto del album: Trance Mission](https://i.scdn.co/image/ab67616d00001e021fc18dc39ce8c719c98821ac)
+
+**Album:** Trance Mission
+
+📅 2024-06-14 19:12:41
 
 
 # **Glory Box** / Portishead
@@ -91,25 +55,16 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-13 17:48:44
+📅 2024-06-14 18:58:59
 
 
-# **One Step Closer** / Linkin Park
+# **Pump Action** / Overseer
 
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
 
-**Album:** Hybrid Theory (Bonus Edition)
+**Album:** Superconductor EP
 
-📅 2024-06-13 17:06:25
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-13 16:41:18
+📅 2024-06-14 18:53:50
 
 
 # **Firestarter** / The Prodigy
@@ -118,43 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** The Fat of the Land
 
-📅 2024-06-13 16:29:53
-
-
-# **One Step Closer** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-06-13 16:07:53
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-13 16:05:14
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-13 16:00:16
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-06-13 15:50:38
+📅 2024-06-14 18:51:34
 
 
 # **Mad About You** / Hooverphonic
@@ -163,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-13 15:46:46
+📅 2024-06-14 18:44:55
 
 
 # **Glory Box** / Portishead
@@ -172,16 +91,70 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-13 15:43:02
+📅 2024-06-14 18:41:11
 
 
-# **Cochise** / Audioslave
+# **Zion** / Fluke
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: The Matrix Reloaded: The Album](https://i.scdn.co/image/ab67616d00001e02f86295aecf70bd4347a3ad77)
 
-**Album:** Audioslave
+**Album:** The Matrix Reloaded: The Album
 
-📅 2024-06-13 15:37:36
+📅 2024-06-14 18:24:30
+
+
+# **The Passenger** / Iggy Pop
+
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+
+**Album:** Lust For Life
+
+📅 2024-06-14 18:12:08
+
+
+# **Go With The Flow** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2024-06-14 18:07:25
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2024-06-14 18:04:16
+
+
+# **Ready Steady Go! - Beatman & Ludmilla Radio Edit** / Paul Oakenfold|Beatman|Ludmilla
+
+![Foto del album: Trance Mission](https://i.scdn.co/image/ab67616d00001e021fc18dc39ce8c719c98821ac)
+
+**Album:** Trance Mission
+
+📅 2024-06-14 17:59:30
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-14 17:55:30
+
+
+# **Pump Action** / Overseer
+
+![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
+
+**Album:** Superconductor EP
+
+📅 2024-06-14 17:50:21
 
 
 # **Firestarter** / The Prodigy
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** The Fat of the Land
 
-📅 2024-06-13 15:33:46
+📅 2024-06-14 17:48:04
+
+
+# **Ready Steady Go! - Beatman & Ludmilla Radio Edit** / Paul Oakenfold|Beatman|Ludmilla
+
+![Foto del album: Trance Mission](https://i.scdn.co/image/ab67616d00001e021fc18dc39ce8c719c98821ac)
+
+**Album:** Trance Mission
+
+📅 2024-06-14 16:42:20
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-14 16:32:05
+
+
+# **Pump Action** / Overseer
+
+![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
+
+**Album:** Superconductor EP
+
+📅 2024-06-14 16:26:24
