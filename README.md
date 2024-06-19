@@ -13,13 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **Pump Action** / Overseer
+# **Firestarter** / The Prodigy
 
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Superconductor EP
+**Album:** The Fat of the Land
 
-📅 2024-06-17 15:39:52
+📅 2024-06-18 20:34:06
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-18 20:29:17
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-18 20:25:33
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-18 18:32:39
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-18 18:22:34
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-18 18:18:01
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-18 18:11:11
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-18 18:07:03
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-18 18:02:35
+
+
+# **誰か、海を。** / Aimer
+
+![Foto del album: 誰か、海を。　EP](https://i.scdn.co/image/ab67616d00001e0265e79e909fe9faab6cbe076c)
+
+**Album:** 誰か、海を。　EP
+
+📅 2024-06-18 15:12:54
 
 
 # **Firestarter** / The Prodigy
@@ -28,16 +109,61 @@ Nombre: **lotario1999**
 
 **Album:** The Fat of the Land
 
-📅 2024-06-17 15:24:11
+📅 2024-06-18 14:40:43
 
 
-# **Enjoy the Silence** / Depeche Mode
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Violator | The 12" Singles
+**Album:** The Magnificent Tree
 
-📅 2024-06-17 12:15:05
+📅 2024-06-18 11:44:43
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-18 11:31:40
+
+
+# **誰か、海を。** / Aimer
+
+![Foto del album: 誰か、海を。　EP](https://i.scdn.co/image/ab67616d00001e0265e79e909fe9faab6cbe076c)
+
+**Album:** 誰か、海を。　EP
+
+📅 2024-06-18 11:24:05
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-18 11:18:51
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-18 11:14:13
+
+
+# **Far From Any Road** / The Handsome Family
+
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+
+**Album:** Singing Bones
+
+📅 2024-06-18 10:10:55
 
 
 # **Duvet** / bôa
@@ -46,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-06-17 12:04:19
+📅 2024-06-18 10:09:55
 
 
 # **Mad About You** / Hooverphonic
@@ -55,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-17 12:00:55
+📅 2024-06-18 10:06:31
 
 
 # **Glory Box** / Portishead
@@ -64,130 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-17 11:57:11
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-17 11:38:26
-
-
-# **Pump Action** / Overseer
-
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
-
-**Album:** Superconductor EP
-
-📅 2024-06-17 11:30:43
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-17 11:14:56
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-17 11:04:20
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-17 11:00:36
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-17 10:55:25
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-17 10:50:17
-
-
-# **The Thrill Is Gone** / B.B. King
-
-![Foto del album: Completely Well](https://i.scdn.co/image/ab67616d00001e021a04649cc2ddb348a9e08f23)
-
-**Album:** Completely Well
-
-📅 2024-06-17 10:34:31
-
-
-# **Pride and Joy** / Stevie Ray Vaughan
-
-![Foto del album: Texas Flood (Legacy Edition)](https://i.scdn.co/image/ab67616d00001e02f7143c00741b94bb62025340)
-
-**Album:** Texas Flood (Legacy Edition)
-
-📅 2024-06-17 10:29:05
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-17 10:24:41
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-17 10:19:15
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-17 10:15:29
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-17 10:02:51
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-17 09:46:09
+📅 2024-06-18 10:02:47
