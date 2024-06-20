@@ -13,31 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Duvet** / bôa
+# **In My Secret Life** / Leonard Cohen
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
 
-**Album:** Twilight
+**Album:** Ten New Songs
 
-📅 2024-06-19 00:26:05
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-19 00:12:48
+📅 2024-06-19 19:30:37
 
 
-# **Glory Box** / Portishead
+# **Snakes (from the series Arcane League of Legends)** / PVRIS|MIYAVI
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
 
-**Album:** Dummy
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
 
-📅 2024-06-19 00:09:04
+📅 2024-06-19 19:16:50
+
+
+# **Dynasties and Dystopia (from the series Arcane League of Legends)** / Denzel Curry|Gizzle|Bren Joy
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2024-06-19 18:34:45
+
+
+# **Misfit Toys (from the series Arcane League of Legends)** / Pusha T|Mako
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2024-06-19 18:31:47
+
+
+# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2024-06-19 18:28:28
+
+
+# **Enemy feat. J.I.D. (from the series Arcane League of Legends)** / Imagine Dragons|JID
+
+![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+
+**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+
+📅 2024-06-19 18:24:41
+
+
+# **The Brink of Death** / Yasunori Mitsuda
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-06-19 18:21:13
+
+
+# **Chrono Cross -Scars of Time-** / Yasunori Mitsuda
+
+![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+
+**Album:** Chrono Cross Original Soundtrack
+
+📅 2024-06-19 18:18:34
 
 
 # **My Favourite Game** / The Cardigans
@@ -46,7 +91,16 @@ Nombre: **lotario1999**
 
 **Album:** Gran Turismo (Remastered)
 
-📅 2024-06-18 21:13:13
+📅 2024-06-19 18:01:23
+
+
+# **Enjoy the Silence** / Depeche Mode
+
+![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+
+**Album:** Violator | The 12" Singles
+
+📅 2024-06-19 17:57:44
 
 
 # **Firestarter** / The Prodigy
@@ -55,97 +109,52 @@ Nombre: **lotario1999**
 
 **Album:** The Fat of the Land
 
-📅 2024-06-18 20:34:06
+📅 2024-06-19 17:53:24
 
 
-# **Cochise** / Audioslave
+# **Kamen's Folly** / Nicolas Snyder
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Audioslave
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-18 20:29:17
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-18 20:25:33
+📅 2024-06-19 17:14:43
 
 
-# **Show Me How to Live** / Audioslave
+# **The Receiver (feat. Zineb Fikri)** / Nicolas Snyder|Zineb Fikri
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Audioslave
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-18 18:32:39
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-18 18:22:34
+📅 2024-06-19 17:04:37
 
 
-# **Moonchild** / Chris Cornell
+# **Levi's Dream** / Nicolas Snyder
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Euphoria Morning
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-18 18:18:01
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-18 18:11:11
+📅 2024-06-19 14:37:25
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Vesta** / Nicolas Snyder
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Euphoria Morning
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2024-06-18 18:07:03
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-18 18:02:35
+📅 2024-06-19 14:35:27
 
 
-# **誰か、海を。** / Aimer
+# **Duvet** / bôa
 
-![Foto del album: 誰か、海を。　EP](https://i.scdn.co/image/ab67616d00001e0265e79e909fe9faab6cbe076c)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** 誰か、海を。　EP
+**Album:** Twilight
 
-📅 2024-06-18 15:12:54
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-18 14:40:43
+📅 2024-06-19 13:08:53
 
 
 # **Mad About You** / Hooverphonic
@@ -154,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-06-18 11:44:43
+📅 2024-06-19 12:58:48
 
 
 # **Glory Box** / Portishead
@@ -163,31 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2024-06-18 11:31:40
+📅 2024-06-19 12:55:03
 
 
-# **誰か、海を。** / Aimer
+# **Mad About You** / Hooverphonic
 
-![Foto del album: 誰か、海を。　EP](https://i.scdn.co/image/ab67616d00001e0265e79e909fe9faab6cbe076c)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** 誰か、海を。　EP
+**Album:** The Magnificent Tree
 
-📅 2024-06-18 11:24:05
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-18 11:18:51
+📅 2024-06-19 12:49:27
 
 
-# **Cochise** / Audioslave
+# **Your Woman** / White Town
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
-**Album:** Audioslave
+**Album:** Women in Technology
 
-📅 2024-06-18 11:14:13
+📅 2024-06-19 12:45:43
