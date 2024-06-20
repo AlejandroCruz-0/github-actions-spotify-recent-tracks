@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-06-19 22:42:36
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-19 22:23:12
+
+
 # **In My Secret Life** / Leonard Cohen
 
 ![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-06-19 12:55:03
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-19 12:49:27
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-06-19 12:45:43
