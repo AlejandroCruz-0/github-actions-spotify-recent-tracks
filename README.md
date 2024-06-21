@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-21 01:19:59
+
+
 # **When I'm Small** / Phantogram
 
 ![Foto del album: Eyelid Movies](https://i.scdn.co/image/ab67616d00001e02b2ccbeae06d3a57128367d86)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Fat of the Land
 
 📅 2024-06-19 17:53:24
-
-
-# **Kamen's Folly** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2024-06-19 17:14:43
