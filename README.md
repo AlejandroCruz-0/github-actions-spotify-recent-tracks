@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Glory Box** / Portishead
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Dummy
+**Album:** Audioslave
 
-📅 2024-06-21 01:19:59
+📅 2024-06-21 15:17:04
 
 
-# **When I'm Small** / Phantogram
+# **Cochise** / Audioslave
 
-![Foto del album: Eyelid Movies](https://i.scdn.co/image/ab67616d00001e02b2ccbeae06d3a57128367d86)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Eyelid Movies
+**Album:** Audioslave
 
-📅 2024-06-20 14:09:33
+📅 2024-06-21 15:06:22
 
 
-# **My Favourite Game** / The Cardigans
+# **誰か、海を。** / Aimer
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: 誰か、海を。　EP](https://i.scdn.co/image/ab67616d00001e0265e79e909fe9faab6cbe076c)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** 誰か、海を。　EP
 
-📅 2024-06-20 13:57:08
+📅 2024-06-21 14:59:45
 
 
-# **Enjoy the Silence** / Depeche Mode
+# **(Don't Fear) The Reaper** / Blue Öyster Cult
 
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+![Foto del album: Agents Of Fortune](https://i.scdn.co/image/ab67616d00001e023ac318439ae56ce048d7bf5d)
 
-**Album:** Violator | The 12" Singles
+**Album:** Agents Of Fortune
 
-📅 2024-06-20 13:53:28
+📅 2024-06-21 13:01:31
 
 
-# **Glory Box** / Portishead
+# **Heroes - 2017 Remaster** / David Bowie
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: "Heroes" (2017 Remaster)](https://i.scdn.co/image/ab67616d00001e02204f41d52743c6a9efd62985)
 
-**Album:** Dummy
+**Album:** "Heroes" (2017 Remaster)
 
-📅 2024-06-20 13:49:09
+📅 2024-06-21 12:46:00
 
 
-# **Mad About You** / Hooverphonic
+# **Maneater** / Daryl Hall & John Oates
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
 
-**Album:** The Magnificent Tree
+**Album:** H2O
 
-📅 2024-06-20 13:43:47
+📅 2024-06-21 12:39:50
 
 
-# **Your Woman** / White Town
+# **Should I Stay or Should I Go - Remastered** / The Clash
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Hits Back](https://i.scdn.co/image/ab67616d00001e0257f627f712e7060d287dd732)
 
-**Album:** Women in Technology
+**Album:** Hits Back
 
-📅 2024-06-20 13:40:04
+📅 2024-06-21 12:31:16
 
 
-# **Mad About You** / Hooverphonic
+# **Just What I Needed** / The Cars
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Cars](https://i.scdn.co/image/ab67616d00001e02f725bc7907dcf15aa2c6e7b7)
 
-**Album:** The Magnificent Tree
+**Album:** The Cars
 
-📅 2024-06-19 22:42:36
+📅 2024-06-21 12:17:21
 
 
-# **Glory Box** / Portishead
+# **That's All - 2007 Remaster** / Genesis
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Genesis (2007 Remaster)](https://i.scdn.co/image/ab67616d00001e02945c366eda66495226e4a46d)
 
-**Album:** Dummy
+**Album:** Genesis (2007 Remaster)
 
-📅 2024-06-19 22:23:12
+📅 2024-06-21 12:17:01
 
 
-# **In My Secret Life** / Leonard Cohen
+# **(Don't Fear) The Reaper** / Blue Öyster Cult
 
-![Foto del album: Ten New Songs](https://i.scdn.co/image/ab67616d00001e0205cbe0f78efb020ca6938646)
+![Foto del album: Agents Of Fortune](https://i.scdn.co/image/ab67616d00001e023ac318439ae56ce048d7bf5d)
 
-**Album:** Ten New Songs
+**Album:** Agents Of Fortune
 
-📅 2024-06-19 19:30:37
+📅 2024-06-21 11:25:46
 
 
-# **Snakes (from the series Arcane League of Legends)** / PVRIS|MIYAVI
+# **Heroes - 2017 Remaster** / David Bowie
 
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+![Foto del album: "Heroes" (2017 Remaster)](https://i.scdn.co/image/ab67616d00001e02204f41d52743c6a9efd62985)
 
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+**Album:** "Heroes" (2017 Remaster)
 
-📅 2024-06-19 19:16:50
+📅 2024-06-21 11:11:59
 
 
-# **Dynasties and Dystopia (from the series Arcane League of Legends)** / Denzel Curry|Gizzle|Bren Joy
+# **Gnossienne No. 1** / Erik Satie|Alena Cherny
 
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+![Foto del album: Gnossienne No. 1](https://i.scdn.co/image/ab67616d00001e02644e2da6c39885f8eac4e535)
 
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+**Album:** Gnossienne No. 1
 
-📅 2024-06-19 18:34:45
+📅 2024-06-21 10:59:27
 
 
-# **Misfit Toys (from the series Arcane League of Legends)** / Pusha T|Mako
+# **Handel / Orch. Hale: Keyboard Suite No. 4 in D Minor, HWV 437: III. Sarabande** / George Frideric Handel|Alexander Briger|Academy of St. Martin in the Fields
 
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+![Foto del album: Handel Sarabande](https://i.scdn.co/image/ab67616d00001e023bf6b8e862d572064e3c1e0b)
 
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+**Album:** Handel Sarabande
 
-📅 2024-06-19 18:31:47
+📅 2024-06-21 10:09:42
 
 
-# **Guns for Hire (from the series Arcane League of Legends)** / Woodkid
+# **Cello Suite No. 1 in G Major, BWV 1007: I. Prélude** / Johann Sebastian Bach|Yo-Yo Ma
 
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+![Foto del album: Bach: Cello Suites Nos. 1, 5 & 6](https://i.scdn.co/image/ab67616d00001e02cbb64bd416bb225456100bbc)
 
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+**Album:** Bach: Cello Suites Nos. 1, 5 & 6
 
-📅 2024-06-19 18:28:28
+📅 2024-06-21 10:05:46
 
 
-# **Enemy feat. J.I.D. (from the series Arcane League of Legends)** / Imagine Dragons|JID
+# **Grounds for Divorce** / Elbow
 
-![Foto del album: Arcane League of Legends (Soundtrack from the Animated Series)](https://i.scdn.co/image/ab67616d00001e02d10169c17651c8b2ab5c8416)
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
 
-**Album:** Arcane League of Legends (Soundtrack from the Animated Series)
+**Album:** The Seldom Seen Kid
 
-📅 2024-06-19 18:24:41
+📅 2024-06-21 10:01:37
 
 
-# **The Brink of Death** / Yasunori Mitsuda
+# **My Very Best** / Elbow
 
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Chrono Cross Original Soundtrack
+**Album:** Leaders Of The Free World
 
-📅 2024-06-19 18:21:13
+📅 2024-06-21 09:51:54
 
 
-# **Chrono Cross -Scars of Time-** / Yasunori Mitsuda
+# **Forget Myself** / Elbow
 
-![Foto del album: Chrono Cross Original Soundtrack](https://i.scdn.co/image/ab67616d00001e028766327a5c343a5dc2ec99fe)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Chrono Cross Original Soundtrack
+**Album:** Leaders Of The Free World
 
-📅 2024-06-19 18:18:34
+📅 2024-06-21 09:45:36
 
 
-# **My Favourite Game** / The Cardigans
+# **Forget Myself** / Elbow
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Leaders Of The Free World
 
-📅 2024-06-19 18:01:23
+📅 2024-06-21 09:34:39
 
 
-# **Enjoy the Silence** / Depeche Mode
+# **Aventine** / Agnes Obel
 
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e0284d4ab818e83c41d95f6956b)
 
-**Album:** Violator | The 12" Singles
+**Album:** Aventine
 
-📅 2024-06-19 17:57:44
+📅 2024-06-21 09:28:42
 
 
-# **Firestarter** / The Prodigy
+# **Dorian** / Agnes Obel
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e0284d4ab818e83c41d95f6956b)
 
-**Album:** The Fat of the Land
+**Album:** Aventine
 
-📅 2024-06-19 17:53:24
+📅 2024-06-21 09:16:16
