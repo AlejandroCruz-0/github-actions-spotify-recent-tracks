@@ -19,6 +19,60 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
+📅 2024-06-21 22:30:50
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-21 22:26:12
+
+
+# **What You Are** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-21 21:12:41
+
+
+# **Gasoline** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-21 21:00:40
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-21 20:56:02
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-06-21 20:51:24
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
 📅 2024-06-21 15:17:04
 
 
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bach: Cello Suites Nos. 1, 5 & 6
 
 📅 2024-06-21 10:05:46
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2024-06-21 10:01:37
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-06-21 09:51:54
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-06-21 09:45:36
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-06-21 09:34:39
-
-
-# **Aventine** / Agnes Obel
-
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e0284d4ab818e83c41d95f6956b)
-
-**Album:** Aventine
-
-📅 2024-06-21 09:28:42
-
-
-# **Dorian** / Agnes Obel
-
-![Foto del album: Aventine](https://i.scdn.co/image/ab67616d00001e0284d4ab818e83c41d95f6956b)
-
-**Album:** Aventine
-
-📅 2024-06-21 09:16:16
