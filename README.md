@@ -13,6 +13,168 @@ Nombre: **lotario1999**
 
 
 
+# **Hung Up** / Madonna
+
+![Foto del album: Confessions on a Dance Floor](https://i.scdn.co/image/ab67616d00001e02aaa9d84415623c1e790cd07b)
+
+**Album:** Confessions on a Dance Floor
+
+📅 2024-06-23 15:13:30
+
+
+# **The Zephyr Song** / Red Hot Chili Peppers
+
+![Foto del album: By the Way (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02de1af2785a83cc660155a0c4)
+
+**Album:** By the Way (Deluxe Edition)
+
+📅 2024-06-23 14:50:43
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-23 14:46:50
+
+
+# **Playground Love** / Air|Gordon Tracks
+
+![Foto del album: The Virgin Suicides (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e025e3c18f342d16b0b4df04df2)
+
+**Album:** The Virgin Suicides (Original Motion Picture Score)
+
+📅 2024-06-23 14:41:41
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-06-23 14:36:11
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-06-23 14:31:04
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-06-23 14:27:38
+
+
+# **I Think I'm Paranoid (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-06-23 14:23:17
+
+
+# **Can't Change Me** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-23 14:17:31
+
+
+# **Girls & Boys** / Blur
+
+![Foto del album: Blur: The Best Of](https://i.scdn.co/image/ab67616d00001e0234cbf7013afccc7df67fa43f)
+
+**Album:** Blur: The Best Of
+
+📅 2024-06-23 11:52:55
+
+
+# **Don't Panic** / Coldplay
+
+![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
+
+**Album:** Parachutes
+
+📅 2024-06-23 11:39:57
+
+
+# **Levi's Dream** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-23 11:34:46
+
+
+# **Levi's Dream** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-23 11:34:02
+
+
+# **Can't Change Me** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-23 11:33:11
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-23 11:22:55
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-23 11:18:44
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-06-23 11:14:16
+
+
+# **DARE** / Gorillaz
+
+![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
+
+**Album:** Demon Days
+
+📅 2024-06-22 22:55:29
+
+
 # **Deeper Underground - Full Version** / Jamiroquai
 
 ![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
@@ -29,165 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs For The Deaf
 
 📅 2024-06-22 22:30:46
-
-
-# **Zion** / Fluke
-
-![Foto del album: The Matrix Reloaded: The Album](https://i.scdn.co/image/ab67616d00001e02f86295aecf70bd4347a3ad77)
-
-**Album:** The Matrix Reloaded: The Album
-
-📅 2024-06-22 22:27:39
-
-
-# **Pump Action** / Overseer
-
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
-
-**Album:** Superconductor EP
-
-📅 2024-06-22 22:23:04
-
-
-# **Enjoy the Silence** / Depeche Mode
-
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
-
-**Album:** Violator | The 12" Singles
-
-📅 2024-06-22 22:20:49
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-06-22 22:16:31
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-22 22:12:50
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-06-22 14:41:54
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-22 14:26:09
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-06-22 14:21:07
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
-
-**Album:** Synkronized
-
-📅 2024-06-22 14:15:49
-
-
-# **Paradise Circus** / Massive Attack
-
-![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
-
-**Album:** Heligoland
-
-📅 2024-06-22 14:11:02
-
-
-# **Go With The Flow** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2024-06-22 14:06:05
-
-
-# **Zion** / Fluke
-
-![Foto del album: The Matrix Reloaded: The Album](https://i.scdn.co/image/ab67616d00001e02f86295aecf70bd4347a3ad77)
-
-**Album:** The Matrix Reloaded: The Album
-
-📅 2024-06-22 14:02:57
-
-
-# **Enjoy the Silence** / Depeche Mode
-
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
-
-**Album:** Violator | The 12" Singles
-
-📅 2024-06-22 13:58:22
-
-
-# **Pump Action** / Overseer
-
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
-
-**Album:** Superconductor EP
-
-📅 2024-06-22 13:54:04
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-06-22 13:51:48
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-22 13:48:08
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-06-22 13:43:29
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-22 11:47:02
