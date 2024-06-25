@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Enjoy the Silence** / Depeche Mode
+
+![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+
+**Album:** Violator | The 12" Singles
+
+📅 2024-06-24 22:25:38
+
+
+# **Personal Jesus** / Depeche Mode
+
+![Foto del album: Violator (Deluxe)](https://i.scdn.co/image/ab67616d00001e02234bbbad4dce31cd2950af3e)
+
+**Album:** Violator (Deluxe)
+
+📅 2024-06-24 22:05:15
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2024-06-24 21:51:54
+
+
 # **Firestarter** / The Prodigy
 
 ![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-06-23 11:33:11
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-23 11:22:55
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-23 11:18:44
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-23 11:14:16
