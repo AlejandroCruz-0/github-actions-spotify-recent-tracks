@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2024-06-24 11:31:04
+
+
+# **The Receiver (feat. Zineb Fikri)** / Nicolas Snyder|Zineb Fikri
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-24 10:47:14
+
+
+# **Scavengers Reign Theme** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2024-06-24 10:37:07
+
+
 # **Hung Up** / Madonna
 
 ![Foto del album: Confessions on a Dance Floor](https://i.scdn.co/image/ab67616d00001e02aaa9d84415623c1e790cd07b)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-06-23 11:14:16
-
-
-# **DARE** / Gorillaz
-
-![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
-
-**Album:** Demon Days
-
-📅 2024-06-22 22:55:29
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
-
-**Album:** Synkronized
-
-📅 2024-06-22 22:35:34
-
-
-# **Go With The Flow** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2024-06-22 22:30:46
