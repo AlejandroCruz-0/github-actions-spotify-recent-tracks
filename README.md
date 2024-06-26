@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Enjoy the Silence** / Depeche Mode
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** Violator | The 12" Singles
+**Album:** Saudade
 
-📅 2024-06-24 22:25:38
+📅 2024-06-25 16:37:37
 
 
-# **Personal Jesus** / Depeche Mode
+# **Deeply** / bôa
 
-![Foto del album: Violator (Deluxe)](https://i.scdn.co/image/ab67616d00001e02234bbbad4dce31cd2950af3e)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Violator (Deluxe)
+**Album:** Twilight
 
-📅 2024-06-24 22:05:15
+📅 2024-06-25 15:25:47
 
 
-# **Firestarter** / The Prodigy
+# **Bones** / Imagine Dragons
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
 
-**Album:** The Fat of the Land
+**Album:** Mercury - Acts 1 & 2
 
-📅 2024-06-24 21:51:54
+📅 2024-06-25 15:13:46
 
 
-# **Firestarter** / The Prodigy
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** The Fat of the Land
+**Album:** Panic
 
-📅 2024-06-24 11:31:04
+📅 2024-06-25 15:11:00
 
 
-# **The Receiver (feat. Zineb Fikri)** / Nicolas Snyder|Zineb Fikri
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2024-06-24 10:47:14
+📅 2024-06-25 14:59:15
 
 
-# **Scavengers Reign Theme** / Nicolas Snyder
+# **Scoring** / bôa
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** Twilight
 
-📅 2024-06-24 10:37:07
+📅 2024-06-25 14:46:23
 
 
-# **Hung Up** / Madonna
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Confessions on a Dance Floor](https://i.scdn.co/image/ab67616d00001e02aaa9d84415623c1e790cd07b)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Confessions on a Dance Floor
+**Album:** Bueninvento
 
-📅 2024-06-23 15:13:30
+📅 2024-06-25 14:41:02
 
 
-# **The Zephyr Song** / Red Hot Chili Peppers
+# **I Feel You** / Depeche Mode
 
-![Foto del album: By the Way (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02de1af2785a83cc660155a0c4)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** By the Way (Deluxe Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-06-23 14:50:43
+📅 2024-06-25 14:37:25
 
 
-# **Glory Box** / Portishead
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Dummy
+**Album:** Thirteenth Step
 
-📅 2024-06-23 14:46:50
+📅 2024-06-25 14:11:41
 
 
-# **Playground Love** / Air|Gordon Tracks
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: The Virgin Suicides (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e025e3c18f342d16b0b4df04df2)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Virgin Suicides (Original Motion Picture Score)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-06-23 14:41:41
+📅 2024-06-25 14:01:24
 
 
-# **Glory Box** / Portishead
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Dummy
+**Album:** The Magnificent Tree
 
-📅 2024-06-23 14:36:11
+📅 2024-06-25 13:32:36
 
 
-# **This Love** / Maroon 5
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Songs About Jane: 10th Anniversary Edition
+**Album:** The Magnificent Tree
 
-📅 2024-06-23 14:31:04
+📅 2024-06-25 13:28:41
 
 
-# **Your Woman** / White Town
+# **Oh I Wept** / Free
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Women in Technology
+**Album:** Fire And Water
 
-📅 2024-06-23 14:27:38
+📅 2024-06-25 12:24:26
 
 
-# **I Think I'm Paranoid (2018 - Remaster)** / Garbage
+# **Will Do** / TV On The Radio
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Nine Types of Light
 
-📅 2024-06-23 14:23:17
+📅 2024-06-25 12:13:30
 
 
-# **Can't Change Me** / Chris Cornell
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Euphoria Morning
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-06-23 14:17:31
+📅 2024-06-25 12:09:42
 
 
-# **Girls & Boys** / Blur
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Blur: The Best Of](https://i.scdn.co/image/ab67616d00001e0234cbf7013afccc7df67fa43f)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Blur: The Best Of
+**Album:** Thirteenth Step
 
-📅 2024-06-23 11:52:55
+📅 2024-06-25 12:05:06
 
 
-# **Don't Panic** / Coldplay
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Parachutes](https://i.scdn.co/image/ab67616d00001e029164bafe9aaa168d93f4816a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Parachutes
+**Album:** The Magnificent Tree
 
-📅 2024-06-23 11:39:57
+📅 2024-06-25 11:39:58
 
 
-# **Levi's Dream** / Nicolas Snyder
+# **Oh I Wept** / Free
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** Fire And Water
 
-📅 2024-06-23 11:34:46
+📅 2024-06-25 11:10:32
 
 
-# **Levi's Dream** / Nicolas Snyder
+# **I Love You** / Woodkid
 
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
+**Album:** The Golden Age
 
-📅 2024-06-23 11:34:02
+📅 2024-06-25 10:48:57
 
 
-# **Can't Change Me** / Chris Cornell
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Euphoria Morning
+**Album:** The Magnificent Tree
 
-📅 2024-06-23 11:33:11
+📅 2024-06-25 10:43:19
