@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Take The Long Way Home - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-06-25 16:52:26
+
+
 # **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
 ![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Golden Age
 
 📅 2024-06-25 10:48:57
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-06-25 10:43:19
