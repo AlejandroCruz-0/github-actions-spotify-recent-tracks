@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **The Stops** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-06-27 18:17:53
+
+
 # **Forget Myself** / Elbow
 
 ![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Leaders Of The Free World
 
 📅 2024-06-27 09:20:14
-
-
-# **誰か、海を。** / Aimer
-
-![Foto del album: 誰か、海を。　EP](https://i.scdn.co/image/ab67616d00001e0265e79e909fe9faab6cbe076c)
-
-**Album:** 誰か、海を。　EP
-
-📅 2024-06-27 09:14:04
