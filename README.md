@@ -13,148 +13,175 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You** / Hooverphonic
+# **Forget Myself** / Elbow
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** The Magnificent Tree
+**Album:** Leaders Of The Free World
 
-📅 2024-06-26 15:32:05
+📅 2024-06-27 18:07:40
 
 
-# **Limp** / Fiona Apple
+# **Trains - Remastered** / Porcupine Tree
 
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+![Foto del album: In Absentia (Deluxe - Remastered)](https://i.scdn.co/image/ab67616d00001e028e53b9eb8dbdafd5ff46b500)
 
-**Album:** When The Pawn...
+**Album:** In Absentia (Deluxe - Remastered)
 
-📅 2024-06-26 14:12:05
+📅 2024-06-27 16:38:19
 
 
-# **Burn the Witch** / Radiohead
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** A Moon Shaped Pool
+**Album:** White Pony
 
-📅 2024-06-26 14:00:21
+📅 2024-06-27 16:26:51
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Synkronized
+**Album:** White Pony
 
-📅 2024-06-26 13:50:08
+📅 2024-06-27 16:19:11
 
 
-# **Congregation** / Low
+# **This Love** / Maroon 5
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** Ones and Sixes
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-06-26 13:33:23
+📅 2024-06-27 16:07:49
 
 
-# **Canned Heat - Remastered 2006** / Jamiroquai
+# **Teardrop** / Massive Attack|Elizabeth Fraser
 
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
 
-**Album:** Driving Songs
+**Album:** Mezzanine
 
-📅 2024-06-26 13:23:20
+📅 2024-06-27 13:44:47
 
 
-# **I Love You** / Woodkid
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Golden Age
+**Album:** Euphoria Morning
 
-📅 2024-06-26 13:19:31
+📅 2024-06-27 13:22:53
 
 
-# **Out Of Sight** / Hooverphonic
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Magnificent Tree
+**Album:** Euphoria Morning
 
-📅 2024-06-26 13:14:04
+📅 2024-06-27 13:12:54
 
 
-# **Mad About You** / Hooverphonic
+# **Moonchild** / Chris Cornell
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Magnificent Tree
+**Album:** Euphoria Morning
 
-📅 2024-06-26 13:03:32
+📅 2024-06-27 13:09:01
 
 
-# **Hey Pretty** / Poe
+# **Flutter Girl** / Chris Cornell
 
-![Foto del album: Haunted](https://i.scdn.co/image/ab67616d00001e0207cc05121006752926bf3698)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Haunted
+**Album:** Euphoria Morning
 
-📅 2024-06-26 12:34:02
+📅 2024-06-27 13:03:38
 
 
-# **Precious** / Depeche Mode
+# **Can't Change Me** / Chris Cornell
 
-![Foto del album: Playing the Angel (Deluxe)](https://i.scdn.co/image/ab67616d00001e02ed1506834f09438351cf1dc5)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Playing the Angel (Deluxe)
+**Album:** Euphoria Morning
 
-📅 2024-06-26 12:21:18
+📅 2024-06-27 12:59:15
 
 
-# **Criminal** / Fiona Apple
+# **Flutter Girl** / Chris Cornell
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Tidal
+**Album:** Euphoria Morning
 
-📅 2024-06-26 12:17:08
+📅 2024-06-27 11:06:21
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Can't Change Me** / Chris Cornell
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2024-06-26 12:11:26
+📅 2024-06-27 10:55:57
 
 
-# **My Favourite Game** / The Cardigans
+# **Shoulder Holster** / Morcheeba
 
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
 
-**Album:** Gran Turismo (Remastered)
+**Album:** Big Calm
 
-📅 2024-06-26 11:56:22
+📅 2024-06-27 10:09:30
 
 
-# **Mad About You** / Hooverphonic
+# **The Sea** / Morcheeba
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
 
-**Album:** The Magnificent Tree
+**Album:** Big Calm
 
-📅 2024-06-26 11:45:01
+📅 2024-06-27 09:59:22
 
 
-# **Your Woman** / White Town
+# **Great Expectations** / Elbow
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Women in Technology
+**Album:** Leaders Of The Free World
 
-📅 2024-06-26 11:41:17
+📅 2024-06-27 09:48:03
+
+
+# **My Very Best** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-06-27 09:37:14
+
+
+# **The Stops** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-06-27 09:30:29
+
+
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-06-27 09:20:14
 
 
 # **誰か、海を。** / Aimer
@@ -163,31 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** 誰か、海を。　EP
 
-📅 2024-06-26 11:36:29
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-26 11:22:54
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-06-26 11:18:16
-
-
-# **Not Your Kind of People** / Garbage
-
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
-
-**Album:** Not Your Kind of People
-
-📅 2024-06-26 11:04:57
+📅 2024-06-27 09:14:04
