@@ -13,31 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **The Passenger** / Iggy Pop
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Lust For Life
+**Album:** Euphoria Morning
 
-📅 2024-06-30 23:50:00
-
-
-# **Teardrop** / Massive Attack|Elizabeth Fraser
-
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
-
-**Album:** Mezzanine
-
-📅 2024-06-30 23:45:15
+📅 2024-07-01 18:53:25
 
 
-# **Jeremy** / Pearl Jam
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Ten
+**Album:** Euphoria Morning
 
-📅 2024-06-30 23:39:45
+📅 2024-07-01 18:52:38
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-01 18:45:33
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-01 18:39:31
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-01 18:00:07
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-01 17:49:53
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2024-07-01 14:09:39
 
 
 # **Personal Jesus** / Depeche Mode
@@ -46,16 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Violator (Deluxe)
 
-📅 2024-06-30 23:34:26
-
-
-# **Go With The Flow** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2024-06-30 23:29:30
+📅 2024-07-01 13:34:51
 
 
 # **Firestarter** / The Prodigy
@@ -64,79 +91,34 @@ Nombre: **lotario1999**
 
 **Album:** The Fat of the Land
 
-📅 2024-06-30 23:26:23
+📅 2024-07-01 12:50:15
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Illiterate** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Illiterate](https://i.scdn.co/image/ab67616d00001e02deed5ba46ce6ef57ded308aa)
 
-**Album:** Euphoria Morning
+**Album:** Illiterate
 
-📅 2024-06-30 23:02:07
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-30 22:47:55
+📅 2024-07-01 12:21:02
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Euphoria Morning
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-06-30 22:15:37
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-06-30 22:05:27
+📅 2024-07-01 12:10:48
 
 
-# **Zion** / Fluke
+# **Jeremy** / Pearl Jam
 
-![Foto del album: The Matrix Reloaded: The Album](https://i.scdn.co/image/ab67616d00001e02f86295aecf70bd4347a3ad77)
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
 
-**Album:** The Matrix Reloaded: The Album
+**Album:** Ten
 
-📅 2024-06-30 19:08:20
-
-
-# **Pump Action** / Overseer
-
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
-
-**Album:** Superconductor EP
-
-📅 2024-06-30 18:57:50
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-06-30 18:55:34
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-06-30 18:50:35
+📅 2024-07-01 11:43:01
 
 
 # **My Favourite Game** / The Cardigans
@@ -145,7 +127,25 @@ Nombre: **lotario1999**
 
 **Album:** Gran Turismo (Remastered)
 
-📅 2024-06-30 18:46:15
+📅 2024-07-01 11:11:15
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-07-01 10:57:37
+
+
+# **Not Your Kind of People** / Garbage
+
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
+
+**Album:** Not Your Kind of People
+
+📅 2024-07-01 10:51:30
 
 
 # **Firestarter** / The Prodigy
@@ -154,40 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** The Fat of the Land
 
-📅 2024-06-30 18:42:35
+📅 2024-07-01 10:43:42
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **Breathe** / The Prodigy
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Saudade
+**Album:** The Fat of the Land
 
-📅 2024-06-30 12:33:29
-
-
-# **When I'm Small** / Phantogram
-
-![Foto del album: Eyelid Movies](https://i.scdn.co/image/ab67616d00001e02b2ccbeae06d3a57128367d86)
-
-**Album:** Eyelid Movies
-
-📅 2024-06-30 12:22:28
+📅 2024-07-01 10:36:48
 
 
-# **Far From Any Road** / The Handsome Family
+# **Diesel Power** / The Prodigy
 
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Singing Bones
+**Album:** The Fat of the Land
 
-📅 2024-06-30 12:18:18
+📅 2024-07-01 10:11:21
 
 
-# **Your Woman** / White Town
+# **Breathe** / The Prodigy
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Women in Technology
+**Album:** The Fat of the Land
 
-📅 2024-06-30 12:15:31
+📅 2024-07-01 09:49:59
+
+
+# **Breathe** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2024-07-01 00:19:06
