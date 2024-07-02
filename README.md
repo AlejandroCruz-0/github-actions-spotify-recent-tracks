@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Toxic** / Britney Spears
+
+![Foto del album: In The Zone](https://i.scdn.co/image/ab67616d00001e02efc6988972cb04105f002cd4)
+
+**Album:** In The Zone
+
+📅 2024-07-02 05:50:34
+
+
+# **Fortunate Son** / Creedence Clearwater Revival
+
+![Foto del album: Willy And The Poor Boys (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e029f39192f9f8ca1c90847b3e5)
+
+**Album:** Willy And The Poor Boys (Expanded Edition)
+
+📅 2024-07-02 05:47:15
+
+
+# **Should I Stay or Should I Go - Remastered** / The Clash
+
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+
+**Album:** Combat Rock (Remastered)
+
+📅 2024-07-02 05:44:47
+
+
+# **Feel Good Inc.** / Gorillaz
+
+![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
+
+**Album:** Demon Days
+
+📅 2024-07-02 05:41:38
+
+
+# **Viva La Vida** / Coldplay
+
+![Foto del album: Viva La Vida or Death and All His Friends](https://i.scdn.co/image/ab67616d00001e02e21cc1db05580b6f2d2a3b6e)
+
+**Album:** Viva La Vida or Death and All His Friends
+
+📅 2024-07-02 05:37:54
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-07-02 05:33:46
+
+
+# **All Star** / Smash Mouth
+
+![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
+
+**Album:** Shrek
+
+📅 2024-07-02 05:30:19
+
+
+# **Feel It Still** / Portugal. The Man
+
+![Foto del album: Woodstock](https://i.scdn.co/image/ab67616d00001e02af52c228c9619ff6298b08cd)
+
+**Album:** Woodstock
+
+📅 2024-07-01 23:47:59
+
+
+# **All Star** / Smash Mouth
+
+![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
+
+**Album:** Shrek
+
+📅 2024-07-01 23:40:57
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-07-01 19:04:07
+
+
 # **Pillow Of Your Bones** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Illiterate
 
 📅 2024-07-01 12:21:02
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-07-01 12:10:48
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-01 11:43:01
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2024-07-01 11:11:15
-
-
-# **Special (2018 - Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2024-07-01 10:57:37
-
-
-# **Not Your Kind of People** / Garbage
-
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
-
-**Album:** Not Your Kind of People
-
-📅 2024-07-01 10:51:30
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 10:43:42
-
-
-# **Breathe** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 10:36:48
-
-
-# **Diesel Power** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 10:11:21
-
-
-# **Breathe** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 09:49:59
-
-
-# **Breathe** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 00:19:06
