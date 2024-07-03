@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **In the End** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2024-07-02 06:00:43
+
+
 # **Toxic** / Britney Spears
 
 ![Foto del album: In The Zone](https://i.scdn.co/image/ab67616d00001e02efc6988972cb04105f002cd4)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Fat of the Land
 
 📅 2024-07-01 12:50:15
-
-
-# **Illiterate** / Bent Knee
-
-![Foto del album: Illiterate](https://i.scdn.co/image/ab67616d00001e02deed5ba46ce6ef57ded308aa)
-
-**Album:** Illiterate
-
-📅 2024-07-01 12:21:02
