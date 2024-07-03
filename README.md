@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-07-03 00:02:46
+
+
 # **In the End** / Linkin Park
 
 ![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Violator (Deluxe)
 
 📅 2024-07-01 13:34:51
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 12:50:15
