@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Viva La Vida** / Coldplay
+
+![Foto del album: Viva La Vida or Death and All His Friends](https://i.scdn.co/image/ab67616d00001e02e21cc1db05580b6f2d2a3b6e)
+
+**Album:** Viva La Vida or Death and All His Friends
+
+📅 2024-07-04 00:50:06
+
+
+# **This Love** / Maroon 5
+
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+
+**Album:** Songs About Jane: 10th Anniversary Edition
+
+📅 2024-07-04 00:39:36
+
+
+# **All Star** / Smash Mouth
+
+![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
+
+**Album:** Shrek
+
+📅 2024-07-04 00:36:10
+
+
+# **Steel Rain** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-03 23:59:36
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-03 23:48:57
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-03 23:44:29
+
+
+# **Gasoline** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-03 19:13:44
+
+
 # **Show Me How to Live** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Shrek
 
 📅 2024-07-03 13:02:01
-
-
-# **Digital Bath** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-03 12:22:54
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-03 12:17:10
-
-
-# **Please Please Please Let Me Get What I Want - 2005 Remaster** / Deftones
-
-![Foto del album: Covers](https://i.scdn.co/image/ab67616d00001e0258df6181041c38412db1b253)
-
-**Album:** Covers
-
-📅 2024-07-03 12:07:21
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-03 11:57:15
-
-
-# **My Own Summer (Shove It)** / Deftones
-
-![Foto del album: Around the Fur](https://i.scdn.co/image/ab67616d00001e020b1129853982ea17845d4eb6)
-
-**Album:** Around the Fur
-
-📅 2024-07-03 11:52:16
-
-
-# **This Love** / Maroon 5
-
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
-
-**Album:** Songs About Jane: 10th Anniversary Edition
-
-📅 2024-07-03 11:48:12
-
-
-# **All Star** / Smash Mouth
-
-![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
-
-**Album:** Shrek
-
-📅 2024-07-03 11:44:45
