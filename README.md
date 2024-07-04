@@ -13,67 +13,166 @@ Nombre: **lotario1999**
 
 
 
-# **Jeremy** / Pearl Jam
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Ten
+**Album:** Audioslave
 
-📅 2024-07-03 00:02:46
-
-
-# **In the End** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-07-02 06:00:43
+📅 2024-07-03 19:03:14
 
 
-# **Toxic** / Britney Spears
+# **Cochise** / Audioslave
 
-![Foto del album: In The Zone](https://i.scdn.co/image/ab67616d00001e02efc6988972cb04105f002cd4)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** In The Zone
+**Album:** Audioslave
 
-📅 2024-07-02 05:50:34
-
-
-# **Fortunate Son** / Creedence Clearwater Revival
-
-![Foto del album: Willy And The Poor Boys (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e029f39192f9f8ca1c90847b3e5)
-
-**Album:** Willy And The Poor Boys (Expanded Edition)
-
-📅 2024-07-02 05:47:15
+📅 2024-07-03 18:58:36
 
 
-# **Should I Stay or Should I Go - Remastered** / The Clash
+# **Gasoline** / Audioslave
 
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Combat Rock (Remastered)
+**Album:** Audioslave
 
-📅 2024-07-02 05:44:47
-
-
-# **Feel Good Inc.** / Gorillaz
-
-![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
-
-**Album:** Demon Days
-
-📅 2024-07-02 05:41:38
+📅 2024-07-03 18:32:24
 
 
-# **Viva La Vida** / Coldplay
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: Viva La Vida or Death and All His Friends](https://i.scdn.co/image/ab67616d00001e02e21cc1db05580b6f2d2a3b6e)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Viva La Vida or Death and All His Friends
+**Album:** Audioslave
 
-📅 2024-07-02 05:37:54
+📅 2024-07-03 18:30:49
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-03 18:26:09
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-03 17:17:36
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-03 17:05:20
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-03 14:24:47
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-03 13:21:57
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-07-03 13:14:51
+
+
+# **Not Your Kind of People** / Garbage
+
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
+
+**Album:** Not Your Kind of People
+
+📅 2024-07-03 13:11:07
+
+
+# **Ironic - 2015 Remaster** / Alanis Morissette
+
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+
+**Album:** Jagged Little Pill (2015 Remaster)
+
+📅 2024-07-03 13:05:52
+
+
+# **All Star** / Smash Mouth
+
+![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
+
+**Album:** Shrek
+
+📅 2024-07-03 13:02:01
+
+
+# **Digital Bath** / Deftones
+
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
+
+**Album:** White Pony
+
+📅 2024-07-03 12:22:54
+
+
+# **Change (In the House of Flies)** / Deftones
+
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
+
+**Album:** White Pony
+
+📅 2024-07-03 12:17:10
+
+
+# **Please Please Please Let Me Get What I Want - 2005 Remaster** / Deftones
+
+![Foto del album: Covers](https://i.scdn.co/image/ab67616d00001e0258df6181041c38412db1b253)
+
+**Album:** Covers
+
+📅 2024-07-03 12:07:21
+
+
+# **Change (In the House of Flies)** / Deftones
+
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
+
+**Album:** White Pony
+
+📅 2024-07-03 11:57:15
+
+
+# **My Own Summer (Shove It)** / Deftones
+
+![Foto del album: Around the Fur](https://i.scdn.co/image/ab67616d00001e020b1129853982ea17845d4eb6)
+
+**Album:** Around the Fur
+
+📅 2024-07-03 11:52:16
 
 
 # **This Love** / Maroon 5
@@ -82,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2024-07-02 05:33:46
+📅 2024-07-03 11:48:12
 
 
 # **All Star** / Smash Mouth
@@ -91,103 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Shrek
 
-📅 2024-07-02 05:30:19
-
-
-# **Feel It Still** / Portugal. The Man
-
-![Foto del album: Woodstock](https://i.scdn.co/image/ab67616d00001e02af52c228c9619ff6298b08cd)
-
-**Album:** Woodstock
-
-📅 2024-07-01 23:47:59
-
-
-# **All Star** / Smash Mouth
-
-![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
-
-**Album:** Shrek
-
-📅 2024-07-01 23:40:57
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-01 19:04:07
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-01 18:53:25
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-01 18:52:38
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-01 18:45:33
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-01 18:39:31
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-01 18:00:07
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-01 17:49:53
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-01 14:09:39
-
-
-# **Personal Jesus** / Depeche Mode
-
-![Foto del album: Violator (Deluxe)](https://i.scdn.co/image/ab67616d00001e02234bbbad4dce31cd2950af3e)
-
-**Album:** Violator (Deluxe)
-
-📅 2024-07-01 13:34:51
+📅 2024-07-03 11:44:45
