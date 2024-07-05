@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Viva La Vida** / Coldplay
+# **Minerva** / Deftones
 
-![Foto del album: Viva La Vida or Death and All His Friends](https://i.scdn.co/image/ab67616d00001e02e21cc1db05580b6f2d2a3b6e)
+![Foto del album: Deftones](https://i.scdn.co/image/ab67616d00001e02c09a38cf054085b18eeb88ae)
 
-**Album:** Viva La Vida or Death and All His Friends
+**Album:** Deftones
 
-📅 2024-07-04 00:50:06
+📅 2024-07-04 18:04:03
 
 
-# **This Love** / Maroon 5
+# **Knife Prty** / Deftones
 
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Songs About Jane: 10th Anniversary Edition
+**Album:** White Pony
 
-📅 2024-07-04 00:39:36
+📅 2024-07-04 17:57:20
 
 
-# **All Star** / Smash Mouth
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Shrek
+**Album:** White Pony
 
-📅 2024-07-04 00:36:10
+📅 2024-07-04 17:52:10
 
 
-# **Steel Rain** / Chris Cornell
+# **Please Please Please Let Me Get What I Want - 2005 Remaster** / Deftones
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Covers](https://i.scdn.co/image/ab67616d00001e0258df6181041c38412db1b253)
 
-**Album:** Euphoria Morning
+**Album:** Covers
 
-📅 2024-07-03 23:59:36
+📅 2024-07-04 17:28:09
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Euphoria Morning
+**Album:** White Pony
 
-📅 2024-07-03 23:48:57
+📅 2024-07-04 17:17:53
 
 
-# **Disappearing One** / Chris Cornell
+# **Tom The Model** / Beth Gibbons|Rustin Man
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
 
-**Album:** Euphoria Morning
+**Album:** Out Of Season
 
-📅 2024-07-03 23:44:29
+📅 2024-07-04 14:45:46
 
 
-# **Gasoline** / Audioslave
+# **Oceans & Streams** / The Black Keys
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** Audioslave
+**Album:** Attack & Release
 
-📅 2024-07-03 19:13:44
+📅 2024-07-04 14:32:16
 
 
-# **Show Me How to Live** / Audioslave
+# **Forget Myself** / Elbow
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Audioslave
+**Album:** Leaders Of The Free World
 
-📅 2024-07-03 19:03:14
+📅 2024-07-04 14:28:50
 
 
-# **Cochise** / Audioslave
+# **I Want You** / C.J.
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
 
-**Album:** Audioslave
+**Album:** The Music of Grand Theft Auto IV
 
-📅 2024-07-03 18:58:36
+📅 2024-07-04 14:17:41
 
 
-# **Gasoline** / Audioslave
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** Audioslave
+**Album:** iii
 
-📅 2024-07-03 18:32:24
+📅 2024-07-04 14:14:01
 
 
-# **Show Me How to Live** / Audioslave
+# **Plug in Baby** / Muse
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
 
-**Album:** Audioslave
+**Album:** Origin of Symmetry
 
-📅 2024-07-03 18:30:49
+📅 2024-07-04 14:10:30
 
 
-# **Cochise** / Audioslave
+# **Let a Poor Man Be** / Clutch
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
 
-**Album:** Audioslave
+**Album:** Strange Cousins From the West
 
-📅 2024-07-03 18:26:09
+📅 2024-07-04 14:05:40
 
 
-# **Show Me How to Live** / Audioslave
+# **Legendary** / Welshly Arms
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Audioslave
+**Album:** No Place Is Home
 
-📅 2024-07-03 17:17:36
+📅 2024-07-04 13:48:17
 
 
-# **Cochise** / Audioslave
+# **Limp** / Fiona Apple
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Audioslave
+**Album:** When The Pawn...
 
-📅 2024-07-03 17:05:20
+📅 2024-07-04 13:44:26
 
 
-# **Show Me How to Live** / Audioslave
+# **Burn the Witch** / Radiohead
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
 
-**Album:** Audioslave
+**Album:** A Moon Shaped Pool
 
-📅 2024-07-03 14:24:47
+📅 2024-07-04 13:35:03
 
 
-# **Cochise** / Audioslave
+# **Animals** / Maroon 5
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: V](https://i.scdn.co/image/ab67616d00001e02442b53773d50e1b5369bb16c)
 
-**Album:** Audioslave
+**Album:** V
 
-📅 2024-07-03 13:21:57
+📅 2024-07-04 13:31:22
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Oh I Wept** / Free
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Fire And Water
 
-📅 2024-07-03 13:14:51
+📅 2024-07-04 13:26:32
 
 
-# **Not Your Kind of People** / Garbage
+# **Will Do** / TV On The Radio
 
-![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Not Your Kind of People
+**Album:** Nine Types of Light
 
-📅 2024-07-03 13:11:07
+📅 2024-07-04 13:22:05
 
 
-# **Ironic - 2015 Remaster** / Alanis Morissette
+# **Scoring** / bôa
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** Twilight
 
-📅 2024-07-03 13:05:52
+📅 2024-07-04 13:00:34
 
 
-# **All Star** / Smash Mouth
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Shrek](https://i.scdn.co/image/ab67616d00001e026608b12a4cbbb2ab179c7738)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Shrek
+**Album:** The Magnificent Tree
 
-📅 2024-07-03 13:02:01
+📅 2024-07-04 12:56:45
