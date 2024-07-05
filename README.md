@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **976-EVIL** / Deftones
+
+![Foto del album: Diamond Eyes](https://i.scdn.co/image/ab67616d00001e0272c2145d48f68917a7361b15)
+
+**Album:** Diamond Eyes
+
+📅 2024-07-04 18:15:15
+
+
 # **Minerva** / Deftones
 
 ![Foto del album: Deftones](https://i.scdn.co/image/ab67616d00001e02c09a38cf054085b18eeb88ae)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2024-07-04 13:00:34
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-07-04 12:56:45
