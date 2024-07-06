@@ -13,121 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **976-EVIL** / Deftones
+# **Get Right With Me** / Depeche Mode
 
-![Foto del album: Diamond Eyes](https://i.scdn.co/image/ab67616d00001e0272c2145d48f68917a7361b15)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Diamond Eyes
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-07-04 18:15:15
-
-
-# **Minerva** / Deftones
-
-![Foto del album: Deftones](https://i.scdn.co/image/ab67616d00001e02c09a38cf054085b18eeb88ae)
-
-**Album:** Deftones
-
-📅 2024-07-04 18:04:03
+📅 2024-07-05 18:31:11
 
 
-# **Knife Prty** / Deftones
+# **Electric Worry** / Clutch
 
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
 
-**Album:** White Pony
+**Album:** From Beale Street to Oblivion
 
-📅 2024-07-04 17:57:20
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-04 17:52:10
+📅 2024-07-05 18:27:10
 
 
-# **Please Please Please Let Me Get What I Want - 2005 Remaster** / Deftones
+# **Find the Flame** / 祖堅 正慶
 
-![Foto del album: Covers](https://i.scdn.co/image/ab67616d00001e0258df6181041c38412db1b253)
+![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
 
-**Album:** Covers
+**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
 
-📅 2024-07-04 17:28:09
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-04 17:17:53
+📅 2024-07-05 18:21:54
 
 
-# **Tom The Model** / Beth Gibbons|Rustin Man
+# **Burning Down the House - Live** / Talking Heads
 
-![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
 
-**Album:** Out Of Season
+**Album:** Stop Making Sense (Live)
 
-📅 2024-07-04 14:45:46
-
-
-# **Oceans & Streams** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2024-07-04 14:32:16
+📅 2024-07-05 18:18:24
 
 
-# **Forget Myself** / Elbow
+# **Deeply** / bôa
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Leaders Of The Free World
+**Album:** Twilight
 
-📅 2024-07-04 14:28:50
-
-
-# **I Want You** / C.J.
-
-![Foto del album: The Music of Grand Theft Auto IV](https://i.scdn.co/image/ab67616d00001e0244faa79cb92834c802683f27)
-
-**Album:** The Music of Grand Theft Auto IV
-
-📅 2024-07-04 14:17:41
+📅 2024-07-05 18:12:36
 
 
-# **Genghis Khan** / Miike Snow
+# **Bones** / Imagine Dragons
 
-![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
 
-**Album:** iii
+**Album:** Mercury - Acts 1 & 2
 
-📅 2024-07-04 14:14:01
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2024-07-04 14:10:30
+📅 2024-07-05 18:08:00
 
 
-# **Let a Poor Man Be** / Clutch
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Strange Cousins From the West
+**Album:** Panic
 
-📅 2024-07-04 14:05:40
+📅 2024-07-05 18:05:14
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2024-07-05 17:56:37
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-07-05 13:53:37
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-07-05 13:33:20
 
 
 # **Legendary** / Welshly Arms
@@ -136,16 +109,43 @@ Nombre: **lotario1999**
 
 **Album:** No Place Is Home
 
-📅 2024-07-04 13:48:17
+📅 2024-07-05 13:14:56
 
 
-# **Limp** / Fiona Apple
+# **Rush** / Depeche Mode
 
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** When The Pawn...
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-07-04 13:44:26
+📅 2024-07-05 13:09:26
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2024-07-05 13:04:45
+
+
+# **My Favourite Game** / The Cardigans
+
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
+
+**Album:** Gran Turismo (Remastered)
+
+📅 2024-07-05 13:01:07
+
+
+# **So He Won't Break** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2024-07-05 12:57:25
 
 
 # **Burn the Witch** / Radiohead
@@ -154,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** A Moon Shaped Pool
 
-📅 2024-07-04 13:35:03
+📅 2024-07-05 12:26:35
 
 
 # **Animals** / Maroon 5
@@ -163,31 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** V
 
-📅 2024-07-04 13:31:22
+📅 2024-07-05 12:12:55
 
 
-# **Oh I Wept** / Free
+# **Electric Worry** / Clutch
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
 
-**Album:** Fire And Water
+**Album:** From Beale Street to Oblivion
 
-📅 2024-07-04 13:26:32
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-07-04 13:22:05
+📅 2024-07-05 12:08:30
 
 
-# **Scoring** / bôa
+# **Find the Flame** / 祖堅 正慶
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
 
-**Album:** Twilight
+**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
 
-📅 2024-07-04 13:00:34
+📅 2024-07-05 12:03:15
+
+
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+
+**Album:** Saudade
+
+📅 2024-07-05 11:54:23
