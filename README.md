@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **i** / Kendrick Lamar
+
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
+
+**Album:** i
+
+📅 2024-07-09 20:49:55
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-07-09 20:46:03
+
+
 # **Daughter - Remastered** / Pearl Jam
 
 ![Foto del album: Vs.](https://i.scdn.co/image/ab67616d00001e02777344aba9d5b5785b4593a5)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Not Like Us
 
 📅 2024-07-09 15:47:32
-
-
-# **With You** / Linkin Park
-
-![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
-
-**Album:** Hybrid Theory
-
-📅 2024-07-09 15:09:05
-
-
-# **One Step Closer** / Linkin Park
-
-![Foto del album: Hybrid Theory](https://i.scdn.co/image/ab67616d00001e022cd7568f8895a3c031c2e2fb)
-
-**Album:** Hybrid Theory
-
-📅 2024-07-09 14:59:00
