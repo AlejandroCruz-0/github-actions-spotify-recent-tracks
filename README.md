@@ -13,130 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **i** / Kendrick Lamar
+# **Wolf Like Me** / TV On The Radio
 
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
 
-**Album:** i
+**Album:** Return To Cookie Mountain
 
-📅 2024-07-09 20:49:55
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-09 20:46:03
-
-
-# **Daughter - Remastered** / Pearl Jam
-
-![Foto del album: Vs.](https://i.scdn.co/image/ab67616d00001e02777344aba9d5b5785b4593a5)
-
-**Album:** Vs.
-
-📅 2024-07-09 20:17:15
-
-
-# **Yellow Ledbetter** / Pearl Jam
-
-![Foto del album: Jeremy](https://i.scdn.co/image/ab67616d00001e028df1fdc14be33eb2c991d60f)
-
-**Album:** Jeremy
-
-📅 2024-07-09 19:46:36
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-09 19:41:32
-
-
-# **Far From Any Road** / The Handsome Family
-
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
-
-**Album:** Singing Bones
-
-📅 2024-07-09 19:30:22
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2024-07-09 19:21:04
-
-
-# **DNA.** / Kendrick Lamar
-
-![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
-
-**Album:** DAMN.
-
-📅 2024-07-09 18:36:52
-
-
-# **Best Time** / Brent Faiyaz
-
-![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
-
-**Album:** Larger Than Life
-
-📅 2024-07-09 18:33:43
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-09 18:32:21
-
-
-# **HUMBLE.** / Kendrick Lamar
-
-![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
-
-**Album:** DAMN.
-
-📅 2024-07-09 18:23:47
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-09 18:20:50
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-07-09 16:40:21
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-07-09 16:25:50
+📅 2024-07-10 20:00:51
 
 
 # **Will Do** / TV On The Radio
@@ -145,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2024-07-09 16:20:31
+📅 2024-07-10 19:28:15
 
 
 # **DLZ** / TV On The Radio
@@ -154,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Dear Science
 
-📅 2024-07-09 16:16:46
+📅 2024-07-10 19:18:09
 
 
 # **Happy Idiot** / TV On The Radio
@@ -163,25 +46,115 @@ Nombre: **lotario1999**
 
 **Album:** Seeds
 
-📅 2024-07-09 16:12:56
+📅 2024-07-10 19:14:20
 
 
-# **DLZ** / TV On The Radio
+# **Wolf Like Me** / TV On The Radio
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
 
-**Album:** Dear Science
+**Album:** Return To Cookie Mountain
 
-📅 2024-07-09 16:03:10
+📅 2024-07-10 19:11:16
 
 
-# **In Bloom** / Nirvana
+# **Wolf Like Me** / TV On The Radio
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
 
-**Album:** Nevermind (Remastered)
+**Album:** Return To Cookie Mountain
 
-📅 2024-07-09 15:52:19
+📅 2024-07-10 18:48:51
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-10 16:28:52
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-10 16:18:42
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-10 16:13:51
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-10 16:08:50
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-10 16:02:43
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-10 15:43:25
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-10 15:33:12
+
+
+# **מעגלים** / Jane Bordeaux
+
+![Foto del album: ג'יין בורדו](https://i.scdn.co/image/ab67616d00001e021b2e455ebf25db530027c276)
+
+**Album:** ג'יין בורדו
+
+📅 2024-07-10 14:59:54
+
+
+# **HUMBLE.** / Kendrick Lamar
+
+![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
+
+**Album:** DAMN.
+
+📅 2024-07-10 12:29:31
+
+
+# **I'm Good Luv, Enjoy.** / Aaron May
+
+![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
+
+**Album:** CHASE
+
+📅 2024-07-10 12:18:19
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-07-09 15:47:32
+📅 2024-07-10 12:16:05
+
+
+# **We Are Born When We Die** / Apollo Sunshine
+
+![Foto del album: Shall Noise Upon](https://i.scdn.co/image/ab67616d00001e02c052bad6a067197de0fb95a1)
+
+**Album:** Shall Noise Upon
+
+📅 2024-07-10 11:05:16
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-10 10:46:11
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2024-07-10 10:43:08
