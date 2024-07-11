@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **The Stops** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-07-10 23:08:29
+
+
+# **Forget Myself** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2024-07-10 22:58:21
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-07-10 22:51:14
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-07-10 22:47:14
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-10 22:39:51
+
+
+# **HUMBLE.** / Kendrick Lamar
+
+![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
+
+**Album:** DAMN.
+
+📅 2024-07-10 22:31:21
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-07-10 22:21:14
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-10 20:10:58
+
+
 # **Wolf Like Me** / TV On The Radio
 
 ![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Seeds
 
 📅 2024-07-10 15:43:25
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
-
-**Album:** Return To Cookie Mountain
-
-📅 2024-07-10 15:33:12
-
-
-# **מעגלים** / Jane Bordeaux
-
-![Foto del album: ג'יין בורדו](https://i.scdn.co/image/ab67616d00001e021b2e455ebf25db530027c276)
-
-**Album:** ג'יין בורדו
-
-📅 2024-07-10 14:59:54
-
-
-# **HUMBLE.** / Kendrick Lamar
-
-![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
-
-**Album:** DAMN.
-
-📅 2024-07-10 12:29:31
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-07-10 12:18:19
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-10 12:16:05
-
-
-# **We Are Born When We Die** / Apollo Sunshine
-
-![Foto del album: Shall Noise Upon](https://i.scdn.co/image/ab67616d00001e02c052bad6a067197de0fb95a1)
-
-**Album:** Shall Noise Upon
-
-📅 2024-07-10 11:05:16
-
-
-# **Happy Idiot** / TV On The Radio
-
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
-
-**Album:** Seeds
-
-📅 2024-07-10 10:46:11
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2024-07-10 10:43:08
