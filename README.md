@@ -13,58 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **The Stops** / Elbow
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Leaders Of The Free World
+**Album:** Not Like Us
 
-📅 2024-07-10 23:08:29
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-10 22:58:21
+📅 2024-07-11 18:42:17
 
 
-# **A Face In The Crowd** / Tom Petty
+# **i** / Kendrick Lamar
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
-**Album:** Full Moon Fever
+**Album:** i
 
-📅 2024-07-10 22:51:14
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-07-10 22:47:14
+📅 2024-07-11 17:15:53
 
 
-# **Wolf Like Me** / TV On The Radio
+# **I'm Good Luv, Enjoy.** / Aaron May
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
 
-**Album:** Return To Cookie Mountain
+**Album:** CHASE
 
-📅 2024-07-10 22:39:51
-
-
-# **HUMBLE.** / Kendrick Lamar
-
-![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
-
-**Album:** DAMN.
-
-📅 2024-07-10 22:31:21
+📅 2024-07-11 17:05:45
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -73,121 +46,148 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-07-10 22:21:14
+📅 2024-07-11 17:03:30
 
 
-# **Happy Idiot** / TV On The Radio
+# **Great Expectations** / Elbow
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Seeds
+**Album:** Leaders Of The Free World
 
-📅 2024-07-10 20:10:58
+📅 2024-07-11 12:37:34
 
 
-# **Wolf Like Me** / TV On The Radio
+# **My Very Best** / Elbow
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Return To Cookie Mountain
+**Album:** Leaders Of The Free World
 
-📅 2024-07-10 20:00:51
+📅 2024-07-11 12:22:39
 
 
-# **Will Do** / TV On The Radio
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Nine Types of Light
+**Album:** Full Moon Fever
 
-📅 2024-07-10 19:28:15
+📅 2024-07-11 12:12:20
 
 
-# **DLZ** / TV On The Radio
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Dear Science
+**Album:** Full Moon Fever
 
-📅 2024-07-10 19:18:09
+📅 2024-07-11 12:06:58
 
 
-# **Happy Idiot** / TV On The Radio
+# **HUMBLE.** / Kendrick Lamar
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: DAMN.](https://i.scdn.co/image/ab67616d00001e028b52c6b9bc4e43d873869699)
 
-**Album:** Seeds
+**Album:** DAMN.
 
-📅 2024-07-10 19:14:20
+📅 2024-07-11 11:53:06
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Return To Cookie Mountain
+**Album:** Not Like Us
 
-📅 2024-07-10 19:11:16
+📅 2024-07-11 11:52:58
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Return To Cookie Mountain
+**Album:** Euphoria Morning
 
-📅 2024-07-10 18:48:51
+📅 2024-07-11 10:46:42
 
 
-# **Happy Idiot** / TV On The Radio
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Seeds
+**Album:** Euphoria Morning
 
-📅 2024-07-10 16:28:52
+📅 2024-07-11 10:45:28
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Seize The Day** / Wax Tailor|Charlotte Savary
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Seize The Day](https://i.scdn.co/image/ab67616d00001e027ac9bce7782b10334ae1d5c2)
 
-**Album:** Return To Cookie Mountain
+**Album:** Seize The Day
 
-📅 2024-07-10 16:18:42
+📅 2024-07-11 10:27:35
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Paradise Circus** / Massive Attack
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
 
-**Album:** Return To Cookie Mountain
+**Album:** Heligoland
 
-📅 2024-07-10 16:13:51
+📅 2024-07-11 10:24:52
 
 
-# **Wolf Like Me** / TV On The Radio
+# **The Sea** / Morcheeba
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Big Calm](https://i.scdn.co/image/ab67616d00001e0237ee51bfb9ad12746d1df5a6)
 
-**Album:** Return To Cookie Mountain
+**Album:** Big Calm
 
-📅 2024-07-10 16:08:50
+📅 2024-07-11 10:19:54
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Return To Cookie Mountain
+**Album:** White Pony
 
-📅 2024-07-10 16:02:43
+📅 2024-07-11 10:14:07
 
 
-# **Happy Idiot** / TV On The Radio
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** Seeds
+**Album:** Saudade
 
-📅 2024-07-10 15:43:25
+📅 2024-07-11 10:09:07
+
+
+# **Far From Any Road** / The Handsome Family
+
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+
+**Album:** Singing Bones
+
+📅 2024-07-11 10:05:42
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-07-11 10:02:56
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2024-07-11 09:57:46
