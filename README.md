@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-07-13 21:37:38
+
+
+# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
+
+![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
+
+**Album:** BUNKER/PREROLL
+
+📅 2024-07-13 12:09:22
+
+
 # **i** / Kendrick Lamar
 
 ![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-07-12 20:03:23
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-07-12 19:53:07
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-07-12 19:48:30
