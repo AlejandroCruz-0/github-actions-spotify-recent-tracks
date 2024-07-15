@@ -19,6 +19,96 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
+📅 2024-07-15 00:35:34
+
+
+# **Trouble** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-14 21:35:09
+
+
+# **Young Liars** / TV On The Radio
+
+![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
+
+**Album:** Young Liars
+
+📅 2024-07-14 21:13:07
+
+
+# **Careful You** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-14 21:07:54
+
+
+# **Staring at the Sun** / TV On The Radio
+
+![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
+
+**Album:** Young Liars
+
+📅 2024-07-14 21:02:41
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-07-14 20:58:40
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+
+**Album:** Dear Science
+
+📅 2024-07-14 20:54:54
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2024-07-14 20:51:05
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-07-14 20:48:01
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-07-14 20:43:24
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
 📅 2024-07-14 20:38:15
 
 
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** CHASE
 
 📅 2024-07-14 14:47:29
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-14 14:45:13
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-14 13:18:55
-
-
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
-
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
-
-**Album:** BUNKER/PREROLL
-
-📅 2024-07-14 11:27:19
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-14 11:04:38
-
-
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
-
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
-
-**Album:** BUNKER/PREROLL
-
-📅 2024-07-13 21:52:45
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-13 21:37:38
-
-
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
-
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
-
-**Album:** BUNKER/PREROLL
-
-📅 2024-07-13 12:09:22
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-07-13 11:50:48
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-07-13 11:46:56
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-13 11:44:41
