@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Wolf Like Me** / TV On The Radio
+# **My Very Best** / Elbow
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Return To Cookie Mountain
+**Album:** Leaders Of The Free World
 
-📅 2024-07-15 19:16:34
+📅 2024-07-16 20:38:16
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Grounds for Divorce** / Elbow
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
 
-**Album:** Return To Cookie Mountain
+**Album:** The Seldom Seen Kid
 
-📅 2024-07-15 18:33:26
+📅 2024-07-16 20:20:54
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Puncture Repair** / Elbow
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Return To Cookie Mountain
+**Album:** Leaders Of The Free World
 
-📅 2024-07-15 17:47:44
+📅 2024-07-16 20:17:15
 
 
-# **Staring at the Sun** / TV On The Radio
+# **Great Expectations** / Elbow
 
-![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Young Liars
+**Album:** Leaders Of The Free World
 
-📅 2024-07-15 16:37:44
+📅 2024-07-16 20:15:26
 
 
-# **Will Do** / TV On The Radio
+# **My Very Best** / Elbow
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Nine Types of Light
+**Album:** Leaders Of The Free World
 
-📅 2024-07-15 16:14:36
+📅 2024-07-16 20:10:21
 
 
-# **DLZ** / TV On The Radio
+# **Forget Myself** / Elbow
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Dear Science
+**Album:** Leaders Of The Free World
 
-📅 2024-07-15 16:10:50
+📅 2024-07-16 19:55:28
 
 
-# **Careful You** / TV On The Radio
+# **Creator** / Lena Raine|Minecraft
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Minecraft: Tricky Trials (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e022ed5db5c6b5a91746cc79e39)
 
-**Album:** Seeds
+**Album:** Minecraft: Tricky Trials (Original Game Soundtrack)
 
-📅 2024-07-15 15:33:59
+📅 2024-07-16 14:59:45
 
 
-# **Staring at the Sun** / TV On The Radio
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Young Liars
+**Album:** Bueninvento
 
-📅 2024-07-15 15:06:08
+📅 2024-07-16 14:34:40
 
 
-# **Will Do** / TV On The Radio
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Nine Types of Light
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-07-15 15:02:06
+📅 2024-07-16 12:44:34
 
 
-# **DLZ** / TV On The Radio
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Dear Science
+**Album:** Thirteenth Step
 
-📅 2024-07-15 14:58:21
+📅 2024-07-16 12:22:26
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Return To Cookie Mountain
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-07-15 14:54:27
+📅 2024-07-16 12:19:10
 
 
-# **DLZ** / TV On The Radio
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Dear Science
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-07-15 14:48:52
+📅 2024-07-16 12:12:44
 
 
-# **Happy Idiot** / TV On The Radio
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Seeds
+**Album:** Thirteenth Step
 
-📅 2024-07-15 14:45:03
+📅 2024-07-16 12:08:08
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Return To Cookie Mountain
+**Album:** The Magnificent Tree
 
-📅 2024-07-15 14:41:59
+📅 2024-07-16 12:03:57
 
 
-# **Staring at the Sun** / TV On The Radio
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Young Liars
+**Album:** The Magnificent Tree
 
-📅 2024-07-15 12:57:57
+📅 2024-07-16 11:07:54
 
 
-# **Will Do** / TV On The Radio
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Nine Types of Light
+**Album:** The Magnificent Tree
 
-📅 2024-07-15 12:45:48
+📅 2024-07-16 10:42:47
 
 
-# **DLZ** / TV On The Radio
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Dear Science
+**Album:** Thirteenth Step
 
-📅 2024-07-15 12:42:02
+📅 2024-07-16 10:23:12
 
 
-# **Happy Idiot** / TV On The Radio
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Seeds
+**Album:** The Magnificent Tree
 
-📅 2024-07-15 12:38:13
+📅 2024-07-16 10:13:00
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Return To Cookie Mountain
+**Album:** The Magnificent Tree
 
-📅 2024-07-15 12:35:10
+📅 2024-07-16 10:09:04
 
 
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
+# **Engine No. 9** / Deftones
 
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
+![Foto del album: Adrenaline](https://i.scdn.co/image/ab67616d00001e02e0aa988082afc4ea586ab8dc)
 
-**Album:** BUNKER/PREROLL
+**Album:** Adrenaline
 
-📅 2024-07-15 11:49:26
+📅 2024-07-16 09:47:45
