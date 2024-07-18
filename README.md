@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-07-17 18:30:58
+
+
 # **DLZ** / TV On The Radio
 
 ![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Violator | The 12" Singles
 
 📅 2024-07-16 21:31:33
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-07-16 21:10:27
