@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Me Van a Matar** / Julieta Venegas
+# **DLZ** / TV On The Radio
 
-![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
 
-**Album:** Escena Alterlatina
+**Album:** Dear Science
 
-📅 2024-07-18 18:01:04
-
-
-# **Rapto** / Gustavo Cerati
-
-![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
-
-**Album:** Fuerza Natural
-
-📅 2024-07-18 17:57:02
+📅 2024-07-19 16:29:42
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -37,43 +28,79 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-07-18 17:52:36
+📅 2024-07-19 16:24:06
 
 
-# **Great Expectations** / Elbow
+# **Neverender** / Justice|Tame Impala
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Hyperdrama](https://i.scdn.co/image/ab67616d00001e028f4b5df3a6ee2abb733080a9)
 
-**Album:** Leaders Of The Free World
+**Album:** Hyperdrama
 
-📅 2024-07-18 17:48:02
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-18 17:38:52
+📅 2024-07-19 16:00:42
 
 
-# **Forget Myself** / Elbow
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Leaders Of The Free World
+**Album:** Not Like Us
 
-📅 2024-07-18 17:32:57
+📅 2024-07-19 15:40:15
 
 
-# **Happy Idiot** / TV On The Radio
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Seeds
+**Album:** Not Like Us
 
-📅 2024-07-18 17:09:04
+📅 2024-07-19 15:20:22
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-07-19 15:08:18
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-19 12:15:51
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-19 11:48:47
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-19 11:44:35
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-19 11:36:39
 
 
 # **Wolf Like Me** / TV On The Radio
@@ -82,16 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Return To Cookie Mountain
 
-📅 2024-07-18 17:05:21
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-07-18 16:50:39
+📅 2024-07-19 11:32:27
 
 
 # **DLZ** / TV On The Radio
@@ -100,16 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Dear Science
 
-📅 2024-07-18 16:26:40
-
-
-# **Happy Idiot** / TV On The Radio
-
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
-
-**Album:** Seeds
-
-📅 2024-07-18 13:53:45
+📅 2024-07-19 11:21:14
 
 
 # **Wolf Like Me** / TV On The Radio
@@ -118,43 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Return To Cookie Mountain
 
-📅 2024-07-18 13:43:13
-
-
-# **Pump Action** / Overseer
-
-![Foto del album: Superconductor EP](https://i.scdn.co/image/ab67616d00001e023fdd33d28d2d54e707a2cf53)
-
-**Album:** Superconductor EP
-
-📅 2024-07-18 13:38:09
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2024-07-18 13:35:53
-
-
-# **Let Go** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-07-18 13:10:01
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-07-18 12:54:57
+📅 2024-07-19 11:17:11
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -163,7 +136,25 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-07-18 12:51:04
+📅 2024-07-19 11:11:50
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-07-19 10:40:58
+
+
+# **Far From Any Road** / The Handsome Family
+
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+
+**Album:** Singing Bones
+
+📅 2024-07-19 10:36:51
 
 
 # **Wolf Like Me** / TV On The Radio
@@ -172,22 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Return To Cookie Mountain
 
-📅 2024-07-18 12:39:44
+📅 2024-07-19 10:34:04
 
 
-# **Wolf Like Me** / TV On The Radio
+# **DLZ** / TV On The Radio
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
 
-**Album:** Return To Cookie Mountain
+**Album:** Dear Science
 
-📅 2024-07-18 12:25:09
+📅 2024-07-19 10:29:26
 
 
-# **Cherry Waves** / Deftones
+# **i** / Kendrick Lamar
 
-![Foto del album: Saturday Night Wrist](https://i.scdn.co/image/ab67616d00001e02c869fa3b4e0ce4dd9818a40e)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
 
-**Album:** Saturday Night Wrist
+**Album:** i
 
-📅 2024-07-18 10:53:25
+📅 2024-07-19 10:25:18
+
+
+# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
+
+![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
+
+**Album:** BUNKER/PREROLL
+
+📅 2024-07-19 10:21:26
