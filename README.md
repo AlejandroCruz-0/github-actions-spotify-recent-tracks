@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-21 08:14:27
+
+
+# **Papercut** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2024-07-21 08:09:49
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-21 08:06:43
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-21 08:02:02
+
+
+# **Feel Good Inc.** / Gorillaz
+
+![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
+
+**Album:** Demon Days
+
+📅 2024-07-20 22:39:16
+
+
+# **People Are Strange** / The Doors
+
+![Foto del album: Strange Days](https://i.scdn.co/image/ab67616d00001e0286339e6cd71cc2a167451ee5)
+
+**Album:** Strange Days
+
+📅 2024-07-20 22:14:57
+
+
+# **Go With The Flow** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2024-07-20 22:12:46
+
+
+# **Papercut** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2024-07-20 22:09:39
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-20 22:06:33
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-07-20 22:02:51
+
+
+# **Enjoy the Silence** / Depeche Mode
+
+![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+
+**Album:** Violator | The 12" Singles
+
+📅 2024-07-20 16:13:43
+
+
 # **Your Woman** / White Town
 
 ![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nine Types of Light
 
 📅 2024-07-20 11:40:16
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-07-20 11:35:19
-
-
-# **Best Time** / Brent Faiyaz
-
-![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
-
-**Album:** Larger Than Life
-
-📅 2024-07-20 11:21:22
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-07-20 11:12:02
-
-
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
-
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
-
-**Album:** BUNKER/PREROLL
-
-📅 2024-07-20 11:08:09
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-07-20 11:06:09
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-20 11:03:54
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-07-19 22:37:46
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-19 22:21:57
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-19 16:47:31
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2024-07-19 16:29:42
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-07-19 16:24:06
