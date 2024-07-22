@@ -13,22 +13,76 @@ Nombre: **lotario1999**
 
 
 
+# **Breed** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-21 20:01:25
+
+
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-21 19:58:20
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-21 19:54:41
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-21 19:50:26
+
+
+# **About A Girl** / Nirvana
+
+![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
+
+**Album:** Bleach
+
+📅 2024-07-21 19:45:22
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-21 19:41:41
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-07-21 15:38:32
+
+
 # **Show Me How to Live** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
 **Album:** Audioslave
 
-📅 2024-07-21 08:14:27
-
-
-# **Papercut** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-07-21 08:09:49
+📅 2024-07-21 15:08:45
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -37,25 +91,25 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 08:06:43
+📅 2024-07-21 14:45:08
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Lonely Boy** / The Black Keys
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** El Camino
 
-📅 2024-07-21 08:02:02
+📅 2024-07-21 14:38:05
 
 
-# **Feel Good Inc.** / Gorillaz
+# **Jeremy** / Pearl Jam
 
-![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
 
-**Album:** Demon Days
+**Album:** Ten
 
-📅 2024-07-20 22:39:16
+📅 2024-07-21 14:34:51
 
 
 # **People Are Strange** / The Doors
@@ -64,16 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Strange Days
 
-📅 2024-07-20 22:14:57
-
-
-# **Go With The Flow** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2024-07-20 22:12:46
+📅 2024-07-21 14:29:32
 
 
 # **Papercut** / Linkin Park
@@ -82,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Hybrid Theory (Bonus Edition)
 
-📅 2024-07-20 22:09:39
+📅 2024-07-21 14:27:21
 
 
 # **Cochise** / Audioslave
@@ -91,7 +136,25 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
-📅 2024-07-20 22:06:33
+📅 2024-07-21 14:24:16
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-21 14:20:33
+
+
+# **Feel Good Inc.** / Gorillaz
+
+![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
+
+**Album:** Demon Days
+
+📅 2024-07-21 13:29:27
 
 
 # **Heart-Shaped Box** / Nirvana
@@ -100,94 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (Deluxe Edition)
 
-📅 2024-07-20 22:02:51
+📅 2024-07-21 13:14:43
 
 
-# **Enjoy the Silence** / Depeche Mode
+# **Like a Stone** / Audioslave
 
-![Foto del album: Violator | The 12" Singles](https://i.scdn.co/image/ab67616d00001e02972ac79d249efed1c7b2c8c1)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Violator | The 12" Singles
+**Album:** Audioslave
 
-📅 2024-07-20 16:13:43
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2024-07-20 15:43:48
+📅 2024-07-21 12:06:07
 
 
-# **Far From Any Road** / The Handsome Family
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Singing Bones
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-20 15:39:28
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-07-20 15:36:41
+📅 2024-07-21 08:23:49
 
 
-# **Glory Box** / Portishead
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Dummy
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-20 15:32:57
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-20 15:27:28
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-20 13:53:39
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-07-20 11:57:37
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-07-20 11:44:43
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-07-20 11:40:16
+📅 2024-07-21 08:19:10
