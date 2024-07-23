@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-22 23:21:30
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-22 23:17:15
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-22 23:11:51
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-22 23:07:01
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-22 23:02:15
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-22 22:11:16
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-22 21:47:59
+
+
 # **Even Flow** / Pearl Jam
 
 ![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hybrid Theory (Bonus Edition)
 
 📅 2024-07-22 16:17:05
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-07-22 16:14:00
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-07-22 16:10:17
-
-
-# **People Are Strange** / The Doors
-
-![Foto del album: Strange Days](https://i.scdn.co/image/ab67616d00001e0286339e6cd71cc2a167451ee5)
-
-**Album:** Strange Days
-
-📅 2024-07-22 15:45:00
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-07-22 15:34:37
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-07-22 14:10:05
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-07-22 13:57:09
-
-
-# **Feel Good Inc.** / Gorillaz
-
-![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
-
-**Album:** Demon Days
-
-📅 2024-07-22 09:55:00
