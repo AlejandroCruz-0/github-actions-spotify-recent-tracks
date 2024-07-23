@@ -13,22 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Breed** / Nirvana
+# **Even Flow** / Pearl Jam
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
 
-**Album:** Nevermind (Remastered)
+**Album:** Ten
 
-📅 2024-07-21 20:01:25
+📅 2024-07-22 18:34:20
 
 
-# **Come As You Are** / Nirvana
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Nevermind (Remastered)
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 19:58:20
+📅 2024-07-22 18:15:46
+
+
+# **Even Flow** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-07-22 18:07:57
 
 
 # **In Bloom** / Nirvana
@@ -37,25 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-07-21 19:54:41
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-21 19:50:26
-
-
-# **About A Girl** / Nirvana
-
-![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
-
-**Album:** Bleach
-
-📅 2024-07-21 19:45:22
+📅 2024-07-22 17:52:56
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -64,25 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 19:41:41
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-07-21 15:38:32
-
-
-# **Show Me How to Live** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-07-21 15:08:45
+📅 2024-07-22 17:48:40
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -91,52 +64,16 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 14:45:08
+📅 2024-07-22 17:23:48
 
 
-# **Lonely Boy** / The Black Keys
+# **Be Yourself** / Audioslave
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Out of Exile](https://i.scdn.co/image/ab67616d00001e0207301dd5fedf5ad64cde4882)
 
-**Album:** El Camino
+**Album:** Out of Exile
 
-📅 2024-07-21 14:38:05
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-21 14:34:51
-
-
-# **People Are Strange** / The Doors
-
-![Foto del album: Strange Days](https://i.scdn.co/image/ab67616d00001e0286339e6cd71cc2a167451ee5)
-
-**Album:** Strange Days
-
-📅 2024-07-21 14:29:32
-
-
-# **Papercut** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-07-21 14:27:21
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-07-21 14:24:16
+📅 2024-07-22 16:51:16
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -145,7 +82,16 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 14:20:33
+📅 2024-07-22 16:46:37
+
+
+# **Go With The Flow** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2024-07-22 16:32:29
 
 
 # **Feel Good Inc.** / Gorillaz
@@ -154,25 +100,43 @@ Nombre: **lotario1999**
 
 **Album:** Demon Days
 
-📅 2024-07-21 13:29:27
+📅 2024-07-22 16:29:21
 
 
-# **Heart-Shaped Box** / Nirvana
+# **Lonely Boy** / The Black Keys
 
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** In Utero (Deluxe Edition)
+**Album:** El Camino
 
-📅 2024-07-21 13:14:43
+📅 2024-07-22 16:25:38
 
 
-# **Like a Stone** / Audioslave
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-07-22 16:22:24
+
+
+# **Papercut** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2024-07-22 16:17:05
+
+
+# **Cochise** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
 **Album:** Audioslave
 
-📅 2024-07-21 12:06:07
+📅 2024-07-22 16:14:00
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -181,7 +145,16 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 08:23:49
+📅 2024-07-22 16:10:17
+
+
+# **People Are Strange** / The Doors
+
+![Foto del album: Strange Days](https://i.scdn.co/image/ab67616d00001e0286339e6cd71cc2a167451ee5)
+
+**Album:** Strange Days
+
+📅 2024-07-22 15:45:00
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-21 08:19:10
+📅 2024-07-22 15:34:37
+
+
+# **Show Me How to Live** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-07-22 14:10:05
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-22 13:57:09
+
+
+# **Feel Good Inc.** / Gorillaz
+
+![Foto del album: Demon Days](https://i.scdn.co/image/ab67616d00001e0219d85a472f328a6ed9b704cf)
+
+**Album:** Demon Days
+
+📅 2024-07-22 09:55:00
