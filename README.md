@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Breed** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-23 23:51:28
+
+
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-23 23:48:23
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-23 23:44:44
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-23 23:40:29
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-23 23:35:28
+
+
+# **Daughter - Remastered** / Pearl Jam
+
+![Foto del album: Vs.](https://i.scdn.co/image/ab67616d00001e02777344aba9d5b5785b4593a5)
+
+**Album:** Vs.
+
+📅 2024-07-23 18:21:22
+
+
 # **Come As You Are** / Nirvana
 
 ![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** In Utero (Deluxe Edition)
 
 📅 2024-07-23 15:47:57
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-07-23 15:38:00
-
-
-# **The Passenger** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2024-07-23 14:44:50
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-07-23 14:30:52
-
-
-# **One Step Closer** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-07-23 13:47:34
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-23 13:22:03
-
-
-# **Alive** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-07-23 13:17:00
