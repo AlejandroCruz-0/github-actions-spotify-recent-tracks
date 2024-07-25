@@ -13,13 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Breed** / Nirvana
+# **In Bloom** / Nirvana
 
 ![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-07-23 23:51:28
+📅 2024-07-24 18:48:01
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-07-24 18:43:00
 
 
 # **Come As You Are** / Nirvana
@@ -28,16 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-07-23 23:48:23
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-23 23:44:44
+📅 2024-07-24 18:38:13
 
 
 # **Smells Like Teen Spirit** / Nirvana
@@ -46,25 +46,52 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-07-23 23:40:29
+📅 2024-07-24 18:34:32
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Lithium** / Nirvana
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Nevermind (Remastered)
 
-📅 2024-07-23 23:35:28
+📅 2024-07-24 18:26:02
 
 
-# **Daughter - Remastered** / Pearl Jam
+# **About A Girl** / Nirvana
 
-![Foto del album: Vs.](https://i.scdn.co/image/ab67616d00001e02777344aba9d5b5785b4593a5)
+![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
 
-**Album:** Vs.
+**Album:** Bleach
 
-📅 2024-07-23 18:21:22
+📅 2024-07-24 18:21:44
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-07-24 18:18:55
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-07-24 18:10:35
+
+
+# **Breed** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-24 16:43:21
 
 
 # **Come As You Are** / Nirvana
@@ -73,79 +100,70 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-07-23 18:03:00
+📅 2024-07-24 16:27:06
 
 
-# **Should I Stay or Should I Go - Remastered** / The Clash
+# **In Bloom** / Nirvana
 
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Combat Rock (Remastered)
+**Album:** Nevermind (Remastered)
 
-📅 2024-07-23 17:59:21
-
-
-# **Street Spirit (Fade Out)** / Radiohead
-
-![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
-
-**Album:** The Bends
-
-📅 2024-07-23 17:56:12
+📅 2024-07-24 16:23:27
 
 
-# **Lonely Boy** / The Black Keys
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** El Camino
+**Album:** Nevermind (Remastered)
 
-📅 2024-07-23 17:51:57
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-07-23 17:48:43
+📅 2024-07-24 16:18:49
 
 
-# **People Are Strange** / The Doors
+# **Breed** / Nirvana
 
-![Foto del album: Strange Days](https://i.scdn.co/image/ab67616d00001e0286339e6cd71cc2a167451ee5)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Strange Days
+**Album:** Nevermind (Remastered)
 
-📅 2024-07-23 17:43:40
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-07-23 17:41:29
+📅 2024-07-24 14:51:30
 
 
-# **Mad About You** / Hooverphonic
+# **Come As You Are** / Nirvana
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** The Magnificent Tree
+**Album:** Nevermind (Remastered)
 
-📅 2024-07-23 17:34:21
+📅 2024-07-24 14:41:12
 
 
-# **Glory Box** / Portishead
+# **In Bloom** / Nirvana
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Dummy
+**Album:** Nevermind (Remastered)
 
-📅 2024-07-23 17:30:36
+📅 2024-07-24 14:37:33
+
+
+# **Frances Farmer Will Have Her Revenge On Seattle - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-24 14:32:14
+
+
+# **Rape Me - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-24 14:28:05
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -154,7 +172,16 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-23 17:25:29
+📅 2024-07-24 14:25:15
+
+
+# **Rape Me - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-24 13:47:33
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -163,31 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-07-23 17:08:01
-
-
-# **Papercut** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2024-07-23 16:35:56
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-07-23 16:13:14
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-07-23 15:47:57
+📅 2024-07-24 13:28:00
