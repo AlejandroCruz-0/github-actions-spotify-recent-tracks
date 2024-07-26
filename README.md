@@ -19,6 +19,33 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
+📅 2024-07-26 00:24:32
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 00:20:17
+
+
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-25 18:27:31
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
 📅 2024-07-25 18:10:27
 
 
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Diamond Eyes
 
 📅 2024-07-25 17:02:09
-
-
-# **Please Please Please Let Me Get What I Want - 2005 Remaster** / Deftones
-
-![Foto del album: Covers](https://i.scdn.co/image/ab67616d00001e0258df6181041c38412db1b253)
-
-**Album:** Covers
-
-📅 2024-07-25 16:58:07
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-25 16:56:02
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2024-07-25 14:09:44
