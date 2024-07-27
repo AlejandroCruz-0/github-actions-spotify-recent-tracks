@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 22:40:58
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 22:37:20
+
+
+# **Stay Away** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 22:15:36
+
+
+# **Lounge Act** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 22:04:33
+
+
+# **Drain You** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 22:01:57
+
+
+# **Territorial Pissings** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 21:58:13
+
+
+# **Polly** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 21:55:50
+
+
+# **Lithium** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-07-26 21:52:56
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-07-26 21:48:35
+
+
 # **Cochise** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nevermind (Remastered)
 
 📅 2024-07-26 15:31:30
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 15:27:51
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 15:11:20
-
-
-# **Territorial Pissings** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 13:38:22
-
-
-# **Polly** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 13:23:40
-
-
-# **Lithium** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 13:20:46
-
-
-# **Breed** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 13:04:11
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 12:42:13
-
-
-# **Lithium** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 12:18:58
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-07-26 12:14:42
