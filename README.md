@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-07-28 10:18:41
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-07-28 10:08:19
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-07-28 10:04:35
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-07-28 09:54:08
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-07-28 08:21:22
+
+
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
 ![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Leaders Of The Free World
 
 📅 2024-07-27 20:33:09
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-27 20:28:04
-
-
-# **The Everthere** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-27 20:22:30
-
-
-# **Mexican Standoff** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-27 20:18:17
-
-
-# **An Imagined Affair** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-27 20:14:15
-
-
-# **Leaders of the Free World** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2024-07-27 20:09:31
