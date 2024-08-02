@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Pure Morning** / Placebo
+
+![Foto del album: Without You I'm Nothing](https://i.scdn.co/image/ab67616d00001e02f05be6e0f6c59b1563b4e35e)
+
+**Album:** Without You I'm Nothing
+
+📅 2024-08-01 22:53:10
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-08-01 22:48:55
+
+
+# **Disarm - 2011 Remaster** / The Smashing Pumpkins
+
+![Foto del album: Siamese Dream (2011 - Remaster)](https://i.scdn.co/image/ab67616d00001e02f00d9c29f0eb7691f908f23a)
+
+**Album:** Siamese Dream (2011 - Remaster)
+
+📅 2024-08-01 22:44:13
+
+
+# **This Is Love** / PJ Harvey
+
+![Foto del album: Stories From The City, Stories From The Sea](https://i.scdn.co/image/ab67616d00001e0209e4ac9a68d9ea5ef0ad9b05)
+
+**Album:** Stories From The City, Stories From The Sea
+
+📅 2024-08-01 22:28:09
+
+
+# **Lithium** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-01 22:15:45
+
+
+# **Perfect** / The Smashing Pumpkins
+
+![Foto del album: Adore (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02dc528993bff15162639b2d94)
+
+**Album:** Adore (Super Deluxe)
+
+📅 2024-08-01 22:11:27
+
+
+# **Evidence - 2016 Remaster** / Faith No More
+
+![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+
+**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+
+📅 2024-08-01 22:06:56
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-08-01 18:25:51
+
+
 # **Ava Adore** / The Smashing Pumpkins
 
 ![Foto del album: Adore (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02dc528993bff15162639b2d94)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Silence Is Easy
 
 📅 2024-08-01 12:49:16
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-01 12:42:41
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2024-08-01 12:30:40
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-01 12:25:06
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-08-01 12:08:47
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-01 12:04:54
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-01 11:53:01
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-08-01 11:41:28
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-01 11:32:47
