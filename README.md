@@ -13,31 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **In Bloom** / Nirvana
+# **Ava Adore** / The Smashing Pumpkins
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Adore (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02dc528993bff15162639b2d94)
 
-**Album:** Nevermind (Remastered)
+**Album:** Adore (Super Deluxe)
 
-📅 2024-07-31 23:51:04
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-07-31 18:10:37
+📅 2024-08-01 18:00:46
 
 
-# **In Bloom** / Nirvana
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Nevermind (Remastered)
+**Album:** Euphoria Morning
 
-📅 2024-07-31 17:39:37
+📅 2024-08-01 17:51:52
 
 
 # **Smells Like Teen Spirit** / Nirvana
@@ -46,16 +37,34 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-07-31 17:25:29
+📅 2024-08-01 17:37:37
 
 
-# **Four to the Floor - Thin White Duke Mix; Short Version** / Starsailor
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Four To The Floor](https://i.scdn.co/image/ab67616d00001e02c4dda44fca5b55b814ca33bc)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Four To The Floor
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-07-31 15:38:20
+📅 2024-08-01 17:32:35
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-08-01 16:46:23
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-01 16:27:15
 
 
 # **Good Souls** / Starsailor
@@ -64,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Love Is Here
 
-📅 2024-07-31 15:27:09
+📅 2024-08-01 14:17:25
 
 
 # **Silence Is Easy** / Starsailor
@@ -73,115 +82,97 @@ Nombre: **lotario1999**
 
 **Album:** Silence Is Easy
 
-📅 2024-07-31 15:22:15
+📅 2024-08-01 13:54:10
 
 
-# **Like a Stone** / Audioslave
+# **Four to the Floor** / Starsailor
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Audioslave
+**Album:** Silence Is Easy
 
-📅 2024-07-31 13:11:09
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-07-31 13:00:09
+📅 2024-08-01 13:33:16
 
 
-# **Losing My Religion** / R.E.M.
+# **Alcoholic** / Starsailor
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Love Is Here
 
-📅 2024-07-31 12:43:55
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-07-31 12:32:37
+📅 2024-08-01 13:09:32
 
 
-# **Losing My Religion** / R.E.M.
+# **Good Souls** / Starsailor
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Love Is Here
 
-📅 2024-07-31 12:23:18
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-07-31 12:12:47
+📅 2024-08-01 12:54:09
 
 
-# **November Rain** / Guns N' Roses
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Use Your Illusion I
+**Album:** Silence Is Easy
 
-📅 2024-07-31 12:03:51
-
-
-# **Like a Stone** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-07-31 11:54:55
+📅 2024-08-01 12:49:16
 
 
-# **Losing My Religion** / R.E.M.
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Silence Is Easy
 
-📅 2024-07-31 11:50:00
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-07-31 11:45:33
+📅 2024-08-01 12:42:41
 
 
-# **Losing My Religion** / R.E.M.
+# **DLZ** / TV On The Radio
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Dear Science
 
-📅 2024-07-31 11:17:00
+📅 2024-08-01 12:30:40
 
 
-# **Like a Stone** / Audioslave
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Audioslave
+**Album:** Not Like Us
 
-📅 2024-07-31 10:22:16
+📅 2024-08-01 12:25:06
+
+
+# **i** / Kendrick Lamar
+
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
+
+**Album:** i
+
+📅 2024-08-01 12:08:47
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-01 12:04:54
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-01 11:53:01
 
 
 # **Losing My Religion** / R.E.M.
@@ -190,4 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-07-31 09:47:16
+📅 2024-08-01 11:41:28
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-01 11:32:47
