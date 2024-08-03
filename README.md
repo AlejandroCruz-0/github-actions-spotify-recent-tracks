@@ -13,67 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **Pure Morning** / Placebo
-
-![Foto del album: Without You I'm Nothing](https://i.scdn.co/image/ab67616d00001e02f05be6e0f6c59b1563b4e35e)
-
-**Album:** Without You I'm Nothing
-
-📅 2024-08-01 22:53:10
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-08-01 22:48:55
-
-
-# **Disarm - 2011 Remaster** / The Smashing Pumpkins
-
-![Foto del album: Siamese Dream (2011 - Remaster)](https://i.scdn.co/image/ab67616d00001e02f00d9c29f0eb7691f908f23a)
-
-**Album:** Siamese Dream (2011 - Remaster)
-
-📅 2024-08-01 22:44:13
-
-
-# **This Is Love** / PJ Harvey
-
-![Foto del album: Stories From The City, Stories From The Sea](https://i.scdn.co/image/ab67616d00001e0209e4ac9a68d9ea5ef0ad9b05)
-
-**Album:** Stories From The City, Stories From The Sea
-
-📅 2024-08-01 22:28:09
-
-
-# **Lithium** / Nirvana
+# **Come As You Are** / Nirvana
 
 ![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-08-01 22:15:45
+📅 2024-08-02 14:52:08
 
 
-# **Perfect** / The Smashing Pumpkins
+# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
 
-![Foto del album: Adore (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02dc528993bff15162639b2d94)
+![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
 
-**Album:** Adore (Super Deluxe)
+**Album:** Saudade
 
-📅 2024-08-01 22:11:27
+📅 2024-08-02 14:48:29
 
 
-# **Evidence - 2016 Remaster** / Faith No More
+# **Duvet** / bôa
 
-![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+**Album:** Twilight
 
-📅 2024-08-01 22:06:56
+📅 2024-08-02 14:45:05
+
+
+# **Change (In the House of Flies)** / Deftones
+
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
+
+**Album:** White Pony
+
+📅 2024-08-02 14:41:41
+
+
+# **Far From Any Road** / The Handsome Family
+
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
+
+**Album:** Singing Bones
+
+📅 2024-08-02 14:36:41
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-08-02 14:33:54
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-08-02 14:30:09
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2024-08-02 14:19:25
 
 
 # **Heart-Shaped Box** / Nirvana
@@ -82,16 +91,52 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (Deluxe Edition)
 
-📅 2024-08-01 18:25:51
+📅 2024-08-02 14:15:04
 
 
-# **Ava Adore** / The Smashing Pumpkins
+# **Firestarter** / The Prodigy
 
-![Foto del album: Adore (Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02dc528993bff15162639b2d94)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Adore (Super Deluxe)
+**Album:** The Fat of the Land
 
-📅 2024-08-01 18:00:46
+📅 2024-08-02 14:10:22
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-02 13:51:34
+
+
+# **I'm Good Luv, Enjoy.** / Aaron May
+
+![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
+
+**Album:** CHASE
+
+📅 2024-08-02 13:43:12
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-02 13:40:57
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-02 13:34:26
 
 
 # **Disappearing One** / Chris Cornell
@@ -100,16 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-08-01 17:51:52
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-01 17:37:37
+📅 2024-08-02 13:28:48
 
 
 # **Losing My Religion** / R.E.M.
@@ -118,16 +154,25 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-01 17:32:35
+📅 2024-08-02 13:24:29
 
 
-# **Jeremy** / Pearl Jam
+# **November Rain** / Guns N' Roses
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
 
-**Album:** Ten
+**Album:** Use Your Illusion I
 
-📅 2024-08-01 16:46:23
+📅 2024-08-02 12:56:47
+
+
+# **Like a Stone** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-08-02 12:40:26
 
 
 # **Losing My Religion** / R.E.M.
@@ -136,58 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-01 16:27:15
+📅 2024-08-02 12:35:32
 
 
-# **Good Souls** / Starsailor
+# **Rocket Man (I Think It's Going To Be A Long, Long Time)** / Elton John
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Honky Chateau](https://i.scdn.co/image/ab67616d00001e023009007708ab5134936a58b3)
 
-**Album:** Love Is Here
+**Album:** Honky Chateau
 
-📅 2024-08-01 14:17:25
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-01 13:54:10
-
-
-# **Four to the Floor** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-01 13:33:16
-
-
-# **Alcoholic** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-01 13:09:32
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-01 12:54:09
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-01 12:49:16
+📅 2024-08-02 10:53:08
