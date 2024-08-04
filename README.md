@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-04 00:11:48
+
+
+# **Like a Stone** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-08-03 20:48:36
+
+
 # **Losing My Religion** / R.E.M.
 
 ![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** White Pony
 
 📅 2024-08-02 14:41:41
-
-
-# **Far From Any Road** / The Handsome Family
-
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
-
-**Album:** Singing Bones
-
-📅 2024-08-02 14:36:41
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-02 14:33:54
