@@ -19,6 +19,42 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
+📅 2024-08-05 01:14:19
+
+
+# **BEST INTEREST** / Tyler, The Creator
+
+![Foto del album: BEST INTEREST](https://i.scdn.co/image/ab67616d00001e02ab8995f18dc3dd9f34a6acd4)
+
+**Album:** BEST INTEREST
+
+📅 2024-08-04 21:16:07
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-04 20:53:01
+
+
+# **Best Time** / Brent Faiyaz
+
+![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
+
+**Album:** Larger Than Life
+
+📅 2024-08-04 20:14:12
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
 📅 2024-08-04 20:03:35
 
 
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Audioslave
 
 📅 2024-08-03 20:48:36
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-08-03 20:28:47
-
-
-# **November Rain** / Guns N' Roses
-
-![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
-
-**Album:** Use Your Illusion I
-
-📅 2024-08-03 15:50:20
-
-
-# **Like a Stone** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-08-03 15:30:26
-
-
-# **Like a Stone** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-08-03 14:46:30
