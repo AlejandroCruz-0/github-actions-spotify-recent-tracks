@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-06 00:04:26
+
+
+# **Endless, Nameless** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-05 23:42:53
+
+
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-05 22:40:53
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-08-05 22:29:23
+
+
+# **Alcoholic** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-05 18:44:19
+
+
 # **Good Souls** / Starsailor
 
 ![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Not Like Us
 
 📅 2024-08-05 12:58:57
-
-
-# **Welcome To The Jungle** / Guns N' Roses
-
-![Foto del album: Appetite For Destruction](https://i.scdn.co/image/ab67616d00001e0221ebf49b3292c3f0f575f0f5)
-
-**Album:** Appetite For Destruction
-
-📅 2024-08-05 12:40:39
-
-
-# **Another Brick in the Wall, Pt. 1** / Pink Floyd
-
-![Foto del album: The Wall](https://i.scdn.co/image/ab67616d00001e025d48e2f56d691f9a4e4b0bdf)
-
-**Album:** The Wall
-
-📅 2024-08-05 12:30:22
-
-
-# **Another Brick in the Wall, Pt. 2** / Pink Floyd
-
-![Foto del album: The Wall](https://i.scdn.co/image/ab67616d00001e025d48e2f56d691f9a4e4b0bdf)
-
-**Album:** The Wall
-
-📅 2024-08-05 12:27:09
-
-
-# **Last Kiss** / Pearl Jam
-
-![Foto del album: Last Kiss](https://i.scdn.co/image/ab67616d00001e02d7db5abcbc899f3994c66fc6)
-
-**Album:** Last Kiss
-
-📅 2024-08-05 12:23:10
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-05 12:15:31
