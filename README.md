@@ -13,121 +13,112 @@ Nombre: **lotario1999**
 
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Good Souls** / Starsailor
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Not Like Us
+**Album:** Love Is Here
 
-📅 2024-08-05 01:14:19
-
-
-# **BEST INTEREST** / Tyler, The Creator
-
-![Foto del album: BEST INTEREST](https://i.scdn.co/image/ab67616d00001e02ab8995f18dc3dd9f34a6acd4)
-
-**Album:** BEST INTEREST
-
-📅 2024-08-04 21:16:07
+📅 2024-08-05 18:32:05
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Not Like Us
+**Album:** Silence Is Easy
 
-📅 2024-08-04 20:53:01
-
-
-# **Best Time** / Brent Faiyaz
-
-![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
-
-**Album:** Larger Than Life
-
-📅 2024-08-04 20:14:12
+📅 2024-08-05 18:27:05
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Not Like Us
+**Album:** Silence Is Easy
 
-📅 2024-08-04 20:03:35
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-08-04 19:36:27
+📅 2024-08-05 18:07:08
 
 
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** BUNKER/PREROLL
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-04 19:16:18
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-08-04 19:14:17
+📅 2024-08-05 17:42:31
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Map of Your Head** / Muse
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
 
-**Album:** Not Like Us
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
 
-📅 2024-08-04 19:10:28
-
-
-# **LUNCH** / Billie Eilish
-
-![Foto del album: HIT ME HARD AND SOFT](https://i.scdn.co/image/ab67616d00001e0271d62ea7ea8a5be92d3c1f62)
-
-**Album:** HIT ME HARD AND SOFT
-
-📅 2024-08-04 18:08:30
+📅 2024-08-05 17:28:02
 
 
-# **Let Go** / Aaron May
+# **Nature_1** / Muse
 
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
 
-**Album:** CHASE
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
 
-📅 2024-08-04 17:54:24
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-04 17:51:26
+📅 2024-08-05 16:32:02
 
 
-# **Best Time** / Brent Faiyaz
+# **Map of Your Head** / Muse
 
-![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
 
-**Album:** Larger Than Life
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
 
-📅 2024-08-04 12:16:20
+📅 2024-08-05 16:11:33
+
+
+# **Shrinking Universe** / Muse
+
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
+
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
+
+📅 2024-08-05 15:45:42
+
+
+# **Recess** / Muse
+
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
+
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
+
+📅 2024-08-05 15:39:40
+
+
+# **Shrinking Universe** / Muse
+
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
+
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
+
+📅 2024-08-05 14:58:28
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2024-08-05 13:50:35
+
+
+# **Bliss** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2024-08-05 13:34:44
 
 
 # **i** / Kendrick Lamar
@@ -136,16 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** i
 
-📅 2024-08-04 12:05:16
-
-
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
-
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
-
-**Album:** BUNKER/PREROLL
-
-📅 2024-08-04 12:01:24
+📅 2024-08-05 13:13:54
 
 
 # **I'm Good Luv, Enjoy.** / Aaron May
@@ -154,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** CHASE
 
-📅 2024-08-04 11:59:23
+📅 2024-08-05 13:01:12
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -163,31 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-08-04 11:57:08
+📅 2024-08-05 12:58:57
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Welcome To The Jungle** / Guns N' Roses
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Appetite For Destruction](https://i.scdn.co/image/ab67616d00001e0221ebf49b3292c3f0f575f0f5)
 
-**Album:** Euphoria Morning
+**Album:** Appetite For Destruction
 
-📅 2024-08-04 00:22:59
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-04 00:11:48
+📅 2024-08-05 12:40:39
 
 
-# **Like a Stone** / Audioslave
+# **Another Brick in the Wall, Pt. 1** / Pink Floyd
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: The Wall](https://i.scdn.co/image/ab67616d00001e025d48e2f56d691f9a4e4b0bdf)
 
-**Album:** Audioslave
+**Album:** The Wall
 
-📅 2024-08-03 20:48:36
+📅 2024-08-05 12:30:22
+
+
+# **Another Brick in the Wall, Pt. 2** / Pink Floyd
+
+![Foto del album: The Wall](https://i.scdn.co/image/ab67616d00001e025d48e2f56d691f9a4e4b0bdf)
+
+**Album:** The Wall
+
+📅 2024-08-05 12:27:09
+
+
+# **Last Kiss** / Pearl Jam
+
+![Foto del album: Last Kiss](https://i.scdn.co/image/ab67616d00001e02d7db5abcbc899f3994c66fc6)
+
+**Album:** Last Kiss
+
+📅 2024-08-05 12:23:10
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-05 12:15:31
