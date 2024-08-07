@@ -13,175 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Losing My Religion** / R.E.M.
+# **Let's Go** / Key Glock
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Glockoma 2 (Deluxe)](https://i.scdn.co/image/ab67616d00001e029c6589cb7500fa8e6f343990)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Glockoma 2 (Deluxe)
 
-📅 2024-08-06 00:04:26
-
-
-# **Endless, Nameless** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-05 23:42:53
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-05 22:40:53
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-05 22:29:23
-
-
-# **Alcoholic** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-05 18:44:19
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-05 18:32:05
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-05 18:27:05
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-08-05 18:07:08
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-08-05 17:42:31
-
-
-# **Map of Your Head** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-08-05 17:28:02
-
-
-# **Nature_1** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-08-05 16:32:02
-
-
-# **Map of Your Head** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-08-05 16:11:33
-
-
-# **Shrinking Universe** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-08-05 15:45:42
-
-
-# **Recess** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-08-05 15:39:40
-
-
-# **Shrinking Universe** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2024-08-05 14:58:28
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2024-08-05 13:50:35
-
-
-# **Bliss** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2024-08-05 13:34:44
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-08-05 13:13:54
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-08-05 13:01:12
+📅 2024-08-06 17:00:50
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -190,4 +28,166 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-08-05 12:58:57
+📅 2024-08-06 16:50:06
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+
+**Album:** Dear Science
+
+📅 2024-08-06 16:36:09
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-06 16:10:40
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-06 16:04:36
+
+
+# **BEST INTEREST** / Tyler, The Creator
+
+![Foto del album: BEST INTEREST](https://i.scdn.co/image/ab67616d00001e02ab8995f18dc3dd9f34a6acd4)
+
+**Album:** BEST INTEREST
+
+📅 2024-08-06 15:54:56
+
+
+# **Best Time** / Brent Faiyaz
+
+![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
+
+**Album:** Larger Than Life
+
+📅 2024-08-06 15:52:48
+
+
+# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
+
+![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
+
+**Album:** BUNKER/PREROLL
+
+📅 2024-08-06 15:51:25
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-06 15:49:24
+
+
+# **Steel Rain** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-06 15:30:53
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-06 15:15:32
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-06 15:11:04
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-06 14:52:24
+
+
+# **Nightmare Cure** / DanyloM|Electro Swing Thing
+
+![Foto del album: Nightmare Cure](https://i.scdn.co/image/ab67616d00001e02e34987fcf744c022e6c88199)
+
+**Album:** Nightmare Cure
+
+📅 2024-08-06 13:49:01
+
+
+# **Lone Digger** / Caravan Palace
+
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+
+**Album:** <I°_°I>
+
+📅 2024-08-06 13:24:12
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-08-06 13:19:00
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-08-06 13:05:40
+
+
+# **Staring at the Sun** / TV On The Radio
+
+![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
+
+**Album:** Young Liars
+
+📅 2024-08-06 12:51:18
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-08-06 12:47:17
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+
+**Album:** Dear Science
+
+📅 2024-08-06 12:43:31
