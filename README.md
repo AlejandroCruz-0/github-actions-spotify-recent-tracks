@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-07 17:53:52
+
+
 # **Silence Is Easy** / Starsailor
 
 ![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Not Like Us
 
 📅 2024-08-07 10:35:21
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2024-08-07 10:30:02
