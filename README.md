@@ -13,22 +13,157 @@ Nombre: **lotario1999**
 
 
 
-# **Let's Go** / Key Glock
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: Glockoma 2 (Deluxe)](https://i.scdn.co/image/ab67616d00001e029c6589cb7500fa8e6f343990)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Glockoma 2 (Deluxe)
+**Album:** Silence Is Easy
 
-📅 2024-08-06 17:00:50
+📅 2024-08-07 13:41:23
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Special (2018 - Remaster)** / Garbage
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
 
-**Album:** Not Like Us
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2024-08-06 16:50:06
+📅 2024-08-07 13:37:42
+
+
+# **Queer (2015 - Remaster)** / Garbage
+
+![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02ecd4b6a494f743c8ff799468)
+
+**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+
+📅 2024-08-07 13:21:09
+
+
+# **Postcard from Celeste Mountain** / Lena Raine
+
+![Foto del album: Celeste (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b351fafcb334009c3216a039)
+
+**Album:** Celeste (Original Soundtrack)
+
+📅 2024-08-07 13:16:33
+
+
+# **Awake** / Lena Raine
+
+![Foto del album: Celeste (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b351fafcb334009c3216a039)
+
+**Album:** Celeste (Original Soundtrack)
+
+📅 2024-08-07 13:09:17
+
+
+# **Resurrections** / Lena Raine
+
+![Foto del album: Celeste (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b351fafcb334009c3216a039)
+
+**Album:** Celeste (Original Soundtrack)
+
+📅 2024-08-07 13:06:48
+
+
+# **Belly Side Up** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-07 12:11:33
+
+
+# **Time Deer** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-07 12:01:25
+
+
+# **These Hands** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-07 11:56:03
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-07 11:50:26
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-07 11:43:57
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-07 11:25:52
+
+
+# **First Love/Late Spring** / Mitski
+
+![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
+
+**Album:** Bury Me At Makeout Creek
+
+📅 2024-08-07 11:01:28
+
+
+# **Alcoholic** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-07 10:56:31
+
+
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-07 10:52:35
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-08-07 10:47:41
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-07 10:43:52
 
 
 # **DLZ** / TV On The Radio
@@ -37,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Dear Science
 
-📅 2024-08-06 16:36:09
+📅 2024-08-07 10:39:09
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -46,148 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2024-08-06 16:10:40
+📅 2024-08-07 10:35:21
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Not Like Us
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-08-06 16:04:36
-
-
-# **BEST INTEREST** / Tyler, The Creator
-
-![Foto del album: BEST INTEREST](https://i.scdn.co/image/ab67616d00001e02ab8995f18dc3dd9f34a6acd4)
-
-**Album:** BEST INTEREST
-
-📅 2024-08-06 15:54:56
-
-
-# **Best Time** / Brent Faiyaz
-
-![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
-
-**Album:** Larger Than Life
-
-📅 2024-08-06 15:52:48
-
-
-# **BUNKER/PREROLL** / mynameisntjmack|Tommy Richman
-
-![Foto del album: BUNKER/PREROLL](https://i.scdn.co/image/ab67616d00001e0267d8132be6d64ca19ade4d4f)
-
-**Album:** BUNKER/PREROLL
-
-📅 2024-08-06 15:51:25
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-06 15:49:24
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-06 15:30:53
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-06 15:15:32
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-06 15:11:04
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-06 14:52:24
-
-
-# **Nightmare Cure** / DanyloM|Electro Swing Thing
-
-![Foto del album: Nightmare Cure](https://i.scdn.co/image/ab67616d00001e02e34987fcf744c022e6c88199)
-
-**Album:** Nightmare Cure
-
-📅 2024-08-06 13:49:01
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2024-08-06 13:24:12
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-08-06 13:19:00
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-08-06 13:05:40
-
-
-# **Staring at the Sun** / TV On The Radio
-
-![Foto del album: Young Liars](https://i.scdn.co/image/ab67616d00001e022719ce633a6c9a4b13b1f918)
-
-**Album:** Young Liars
-
-📅 2024-08-06 12:51:18
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-08-06 12:47:17
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2024-08-06 12:43:31
+📅 2024-08-07 10:30:02
