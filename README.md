@@ -13,130 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **In Bloom** / Nirvana
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Nevermind (Remastered)
+**Album:** Euphoria Morning
 
-📅 2024-08-08 16:36:53
+📅 2024-08-09 20:12:28
 
 
-# **Smells Like Teen Spirit** / Nirvana
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Nevermind (Remastered)
+**Album:** Euphoria Morning
 
-📅 2024-08-08 16:22:50
-
-
-# **Best Time** / Brent Faiyaz
-
-![Foto del album: Larger Than Life](https://i.scdn.co/image/ab67616d00001e02ceb160561269ab00b1df9678)
-
-**Album:** Larger Than Life
-
-📅 2024-08-08 13:30:56
-
-
-# **i** / Kendrick Lamar
-
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e026d89f336fbfbdf2089701da0)
-
-**Album:** i
-
-📅 2024-08-08 13:10:25
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-08 13:06:33
-
-
-# **I'm Good Luv, Enjoy.** / Aaron May
-
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
-
-**Album:** CHASE
-
-📅 2024-08-08 13:00:04
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-08-08 12:57:49
-
-
-# **Lithium** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-08 11:57:10
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-08 11:31:42
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-08 11:28:03
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-08 11:20:54
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-08-08 11:00:31
-
-
-# **Queer** / Garbage
-
-![Foto del album: Anthology](https://i.scdn.co/image/ab67616d00001e0217aee413e8b2a7288c31286f)
-
-**Album:** Anthology
-
-📅 2024-08-08 10:55:22
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-07 17:53:52
+📅 2024-08-09 20:08:01
 
 
 # **Silence Is Easy** / Starsailor
@@ -145,49 +37,157 @@ Nombre: **lotario1999**
 
 **Album:** Silence Is Easy
 
-📅 2024-08-07 13:41:23
+📅 2024-08-09 16:50:14
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Like a Stone** / Audioslave
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Audioslave
 
-📅 2024-08-07 13:37:42
-
-
-# **Queer (2015 - Remaster)** / Garbage
-
-![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02ecd4b6a494f743c8ff799468)
-
-**Album:** Garbage (20th Anniversary Super Deluxe Edition)
-
-📅 2024-08-07 13:21:09
+📅 2024-08-09 12:48:27
 
 
-# **Postcard from Celeste Mountain** / Lena Raine
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Celeste (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b351fafcb334009c3216a039)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Celeste (Original Soundtrack)
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-07 13:16:33
-
-
-# **Awake** / Lena Raine
-
-![Foto del album: Celeste (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b351fafcb334009c3216a039)
-
-**Album:** Celeste (Original Soundtrack)
-
-📅 2024-08-07 13:09:17
+📅 2024-08-09 12:34:58
 
 
-# **Resurrections** / Lena Raine
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Celeste (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b351fafcb334009c3216a039)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Celeste (Original Soundtrack)
+**Album:** Euphoria Morning
 
-📅 2024-08-07 13:06:48
+📅 2024-08-09 11:32:48
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-09 11:28:15
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-09 11:24:29
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-09 11:21:22
+
+
+# **Can't Change Me** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-08-09 11:16:23
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-08-09 11:12:19
+
+
+# **A Face In The Crowd** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-08-09 10:47:13
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-08-09 10:43:14
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-08-09 10:38:27
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-09 10:19:05
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-09 10:13:08
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-09 09:41:12
+
+
+# **Like a Stone** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-08-09 08:56:10
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-09 08:30:11
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-08 20:16:33
