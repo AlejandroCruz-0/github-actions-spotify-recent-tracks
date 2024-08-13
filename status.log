@@ -1488,3 +1488,4 @@ For more information check: https://httpstatuses.com/503
 2024-08-12 12:18:45,040 - __main__ - INFO - Operación completada
 2024-08-13 00:43:55,207 - __main__ - ERROR - Client error '401 Unauthorized' for url 'https://api.spotify.com/v1/me'
 For more information check: https://httpstatuses.com/401
+2024-08-13 12:17:35,915 - __main__ - INFO - Operación completada

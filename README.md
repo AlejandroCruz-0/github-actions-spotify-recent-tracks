@@ -13,40 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2024-08-11 19:38:05
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-08-11 19:15:03
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-08-11 19:10:00
-
-
 # **Tie up My Hands** / Starsailor
 
 ![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
 **Album:** Love Is Here
 
-📅 2024-08-11 19:05:10
+📅 2024-08-12 17:46:20
 
 
 # **Alcoholic** / Starsailor
@@ -55,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Love Is Here
 
-📅 2024-08-11 18:59:23
+📅 2024-08-12 17:31:43
 
 
 # **Good Souls** / Starsailor
@@ -64,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Love Is Here
 
-📅 2024-08-11 18:56:26
+📅 2024-08-12 17:28:47
 
 
 # **Silence Is Easy** / Starsailor
@@ -73,88 +46,79 @@ Nombre: **lotario1999**
 
 **Album:** Silence Is Easy
 
-📅 2024-08-11 18:51:33
+📅 2024-08-12 17:23:53
 
 
-# **Moonshine** / Caravan Palace
+# **Coming Down** / Starsailor
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Chronologic
+**Album:** Love Is Here
 
-📅 2024-08-11 10:10:12
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-10 13:31:37
+📅 2024-08-12 16:21:43
 
 
-# **Disappearing One** / Chris Cornell
+# **Good Souls** / Starsailor
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Euphoria Morning
+**Album:** Love Is Here
 
-📅 2024-08-10 13:12:36
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-10 09:58:03
+📅 2024-08-12 16:09:14
 
 
-# **Disappearing One** / Chris Cornell
+# **Good Souls** / Starsailor
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Euphoria Morning
+**Album:** Love Is Here
 
-📅 2024-08-10 09:20:19
-
-
-# **Moonshine** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2024-08-10 08:16:38
+📅 2024-08-12 15:51:35
 
 
-# **Steel Rain** / Chris Cornell
+# **She Just Wept** / Starsailor
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Euphoria Morning
+**Album:** Love Is Here
 
-📅 2024-08-09 20:34:45
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-08-09 20:12:28
+📅 2024-08-12 15:34:42
 
 
-# **Disappearing One** / Chris Cornell
+# **Fever** / Starsailor
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Euphoria Morning
+**Album:** Love Is Here
 
-📅 2024-08-09 20:08:01
+📅 2024-08-12 15:18:40
+
+
+# **Lullaby** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-12 14:07:19
+
+
+# **Alcoholic** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-12 13:52:28
+
+
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-08-12 13:48:56
 
 
 # **Silence Is Easy** / Starsailor
@@ -163,31 +127,67 @@ Nombre: **lotario1999**
 
 **Album:** Silence Is Easy
 
-📅 2024-08-09 16:50:14
+📅 2024-08-12 13:35:40
 
 
-# **Like a Stone** / Audioslave
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Audioslave
+**Album:** Not Like Us
 
-📅 2024-08-09 12:48:27
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-08-09 12:34:58
+📅 2024-08-12 13:16:00
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **BEST INTEREST** / Tyler, The Creator
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: BEST INTEREST](https://i.scdn.co/image/ab67616d00001e02ab8995f18dc3dd9f34a6acd4)
 
-**Album:** Euphoria Morning
+**Album:** BEST INTEREST
 
-📅 2024-08-09 11:32:48
+📅 2024-08-12 12:47:58
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2024-08-12 12:33:54
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-08-12 12:11:54
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2024-08-12 12:00:01
+
+
+# **Lonely Boy** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2024-08-12 11:55:01
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+
+**Album:** Return To Cookie Mountain
+
+📅 2024-08-12 11:51:46
