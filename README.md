@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Tie up My Hands** / Starsailor
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Love Is Here
+**Album:** The Magnificent Tree
 
-📅 2024-08-12 17:46:20
+📅 2024-08-13 17:12:57
 
 
-# **Alcoholic** / Starsailor
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Love Is Here
+**Album:** The Magnificent Tree
 
-📅 2024-08-12 17:31:43
+📅 2024-08-13 15:12:15
 
 
-# **Good Souls** / Starsailor
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Love Is Here
+**Album:** The Magnificent Tree
 
-📅 2024-08-12 17:28:47
+📅 2024-08-13 14:57:38
 
 
-# **Silence Is Easy** / Starsailor
+# **November Rain** / Guns N' Roses
 
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
 
-**Album:** Silence Is Easy
+**Album:** Use Your Illusion I
 
-📅 2024-08-12 17:23:53
+📅 2024-08-13 13:12:59
 
 
-# **Coming Down** / Starsailor
+# **Like a Stone** / Audioslave
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Love Is Here
+**Album:** Audioslave
 
-📅 2024-08-12 16:21:43
+📅 2024-08-13 13:00:26
 
 
-# **Good Souls** / Starsailor
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Love Is Here
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-12 16:09:14
+📅 2024-08-13 12:55:31
 
 
-# **Good Souls** / Starsailor
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Love Is Here
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-12 15:51:35
+📅 2024-08-13 12:42:37
 
 
-# **She Just Wept** / Starsailor
+# **November Rain** / Guns N' Roses
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
 
-**Album:** Love Is Here
+**Album:** Use Your Illusion I
 
-📅 2024-08-12 15:34:42
+📅 2024-08-13 12:27:26
 
 
-# **Fever** / Starsailor
+# **Like a Stone** / Audioslave
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Love Is Here
+**Album:** Audioslave
 
-📅 2024-08-12 15:18:40
+📅 2024-08-13 12:14:04
 
 
-# **Lullaby** / Starsailor
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Love Is Here
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-12 14:07:19
+📅 2024-08-13 12:09:10
 
 
-# **Alcoholic** / Starsailor
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Love Is Here
+**Album:** The Magnificent Tree
 
-📅 2024-08-12 13:52:28
+📅 2024-08-13 11:35:20
 
 
-# **Good Souls** / Starsailor
+# **Little L - Remastered 2006** / Jamiroquai
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Love Is Here
+**Album:** Driving Songs
 
-📅 2024-08-12 13:48:56
+📅 2024-08-13 11:24:33
 
 
-# **Silence Is Easy** / Starsailor
+# **Mercy in You** / Depeche Mode
 
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Silence Is Easy
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-12 13:35:40
+📅 2024-08-13 11:20:33
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Not Like Us
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-08-12 13:16:00
+📅 2024-08-13 11:16:12
 
 
-# **BEST INTEREST** / Tyler, The Creator
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: BEST INTEREST](https://i.scdn.co/image/ab67616d00001e02ab8995f18dc3dd9f34a6acd4)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** BEST INTEREST
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2024-08-12 12:47:58
+📅 2024-08-13 11:13:34
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Scoring** / bôa
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Not Like Us
+**Album:** Twilight
 
-📅 2024-08-12 12:33:54
+📅 2024-08-13 11:09:24
 
 
-# **Jeremy** / Pearl Jam
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Ten
+**Album:** Bueninvento
 
-📅 2024-08-12 12:11:54
+📅 2024-08-13 11:05:23
 
 
-# **Firestarter** / The Prodigy
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Fat of the Land
+**Album:** Land Animal
 
-📅 2024-08-12 12:00:01
+📅 2024-08-13 11:01:09
 
 
-# **Lonely Boy** / The Black Keys
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** El Camino
+**Album:** Bueninvento
 
-📅 2024-08-12 11:55:01
+📅 2024-08-13 10:55:00
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Return To Cookie Mountain
+**Album:** Synkronized
 
-📅 2024-08-12 11:51:46
+📅 2024-08-13 10:51:35
