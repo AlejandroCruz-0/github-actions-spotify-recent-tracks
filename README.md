@@ -13,49 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Out Of Sight** / Hooverphonic
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** The Magnificent Tree
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2024-08-13 17:25:06
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-13 17:12:57
+📅 2024-08-14 17:32:29
 
 
-# **Out Of Sight** / Hooverphonic
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** The Magnificent Tree
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-13 15:12:15
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-13 14:57:38
-
-
-# **November Rain** / Guns N' Roses
-
-![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
-
-**Album:** Use Your Illusion I
-
-📅 2024-08-13 13:12:59
+📅 2024-08-14 17:27:49
 
 
 # **Like a Stone** / Audioslave
@@ -64,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
-📅 2024-08-13 13:00:26
+📅 2024-08-14 14:37:22
 
 
 # **Losing My Religion** / R.E.M.
@@ -73,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-13 12:55:31
+📅 2024-08-14 14:04:42
 
 
 # **Losing My Religion** / R.E.M.
@@ -82,16 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-13 12:42:37
-
-
-# **November Rain** / Guns N' Roses
-
-![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
-
-**Album:** Use Your Illusion I
-
-📅 2024-08-13 12:27:26
+📅 2024-08-14 13:56:21
 
 
 # **Like a Stone** / Audioslave
@@ -100,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
-📅 2024-08-13 12:14:04
+📅 2024-08-14 13:23:59
 
 
 # **Losing My Religion** / R.E.M.
@@ -109,70 +73,34 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2024-08-13 12:09:10
+📅 2024-08-14 13:08:04
 
 
-# **L'Odeur Animale** / Hooverphonic
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** The Magnificent Tree
+**Album:** <I°_°I>
 
-📅 2024-08-13 11:35:20
-
-
-# **Little L - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2024-08-13 11:24:33
+📅 2024-08-14 12:59:44
 
 
-# **Mercy in You** / Depeche Mode
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Panic
 
-📅 2024-08-13 11:20:33
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-08-13 11:16:12
+📅 2024-08-14 12:38:03
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** The Very Best of Daryl Hall / John Oates
+**Album:** The Mountain Will Fall
 
-📅 2024-08-13 11:13:34
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-08-13 11:09:24
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-08-13 11:05:23
+📅 2024-08-14 12:21:08
 
 
 # **Holy Ghost** / Bent Knee
@@ -181,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2024-08-13 11:01:09
+📅 2024-08-14 10:04:21
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -190,4 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2024-08-13 10:55:00
+📅 2024-08-14 09:50:23
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-08-14 09:46:57
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-08-14 09:42:52
+
+
+# **Judas** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-08-14 09:37:04
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-08-14 09:31:50
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-08-14 09:23:47
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-08-14 09:20:10
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-08-14 09:14:20
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-08-14 09:10:31
