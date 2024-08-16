@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Like a Stone** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-08-15 23:38:50
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-15 23:02:37
+
+
 # **Walking in My Shoes** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2024-08-14 10:04:21
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-08-14 09:50:23
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-08-14 09:46:57
