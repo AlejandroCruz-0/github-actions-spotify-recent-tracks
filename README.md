@@ -13,49 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-08-18 00:04:22
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-08-17 23:49:58
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-08-17 23:44:42
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-08-17 23:39:08
-
-
-# **Waves** / Hooverphonic
+# **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-17 23:08:43
+📅 2024-08-18 19:52:49
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-08-18 19:31:30
 
 
 # **I Feel You** / Depeche Mode
@@ -64,16 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-17 22:55:56
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-17 22:51:14
+📅 2024-08-18 19:20:43
 
 
 # **The Outsider** / A Perfect Circle
@@ -82,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2024-08-17 12:55:02
+📅 2024-08-18 19:16:07
 
 
 # **Out Of Sight** / Hooverphonic
@@ -91,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-17 12:40:58
+📅 2024-08-18 19:12:01
 
 
 # **Mad About You** / Hooverphonic
@@ -100,7 +64,25 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-17 12:37:02
+📅 2024-08-18 19:08:05
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-08-18 19:04:22
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-08-18 18:11:46
 
 
 # **Weak And Powerless** / A Perfect Circle
@@ -109,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2024-08-16 16:05:06
+📅 2024-08-18 17:55:59
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -118,61 +100,43 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-08-16 15:28:40
+📅 2024-08-18 17:52:43
 
 
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-16 15:21:44
-
-
-# **Mad About You** / Hooverphonic
+# **Waves** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-16 15:17:59
+📅 2024-08-18 17:46:52
 
 
-# **Judas** / Depeche Mode
+# **I Feel You** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-16 14:53:09
+📅 2024-08-18 17:42:50
 
 
-# **Holy Ghost** / Bent Knee
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Land Animal
+**Album:** Thirteenth Step
 
-📅 2024-08-16 14:32:31
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-08-16 14:26:32
+📅 2024-08-18 17:38:14
 
 
-# **Fever** / The Black Keys
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Turn Blue
+**Album:** The Magnificent Tree
 
-📅 2024-08-16 14:23:06
+📅 2024-08-18 17:34:07
 
 
 # **Mad About You** / Hooverphonic
@@ -181,13 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-16 14:14:35
+📅 2024-08-18 17:30:11
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Oh I Wept** / Free
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Not Like Us
+**Album:** Fire And Water
 
-📅 2024-08-16 13:06:49
+📅 2024-08-18 17:08:54
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-08-18 16:48:48
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-08-18 16:44:52
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2024-08-18 16:40:49
+
+
+# **promise** / Kohmi Hirose
+
+![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
+
+**Album:** 広瀬香美 THE BEST "Love Winters"
+
+📅 2024-08-18 16:36:13
