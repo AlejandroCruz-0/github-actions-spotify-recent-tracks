@@ -13,85 +13,148 @@ Nombre: **lotario1999**
 
 
 
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-08-19 18:28:21
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+
+**Album:** Mercury - Acts 1 & 2
+
+📅 2024-08-19 18:02:45
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-08-19 17:59:59
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-08-19 17:50:50
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-18 19:52:49
+📅 2024-08-19 17:46:00
 
 
-# **Mad About You** / Hooverphonic
+# **Scoring** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2024-08-18 19:31:30
+📅 2024-08-19 15:03:51
 
 
-# **I Feel You** / Depeche Mode
+# **Judas** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-18 19:20:43
+📅 2024-08-19 14:46:45
 
 
-# **The Outsider** / A Perfect Circle
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Thirteenth Step
+**Album:** Land Animal
 
-📅 2024-08-18 19:16:07
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-18 19:12:01
+📅 2024-08-19 14:41:31
 
 
-# **Mad About You** / Hooverphonic
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** The Magnificent Tree
+**Album:** Bueninvento
 
-📅 2024-08-18 19:08:05
+📅 2024-08-19 14:35:57
 
 
-# **I Feel You** / Depeche Mode
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-08-19 14:32:31
+
+
+# **Judas** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-18 19:04:22
+📅 2024-08-19 12:39:33
 
 
-# **Mad About You** / Hooverphonic
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2024-08-18 18:11:46
+📅 2024-08-19 12:05:16
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Thirteenth Step
+**Album:** Bueninvento
 
-📅 2024-08-18 17:55:59
+📅 2024-08-19 11:59:42
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-08-19 11:56:04
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2024-08-19 11:51:58
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2024-08-19 11:47:49
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -100,16 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-08-18 17:52:43
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-18 17:46:52
+📅 2024-08-19 11:42:57
 
 
 # **I Feel You** / Depeche Mode
@@ -118,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-18 17:42:50
+📅 2024-08-19 11:36:21
 
 
 # **The Outsider** / A Perfect Circle
@@ -127,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2024-08-18 17:38:14
+📅 2024-08-19 11:31:45
 
 
 # **Out Of Sight** / Hooverphonic
@@ -136,58 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-18 17:34:07
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-18 17:30:11
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-08-18 17:08:54
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-08-18 16:48:48
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-18 16:44:52
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2024-08-18 16:40:49
-
-
-# **promise** / Kohmi Hirose
-
-![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
-
-**Album:** 広瀬香美 THE BEST "Love Winters"
-
-📅 2024-08-18 16:36:13
+📅 2024-08-19 11:27:39
