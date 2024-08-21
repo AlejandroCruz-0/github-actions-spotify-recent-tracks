@@ -13,40 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Deeply** / bôa
+# **Scoring** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2024-08-19 18:28:21
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
-
-**Album:** Mercury - Acts 1 & 2
-
-📅 2024-08-19 18:02:45
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-08-19 17:59:59
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-08-19 17:50:50
+📅 2024-08-20 20:03:20
 
 
 # **Mad About You** / Hooverphonic
@@ -55,115 +28,34 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-19 17:46:00
+📅 2024-08-20 19:58:05
 
 
-# **Scoring** / bôa
+# **Your Love Alone Is Not Enough (feat. Nina Persson)** / Manic Street Preachers|Nina Persson
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Send Away The Tigers](https://i.scdn.co/image/ab67616d00001e021cecf829e21d3c6707bf9828)
 
-**Album:** Twilight
+**Album:** Send Away The Tigers
 
-📅 2024-08-19 15:03:51
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-08-19 14:46:45
+📅 2024-08-20 18:53:44
 
 
-# **Holy Ghost** / Bent Knee
+# **You Stole the Sun from My Heart** / Manic Street Preachers
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
 
-**Album:** Land Animal
+**Album:** This Is My Truth Tell Me Yours
 
-📅 2024-08-19 14:41:31
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-08-19 14:35:57
+📅 2024-08-20 18:32:54
 
 
-# **Fever** / The Black Keys
+# **A Design for Life - Remastered** / Manic Street Preachers
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Everything Must Go 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e028f8e24262ca7ef631e62c5f6)
 
-**Album:** Turn Blue
+**Album:** Everything Must Go 10th Anniversary Edition
 
-📅 2024-08-19 14:32:31
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-08-19 12:39:33
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-08-19 12:05:16
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-08-19 11:59:42
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-08-19 11:56:04
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2024-08-19 11:51:58
-
-
-# **Deeper Underground - Full Version** / Jamiroquai
-
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
-
-**Album:** Synkronized
-
-📅 2024-08-19 11:47:49
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-08-19 11:42:57
+📅 2024-08-20 18:28:22
 
 
 # **I Feel You** / Depeche Mode
@@ -172,22 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-19 11:36:21
+📅 2024-08-20 15:25:53
 
 
-# **The Outsider** / A Perfect Circle
+# **Glory Box** / Portishead
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Thirteenth Step
+**Album:** Dummy
 
-📅 2024-08-19 11:31:45
+📅 2024-08-20 15:22:36
 
 
-# **Out Of Sight** / Hooverphonic
+# **Queer (2015 - Remaster)** / Garbage
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02ecd4b6a494f743c8ff799468)
 
-**Album:** The Magnificent Tree
+**Album:** Garbage (20th Anniversary Super Deluxe Edition)
 
-📅 2024-08-19 11:27:39
+📅 2024-08-20 15:17:26
+
+
+# **The Passenger** / Iggy Pop
+
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+
+**Album:** Lust For Life
+
+📅 2024-08-20 15:00:08
+
+
+# **Disarm - 2011 Remaster** / The Smashing Pumpkins
+
+![Foto del album: Siamese Dream (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025274788f34fc7656d2856dfd)
+
+**Album:** Siamese Dream (Deluxe Edition)
+
+📅 2024-08-20 14:55:24
+
+
+# **Jeremy** / Pearl Jam
+
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+
+**Album:** Ten
+
+📅 2024-08-20 14:52:06
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-20 14:46:48
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-20 14:41:45
+
+
+# **Rhythm (Of The Night)** / Something Good|Yotto
+
+![Foto del album: Rhythm (Of The Night)](https://i.scdn.co/image/ab67616d00001e023967d0b0fe85780cbd9d1da5)
+
+**Album:** Rhythm (Of The Night)
+
+📅 2024-08-20 13:07:15
+
+
+# **Duality** / Paul van Dyk
+
+![Foto del album: Duality](https://i.scdn.co/image/ab67616d00001e02115043a0d4bcaccf487990af)
+
+**Album:** Duality
+
+📅 2024-08-20 12:54:03
+
+
+# **On The Beach - Kryder Remix** / YORK|Kryder
+
+![Foto del album: On The Beach (Kryder Remix)](https://i.scdn.co/image/ab67616d00001e02d99fea7a75487d7666114705)
+
+**Album:** On The Beach (Kryder Remix)
+
+📅 2024-08-20 12:50:23
+
+
+# **Pjanoo - Radio Edit** / Eric Prydz
+
+![Foto del album: Pjanoo](https://i.scdn.co/image/ab67616d00001e02bf82130ce529153496038461)
+
+**Album:** Pjanoo
+
+📅 2024-08-20 12:47:29
+
+
+# **You Stole the Sun from My Heart** / Manic Street Preachers
+
+![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
+
+**Album:** This Is My Truth Tell Me Yours
+
+📅 2024-08-20 12:38:24
+
+
+# **A Design for Life - Remastered** / Manic Street Preachers
+
+![Foto del album: Everything Must Go 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e028f8e24262ca7ef631e62c5f6)
+
+**Album:** Everything Must Go 10th Anniversary Edition
+
+📅 2024-08-20 12:27:28
+
+
+# **If You Tolerate This Your Children Will Be Next** / Manic Street Preachers
+
+![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
+
+**Album:** This Is My Truth Tell Me Yours
+
+📅 2024-08-20 12:15:56
