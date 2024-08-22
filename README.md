@@ -13,13 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Scoring** / bôa
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2024-08-20 20:03:20
+📅 2024-08-21 17:52:15
 
 
 # **Mad About You** / Hooverphonic
@@ -28,34 +28,25 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-20 19:58:05
+📅 2024-08-21 17:41:10
 
 
-# **Your Love Alone Is Not Enough (feat. Nina Persson)** / Manic Street Preachers|Nina Persson
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Send Away The Tigers](https://i.scdn.co/image/ab67616d00001e021cecf829e21d3c6707bf9828)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Send Away The Tigers
+**Album:** Land Animal
 
-📅 2024-08-20 18:53:44
-
-
-# **You Stole the Sun from My Heart** / Manic Street Preachers
-
-![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
-
-**Album:** This Is My Truth Tell Me Yours
-
-📅 2024-08-20 18:32:54
+📅 2024-08-21 15:58:38
 
 
-# **A Design for Life - Remastered** / Manic Street Preachers
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Everything Must Go 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e028f8e24262ca7ef631e62c5f6)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Everything Must Go 10th Anniversary Edition
+**Album:** Bueninvento
 
-📅 2024-08-20 18:28:22
+📅 2024-08-21 15:30:04
 
 
 # **I Feel You** / Depeche Mode
@@ -64,130 +55,139 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-20 15:25:53
+📅 2024-08-21 15:26:28
 
 
-# **Glory Box** / Portishead
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Dummy
+**Album:** Thirteenth Step
 
-📅 2024-08-20 15:22:36
+📅 2024-08-21 15:21:52
 
 
-# **Queer (2015 - Remaster)** / Garbage
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02ecd4b6a494f743c8ff799468)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+**Album:** The Magnificent Tree
 
-📅 2024-08-20 15:17:26
+📅 2024-08-21 15:17:46
 
 
-# **The Passenger** / Iggy Pop
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Lust For Life
+**Album:** The Magnificent Tree
 
-📅 2024-08-20 15:00:08
+📅 2024-08-21 15:13:50
 
 
-# **Disarm - 2011 Remaster** / The Smashing Pumpkins
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Siamese Dream (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025274788f34fc7656d2856dfd)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Siamese Dream (Deluxe Edition)
+**Album:** Thirteenth Step
 
-📅 2024-08-20 14:55:24
+📅 2024-08-21 12:22:31
 
 
-# **Jeremy** / Pearl Jam
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Ten
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-08-20 14:52:06
+📅 2024-08-21 12:02:58
 
 
-# **Smells Like Teen Spirit** / Nirvana
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Nevermind (Remastered)
+**Album:** The Magnificent Tree
 
-📅 2024-08-20 14:46:48
+📅 2024-08-21 11:57:09
 
 
-# **Losing My Religion** / R.E.M.
+# **Rush** / Depeche Mode
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-08-20 14:41:45
+📅 2024-08-21 10:40:24
 
 
-# **Rhythm (Of The Night)** / Something Good|Yotto
+# **50 Ways to Leave Your Lover** / Paul Simon
 
-![Foto del album: Rhythm (Of The Night)](https://i.scdn.co/image/ab67616d00001e023967d0b0fe85780cbd9d1da5)
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
 
-**Album:** Rhythm (Of The Night)
+**Album:** Still Crazy After All These Years
 
-📅 2024-08-20 13:07:15
+📅 2024-08-21 10:14:14
 
 
-# **Duality** / Paul van Dyk
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Duality](https://i.scdn.co/image/ab67616d00001e02115043a0d4bcaccf487990af)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Duality
+**Album:** Gran Turismo (Remastered)
 
-📅 2024-08-20 12:54:03
+📅 2024-08-21 10:10:35
 
 
-# **On The Beach - Kryder Remix** / YORK|Kryder
+# **So He Won't Break** / The Black Keys
 
-![Foto del album: On The Beach (Kryder Remix)](https://i.scdn.co/image/ab67616d00001e02d99fea7a75487d7666114705)
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
 
-**Album:** On The Beach (Kryder Remix)
+**Album:** Attack & Release
 
-📅 2024-08-20 12:50:23
+📅 2024-08-21 10:06:54
 
 
-# **Pjanoo - Radio Edit** / Eric Prydz
+# **Bones** / Imagine Dragons
 
-![Foto del album: Pjanoo](https://i.scdn.co/image/ab67616d00001e02bf82130ce529153496038461)
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
 
-**Album:** Pjanoo
+**Album:** Mercury - Acts 1 & 2
 
-📅 2024-08-20 12:47:29
+📅 2024-08-21 09:58:14
 
 
-# **You Stole the Sun from My Heart** / Manic Street Preachers
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** This Is My Truth Tell Me Yours
+**Album:** Panic
 
-📅 2024-08-20 12:38:24
+📅 2024-08-21 09:55:28
 
 
-# **A Design for Life - Remastered** / Manic Street Preachers
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Everything Must Go 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e028f8e24262ca7ef631e62c5f6)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Everything Must Go 10th Anniversary Edition
+**Album:** Land Animal
 
-📅 2024-08-20 12:27:28
+📅 2024-08-21 09:29:12
 
 
-# **If You Tolerate This Your Children Will Be Next** / Manic Street Preachers
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** This Is My Truth Tell Me Yours
+**Album:** Bueninvento
 
-📅 2024-08-20 12:15:56
+📅 2024-08-21 09:23:38
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-08-20 20:20:57
