@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Smalltown Boy** / Bronski Beat
+# **Be Quiet and Drive (Far Away)** / Deftones
 
-![Foto del album: The Age of Consent](https://i.scdn.co/image/ab67616d00001e026affdd29d6ee84a298746ef7)
+![Foto del album: Around the Fur](https://i.scdn.co/image/ab67616d00001e020b1129853982ea17845d4eb6)
 
-**Album:** The Age of Consent
+**Album:** Around the Fur
 
-📅 2024-08-25 12:55:55
-
-
-# **Maneater** / Daryl Hall & John Oates
-
-![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
-
-**Album:** H2O
-
-📅 2024-08-25 12:42:56
+📅 2024-08-26 14:12:58
 
 
-# **Losing My Religion** / R.E.M.
+# **My Own Summer (Shove It)** / Deftones
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Around the Fur](https://i.scdn.co/image/ab67616d00001e020b1129853982ea17845d4eb6)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Around the Fur
 
-📅 2024-08-25 12:37:47
-
-
-# **November Rain** / Guns N' Roses
-
-![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
-
-**Album:** Use Your Illusion I
-
-📅 2024-08-25 10:33:40
+📅 2024-08-26 13:55:06
 
 
-# **Like a Stone** / Audioslave
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Audioslave
+**Album:** White Pony
 
-📅 2024-08-25 10:28:24
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2024-08-25 10:23:30
+📅 2024-08-26 13:51:31
 
 
-# **Miracle** / Caravan Palace
+# **Limp** / Fiona Apple
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Chronologic
+**Album:** When The Pawn...
 
-📅 2024-08-25 10:10:05
+📅 2024-08-26 13:45:55
 
 
-# **Out Of Sight** / Hooverphonic
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2024-08-26 13:42:24
+
+
+# **Frosted Flake Wood** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-24 11:39:13
+📅 2024-08-26 13:31:06
 
 
-# **Mad About You** / Hooverphonic
+# **Hells Bells** / AC/DC
+
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+
+**Album:** Back In Black
+
+📅 2024-08-26 13:27:49
+
+
+# **Galaxias (Radio Edit)** / Niño Josele|Chick Corea
+
+![Foto del album: Galaxias](https://i.scdn.co/image/ab67616d00001e02a4a6220f415efb334ccecde8)
+
+**Album:** Galaxias
+
+📅 2024-08-26 13:22:36
+
+
+# **Honeymoon With B Troop** / 10cc
+
+![Foto del album: Deceptive Bends](https://i.scdn.co/image/ab67616d00001e02f93159d78849714fcf118bb3)
+
+**Album:** Deceptive Bends
+
+📅 2024-08-26 13:18:39
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-08-26 13:15:51
+
+
+# **Spanish Moon** / Little Feat
+
+![Foto del album: Feats Don't Fail Me Now](https://i.scdn.co/image/ab67616d00001e025d9109bdedc31ad1ebf24217)
+
+**Album:** Feats Don't Fail Me Now
+
+📅 2024-08-26 12:59:00
+
+
+# **You Give Me Something** / Jamiroquai
+
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
+
+**Album:** A Funk Odyssey
+
+📅 2024-08-26 12:47:12
+
+
+# **Rejuvenated** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2024-08-26 12:43:52
+
+
+# **I'll Keep Coming** / Low Roar
+
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+
+**Album:** 0
+
+📅 2024-08-26 12:42:55
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-08-26 12:36:53
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2024-08-26 12:33:42
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
+
+**Album:** You Know What They Mean
+
+📅 2024-08-26 12:15:31
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2024-08-26 12:10:51
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2024-08-26 12:05:27
+
+
+# **L'Odeur Animale** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2024-08-24 11:25:20
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2024-08-24 11:15:54
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-08-24 09:53:59
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-08-23 13:19:04
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-08-23 13:14:28
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-23 13:10:09
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-23 13:06:13
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-23 13:02:23
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-08-23 11:05:52
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-08-23 11:01:17
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-23 10:57:10
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-23 10:53:14
+📅 2024-08-26 12:02:11
