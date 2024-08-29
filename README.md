@@ -13,76 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Out Of Sight** / Hooverphonic
+# **Duvet** / bôa
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** The Magnificent Tree
+**Album:** Twilight
 
-📅 2024-08-27 20:24:06
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-27 20:19:30
-
-
-# **I'll Keep Coming** / Low Roar
-
-![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
-
-**Album:** 0
-
-📅 2024-08-27 18:42:44
-
-
-# **Vinegar & Salt** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-27 18:30:12
-
-
-# **Hold Me In** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02622aad38b9cf8427604fedad)
-
-**Album:** You Know What They Mean
-
-📅 2024-08-27 18:26:52
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2024-08-27 18:14:04
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-08-27 18:10:41
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2024-08-27 17:42:20
+📅 2024-08-28 18:00:06
 
 
 # **Scoring** / bôa
@@ -91,25 +28,115 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-08-27 17:23:45
+📅 2024-08-28 17:56:35
 
 
-# **Criminal** / Fiona Apple
+# **promise** / Kohmi Hirose
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
 
-**Album:** Tidal
+**Album:** 広瀬香美 THE BEST "Love Winters"
 
-📅 2024-08-27 17:09:44
+📅 2024-08-28 17:17:32
 
 
-# **Holy Ghost** / Bent Knee
+# **Good Souls** / Starsailor
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Land Animal
+**Album:** Love Is Here
 
-📅 2024-08-27 16:07:59
+📅 2024-08-28 17:12:31
+
+
+# **If You Tolerate This Your Children Will Be Next** / Manic Street Preachers
+
+![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
+
+**Album:** This Is My Truth Tell Me Yours
+
+📅 2024-08-28 16:39:41
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-28 16:34:46
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2024-08-28 14:15:21
+
+
+# **Evidence - 2016 Remaster** / Faith No More
+
+![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+
+**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+
+📅 2024-08-28 14:00:24
+
+
+# **Queer (2015 - Remaster)** / Garbage
+
+![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02ecd4b6a494f743c8ff799468)
+
+**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+
+📅 2024-08-28 13:55:30
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best Of](https://i.scdn.co/image/ab67616d00001e020320feb23e4090969b931fac)
+
+**Album:** The Very Best Of
+
+📅 2024-08-28 12:54:48
+
+
+# **Smalltown Boy** / Bronski Beat
+
+![Foto del album: The Age of Consent](https://i.scdn.co/image/ab67616d00001e026affdd29d6ee84a298746ef7)
+
+**Album:** The Age of Consent
+
+📅 2024-08-28 12:30:10
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-08-28 12:25:07
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-08-28 12:19:16
+
+
+# **Maneater** / Daryl Hall & John Oates
+
+![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
+
+**Album:** H2O
+
+📅 2024-08-28 12:14:47
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -118,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2024-08-27 15:54:01
+📅 2024-08-28 10:10:33
 
 
 # **Fever** / The Black Keys
@@ -127,52 +154,34 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2024-08-27 15:50:34
+📅 2024-08-28 10:07:08
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Congregation** / Low
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** The Magnificent Tree
+**Album:** Ones and Sixes
 
-📅 2024-08-27 13:39:56
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-08-27 13:26:07
+📅 2024-08-28 10:02:29
 
 
-# **Will Do** / TV On The Radio
+# **Canned Heat - Remastered 2006** / Jamiroquai
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Nine Types of Light
+**Album:** Driving Songs
 
-📅 2024-08-27 13:21:40
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-27 13:10:28
+📅 2024-08-28 09:58:34
 
 
-# **I Feel You** / Depeche Mode
+# **I Love You** / Woodkid
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** The Golden Age
 
-📅 2024-08-27 12:59:29
+📅 2024-08-28 09:54:45
 
 
 # **The Outsider** / A Perfect Circle
@@ -181,13 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2024-08-27 12:54:53
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-08-27 12:50:47
+📅 2024-08-28 09:50:48
