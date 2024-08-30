@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
+📅 2024-08-29 23:36:12
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-08-29 19:52:00
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
 📅 2024-08-29 19:41:51
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2024-08-29 12:05:20
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-08-29 12:00:46
-
-
-# **Alcoholic** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-29 09:30:28
