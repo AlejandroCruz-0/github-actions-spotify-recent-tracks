@@ -13,13 +13,31 @@ Nombre: **lotario1999**
 
 
 
-# **Duvet** / bôa
+# **Scoring** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
 **Album:** Twilight
 
-📅 2024-08-28 18:00:06
+📅 2024-08-29 19:41:51
+
+
+# **Hammering in My Head (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-08-29 19:38:05
+
+
+# **Special (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-08-29 18:24:13
 
 
 # **Scoring** / bôa
@@ -28,34 +46,43 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2024-08-28 17:56:35
+📅 2024-08-29 18:20:14
 
 
-# **promise** / Kohmi Hirose
+# **Scoring** / bôa
 
-![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** 広瀬香美 THE BEST "Love Winters"
+**Album:** Twilight
 
-📅 2024-08-28 17:17:32
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-08-28 17:12:31
+📅 2024-08-29 18:16:35
 
 
-# **If You Tolerate This Your Children Will Be Next** / Manic Street Preachers
+# **Scoring** / bôa
 
-![Foto del album: This Is My Truth Tell Me Yours](https://i.scdn.co/image/ab67616d00001e02326f28b8d0099329cecb01c8)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** This Is My Truth Tell Me Yours
+**Album:** Twilight
 
-📅 2024-08-28 16:39:41
+📅 2024-08-29 18:13:58
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-08-29 18:08:42
+
+
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-08-29 18:04:53
 
 
 # **In Bloom** / Nirvana
@@ -64,130 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-08-28 16:34:46
+📅 2024-08-29 17:28:31
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Nevermind (Remastered)
 
-📅 2024-08-28 14:15:21
+📅 2024-08-29 17:24:17
 
 
-# **Evidence - 2016 Remaster** / Faith No More
+# **Four to the Floor - Thin White Duke Mix; Short Version** / Starsailor
 
-![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+![Foto del album: Four To The Floor](https://i.scdn.co/image/ab67616d00001e02c4dda44fca5b55b814ca33bc)
 
-**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+**Album:** Four To The Floor
 
-📅 2024-08-28 14:00:24
+📅 2024-08-29 14:28:39
 
 
-# **Queer (2015 - Remaster)** / Garbage
+# **Four to the Floor - Thin White Duke Mix; Short Version** / Starsailor
 
-![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02ecd4b6a494f743c8ff799468)
+![Foto del album: Four To The Floor](https://i.scdn.co/image/ab67616d00001e02c4dda44fca5b55b814ca33bc)
 
-**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+**Album:** Four To The Floor
 
-📅 2024-08-28 13:55:30
+📅 2024-08-29 13:55:40
 
 
-# **Out of Touch** / Daryl Hall & John Oates
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: The Very Best Of](https://i.scdn.co/image/ab67616d00001e020320feb23e4090969b931fac)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** The Very Best Of
+**Album:** Silence Is Easy
 
-📅 2024-08-28 12:54:48
+📅 2024-08-29 13:30:54
 
 
-# **Smalltown Boy** / Bronski Beat
+# **Good Souls** / Starsailor
 
-![Foto del album: The Age of Consent](https://i.scdn.co/image/ab67616d00001e026affdd29d6ee84a298746ef7)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** The Age of Consent
+**Album:** Love Is Here
 
-📅 2024-08-28 12:30:10
+📅 2024-08-29 13:13:34
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Come As You Are** / Nirvana
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Nevermind (Remastered)
 
-📅 2024-08-28 12:25:07
+📅 2024-08-29 12:18:52
 
 
-# **Losing My Religion** / R.E.M.
+# **In Bloom** / Nirvana
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Nevermind (Remastered)
 
-📅 2024-08-28 12:19:16
+📅 2024-08-29 12:15:14
 
 
-# **Maneater** / Daryl Hall & John Oates
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** H2O
+**Album:** Nevermind (Remastered)
 
-📅 2024-08-28 12:14:47
+📅 2024-08-29 12:10:58
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Deeply** / bôa
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Bueninvento
+**Album:** Twilight
 
-📅 2024-08-28 10:10:33
+📅 2024-08-29 12:05:20
 
 
-# **Fever** / The Black Keys
+# **Scoring** / bôa
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Turn Blue
+**Album:** Twilight
 
-📅 2024-08-28 10:07:08
+📅 2024-08-29 12:00:46
 
 
-# **Congregation** / Low
+# **Alcoholic** / Starsailor
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Ones and Sixes
+**Album:** Love Is Here
 
-📅 2024-08-28 10:02:29
-
-
-# **Canned Heat - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2024-08-28 09:58:34
-
-
-# **I Love You** / Woodkid
-
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
-
-**Album:** The Golden Age
-
-📅 2024-08-28 09:54:45
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-08-28 09:50:48
+📅 2024-08-29 09:30:28
