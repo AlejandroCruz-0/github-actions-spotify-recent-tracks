@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-08-30 16:42:27
+
+
 # **Deeply** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Tidal
 
 📅 2024-08-30 10:17:50
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2024-08-30 10:11:56
