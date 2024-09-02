@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-01 11:41:23
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-01 11:36:42
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-01 11:32:47
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-09-01 10:53:22
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-01 10:34:17
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-01 10:30:11
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-01 10:26:14
+
+
+# **Miracle** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2024-09-01 10:10:04
+
+
+# **November Rain** / Guns N' Roses
+
+![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
+
+**Album:** Use Your Illusion I
+
+📅 2024-08-31 23:15:16
+
+
 # **Like a Stone** / Audioslave
 
 ![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Combat Rock (Remastered)
 
 📅 2024-08-30 11:55:30
-
-
-# **Get Right With Me** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-08-30 11:39:46
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2024-08-30 11:18:33
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2024-08-30 11:13:04
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-08-30 11:09:11
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2024-08-30 11:05:59
-
-
-# **Renaissance Affair** / Hooverphonic
-
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
-
-**Album:** Blue Wonder Power Milk
-
-📅 2024-08-30 10:56:10
-
-
-# **Take The Long Way Home - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-08-30 10:43:56
-
-
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
-
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
-
-**Album:** Saudade
-
-📅 2024-08-30 10:38:47
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2024-08-30 10:35:23
