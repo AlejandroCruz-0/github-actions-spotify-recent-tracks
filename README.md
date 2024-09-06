@@ -13,121 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **Judas** / Depeche Mode
+# **Deeply** / bôa
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Twilight
 
-📅 2024-09-04 18:35:52
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-09-04 18:23:19
+📅 2024-09-05 20:41:33
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Scoring** / bôa
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Bueninvento
+**Album:** Twilight
 
-📅 2024-09-04 18:17:45
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-09-04 18:14:19
+📅 2024-09-05 20:36:58
 
 
-# **Two Weeks** / FKA twigs
+# **Good Souls** / Starsailor
 
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** LP1
+**Album:** Love Is Here
 
-📅 2024-09-04 18:10:12
-
-
-# **Waves** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-04 17:06:03
+📅 2024-09-05 20:05:07
 
 
-# **Out Of Sight** / Hooverphonic
+# **Good Souls** / Starsailor
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** The Magnificent Tree
+**Album:** Love Is Here
 
-📅 2024-09-04 16:28:56
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-04 16:03:23
+📅 2024-09-05 19:45:54
 
 
-# **Waves** / Hooverphonic
+# **Spooky** / Dusty Springfield
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Dusty... Definitely](https://i.scdn.co/image/ab67616d00001e023e4dc299094d31ee68fdfe78)
 
-**Album:** The Magnificent Tree
+**Album:** Dusty... Definitely
 
-📅 2024-09-04 14:56:45
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-04 14:35:05
+📅 2024-09-05 17:52:00
 
 
-# **Out Of Sight** / Hooverphonic
+# **I'd Rather Go Blind** / Etta James
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Tell Mama](https://i.scdn.co/image/ab67616d00001e027649604d1b27be1c78c466e9)
 
-**Album:** The Magnificent Tree
+**Album:** Tell Mama
 
-📅 2024-09-04 13:35:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-04 13:25:27
+📅 2024-09-05 17:39:07
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Maneater** / Daryl Hall & John Oates
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
 
-**Album:** Thirteenth Step
+**Album:** H2O
 
-📅 2024-09-04 13:13:36
+📅 2024-09-05 17:36:30
 
 
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
@@ -136,58 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2024-09-04 12:58:08
+📅 2024-09-05 17:31:57
 
 
-# **Waves** / Hooverphonic
+# **Glory Box** / Portishead
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** The Magnificent Tree
+**Album:** Dummy
 
-📅 2024-09-04 12:52:17
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-09-04 12:48:15
+📅 2024-09-05 17:26:06
 
 
-# **The Outsider** / A Perfect Circle
+# **Ain't No Sunshine** / Bill Withers
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
 
-**Album:** Thirteenth Step
+**Album:** Just As I Am
 
-📅 2024-09-04 12:43:39
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-04 12:39:32
+📅 2024-09-05 17:20:57
 
 
-# **Mad About You** / Hooverphonic
+# **Paradise City** / Guns N' Roses
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Appetite For Destruction](https://i.scdn.co/image/ab67616d00001e0221ebf49b3292c3f0f575f0f5)
 
-**Album:** The Magnificent Tree
+**Album:** Appetite For Destruction
 
-📅 2024-09-04 12:35:36
+📅 2024-09-05 16:53:57
 
 
-# **Breed** / Nirvana
+# **Smells Like Teen Spirit** / Nirvana
 
 ![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
 **Album:** Nevermind (Remastered)
 
-📅 2024-09-04 12:25:29
+📅 2024-09-05 16:34:42
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-09-05 15:27:41
+
+
+# **Paradise City** / Guns N' Roses
+
+![Foto del album: Appetite For Destruction](https://i.scdn.co/image/ab67616d00001e0221ebf49b3292c3f0f575f0f5)
+
+**Album:** Appetite For Destruction
+
+📅 2024-09-05 13:24:54
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-09-05 13:13:13
+
+
+# **Like a Stone** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-09-05 12:44:28
+
+
+# **Hammering in My Head (2018 - Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-09-05 12:35:16
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2024-09-05 12:22:18
+
+
+# **November Rain** / Guns N' Roses
+
+![Foto del album: Use Your Illusion I](https://i.scdn.co/image/ab67616d00001e02e44963b8bb127552ac761873)
+
+**Album:** Use Your Illusion I
+
+📅 2024-09-05 12:00:15
+
+
+# **Like a Stone** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2024-09-05 11:32:44
