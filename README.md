@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **One Day** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-09-05 20:55:56
+
+
 # **Deeply** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Use Your Illusion I
 
 📅 2024-09-05 12:00:15
-
-
-# **Like a Stone** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2024-09-05 11:32:44
