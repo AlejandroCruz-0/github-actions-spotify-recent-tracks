@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **99%** / Zenless Zone Zero
+
+![Foto del album: Loading... (Zenless Zone Zero Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a6e93133da262d3a0b9eaf19)
+
+**Album:** Loading... (Zenless Zone Zero Original Soundtrack)
+
+📅 2024-09-06 21:14:44
+
+
+# **79%** / Zenless Zone Zero
+
+![Foto del album: Loading... (Zenless Zone Zero Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a6e93133da262d3a0b9eaf19)
+
+**Album:** Loading... (Zenless Zone Zero Original Soundtrack)
+
+📅 2024-09-06 21:11:38
+
+
+# **39%** / Zenless Zone Zero
+
+![Foto del album: Loading... (Zenless Zone Zero Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a6e93133da262d3a0b9eaf19)
+
+**Album:** Loading... (Zenless Zone Zero Original Soundtrack)
+
+📅 2024-09-06 21:08:34
+
+
+# **19%** / Zenless Zone Zero
+
+![Foto del album: Loading... (Zenless Zone Zero Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a6e93133da262d3a0b9eaf19)
+
+**Album:** Loading... (Zenless Zone Zero Original Soundtrack)
+
+📅 2024-09-06 21:05:18
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2024-09-06 18:42:10
+
+
 # **Out of Touch** / Daryl Hall & John Oates
 
 ![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Silence Is Easy
 
 📅 2024-09-06 13:37:43
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-09-06 13:32:52
-
-
-# **A Design for Life - Remastered** / Manic Street Preachers
-
-![Foto del album: Everything Must Go 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e028f8e24262ca7ef631e62c5f6)
-
-**Album:** Everything Must Go 10th Anniversary Edition
-
-📅 2024-09-06 13:05:14
-
-
-# **One Day** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-06 12:31:42
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-06 12:29:01
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-06 12:24:27
