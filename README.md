@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-11 13:10:17
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-09-10 08:32:21
-
-
-# **メリッサ** / PornoGraffitti
-
-![Foto del album: ポルノグラフィティ全書 ～ALL TIME SINGLES～](https://i.scdn.co/image/ab67616d00001e021ae2959c53a5814d7b88de06)
-
-**Album:** ポルノグラフィティ全書 ～ALL TIME SINGLES～
-
-📅 2024-09-09 12:54:10
