@@ -13,139 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **The Outsider** / A Perfect Circle
+# **Fever** / The Black Keys
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Thirteenth Step
+**Album:** Turn Blue
 
-📅 2024-09-11 13:10:17
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-11 12:54:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-11 12:50:37
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-11 09:56:03
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-09-11 09:54:25
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-09-11 09:49:57
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-09-11 09:46:12
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-11 09:44:54
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-11 09:39:09
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2024-09-10 17:18:09
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2024-09-10 17:13:02
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-10 11:43:32
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-10 11:38:12
-
-
-# **メリッサ** / PornoGraffitti
-
-![Foto del album: ポルノグラフィティ全書 ～ALL TIME SINGLES～](https://i.scdn.co/image/ab67616d00001e021ae2959c53a5814d7b88de06)
-
-**Album:** ポルノグラフィティ全書 ～ALL TIME SINGLES～
-
-📅 2024-09-10 11:21:59
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-09-10 10:25:10
+📅 2024-09-12 18:01:31
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -154,34 +28,124 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2024-09-10 10:11:05
+📅 2024-09-12 17:48:31
 
 
-# **Fever** / The Black Keys
+# **Condemnation** / Depeche Mode
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Turn Blue
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-10 10:07:39
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-10 08:38:48
+📅 2024-09-12 17:18:31
 
 
-# **Out Of Sight** / Hooverphonic
+# **Congregation** / Low
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** The Magnificent Tree
+**Album:** Ones and Sixes
 
-📅 2024-09-10 08:36:17
+📅 2024-09-12 16:51:29
+
+
+# **Canned Heat - Remastered 2006** / Jamiroquai
+
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+
+**Album:** Driving Songs
+
+📅 2024-09-12 16:47:38
+
+
+# **Poor Misguided Fool** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 16:30:21
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-09-12 16:26:30
+
+
+# **Tie up My Hands** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 15:36:10
+
+
+# **Alcoholic** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 15:20:35
+
+
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 15:17:39
+
+
+# **Poor Misguided Fool** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 15:12:45
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-09-12 15:08:53
+
+
+# **Poor Misguided Fool** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 13:35:19
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-09-12 13:19:54
+
+
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-12 13:02:18
 
 
 # **Mad About You** / Hooverphonic
@@ -190,4 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-09-10 08:32:21
+📅 2024-09-12 12:50:18
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-12 10:39:44
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-09-12 10:29:22
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-12 10:24:46
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-12 10:20:39
