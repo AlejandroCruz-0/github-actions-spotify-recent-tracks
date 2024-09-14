@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-09-14 08:55:48
+
+
+# **Bella Belle** / The Electric Swing Circus
+
+![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
+
+**Album:** The Electric Swing Circus
+
+📅 2024-09-14 08:52:36
+
+
+# **Miracle** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2024-09-14 08:48:58
+
+
+# **Miracle** / Caravan Palace
+
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+
+**Album:** Chronologic
+
+📅 2024-09-14 08:45:16
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Love Is Here
 
 📅 2024-09-12 15:17:39
-
-
-# **Poor Misguided Fool** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-09-12 15:12:45
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-09-12 15:08:53
-
-
-# **Poor Misguided Fool** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-09-12 13:35:19
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-09-12 13:19:54
