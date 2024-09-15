@@ -13,103 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Rock It for Me** / Caravan Palace
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** Panic
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2024-09-14 08:55:48
-
-
-# **Bella Belle** / The Electric Swing Circus
-
-![Foto del album: The Electric Swing Circus](https://i.scdn.co/image/ab67616d00001e023382e1fa88ad7eda2318b0a4)
-
-**Album:** The Electric Swing Circus
-
-📅 2024-09-14 08:52:36
+📅 2024-09-14 18:59:39
 
 
-# **Miracle** / Caravan Palace
+# **Scoring** / bôa
 
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
 
-**Album:** Chronologic
+**Album:** Twilight
 
-📅 2024-09-14 08:48:58
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2024-09-14 08:45:16
+📅 2024-09-14 18:55:29
 
 
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-13 13:04:51
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-13 12:49:40
-
-
-# **I Feel You** / Depeche Mode
+# **Judas** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-13 09:08:54
+📅 2024-09-14 18:51:38
 
 
-# **The Outsider** / A Perfect Circle
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Thirteenth Step
+**Album:** Land Animal
 
-📅 2024-09-13 08:57:19
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-13 08:53:12
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-13 08:49:16
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-09-12 18:01:31
+📅 2024-09-14 18:46:25
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -118,7 +55,43 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2024-09-12 17:48:31
+📅 2024-09-14 18:40:51
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-09-14 18:37:25
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2024-09-14 18:33:18
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2024-09-14 18:29:10
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2024-09-14 18:24:23
 
 
 # **Condemnation** / Depeche Mode
@@ -127,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-12 17:18:31
+📅 2024-09-14 18:20:43
 
 
 # **Congregation** / Low
@@ -136,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2024-09-12 16:51:29
+📅 2024-09-14 18:17:13
 
 
 # **Canned Heat - Remastered 2006** / Jamiroquai
@@ -145,49 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Driving Songs
 
-📅 2024-09-12 16:47:38
+📅 2024-09-14 18:13:21
 
 
-# **Poor Misguided Fool** / Starsailor
+# **I Love You** / Woodkid
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** Love Is Here
+**Album:** The Golden Age
 
-📅 2024-09-12 16:30:21
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-09-12 16:26:30
+📅 2024-09-14 18:09:33
 
 
-# **Tie up My Hands** / Starsailor
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Love Is Here
+**Album:** The Magnificent Tree
 
-📅 2024-09-12 15:36:10
-
-
-# **Alcoholic** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-09-12 15:20:35
+📅 2024-09-14 18:05:42
 
 
-# **Good Souls** / Starsailor
+# **Oh I Wept** / Free
 
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Love Is Here
+**Album:** Fire And Water
 
-📅 2024-09-12 15:17:39
+📅 2024-09-14 18:01:51
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-09-14 17:57:23
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2024-09-14 17:53:38
+
+
+# **Walking in My Shoes** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-09-14 17:52:18
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-14 17:46:51
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-09-14 17:43:36
