@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2024-09-14 19:27:11
+
+
 # **Out of Touch** / Daryl Hall & John Oates
 
 ![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2024-09-14 17:46:51
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-09-14 17:43:36
