@@ -13,13 +13,175 @@ Nombre: **lotario1999**
 
 
 
-# **Condemnation** / Depeche Mode
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2024-09-17 19:33:03
+
+
+# **Find the Flame** / 祖堅 正慶
+
+![Foto del album: Find the Flame from FINAL FANTASY XVI Original Soundtrack](https://i.scdn.co/image/ab67616d00001e02add81dfc2ee9f05f616a923f)
+
+**Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
+
+📅 2024-09-17 18:47:57
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2024-09-17 18:44:25
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-09-17 18:39:57
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2024-09-17 18:36:45
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-09-17 13:10:51
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-09-17 12:55:10
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-09-17 12:37:56
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-09-17 12:34:31
+
+
+# **The Magnificent Tree** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-17 12:17:28
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-09-17 12:06:32
+
+
+# **Bones** / Imagine Dragons
+
+![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
+
+**Album:** Mercury - Acts 1 & 2
+
+📅 2024-09-17 12:01:57
+
+
+# **Rock It for Me** / Caravan Palace
+
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
+
+**Album:** Panic
+
+📅 2024-09-17 11:58:40
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2024-09-17 11:55:29
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2024-09-17 11:22:02
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-09-17 10:39:25
+
+
+# **Judas** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-16 19:24:01
+📅 2024-09-17 10:35:35
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2024-09-17 10:30:21
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-09-17 10:24:47
 
 
 # **Congregation** / Low
@@ -28,166 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Ones and Sixes
 
-📅 2024-09-16 19:00:46
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-09-16 18:56:26
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 18:43:50
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 18:39:54
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-16 14:19:47
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-09-16 14:00:15
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 13:46:38
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 13:42:42
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-16 11:52:53
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 11:34:48
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 11:30:52
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 11:02:34
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-16 10:39:52
-
-
-# **Twilight** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-16 08:59:08
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-16 08:45:23
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2024-09-16 08:42:00
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2024-09-15 23:46:33
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-15 23:42:35
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-15 22:52:45
+📅 2024-09-17 10:21:08
