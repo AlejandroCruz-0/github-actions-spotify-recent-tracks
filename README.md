@@ -19,6 +19,105 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
+📅 2024-09-21 21:09:37
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-21 21:04:09
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-21 20:28:01
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-21 20:20:52
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-21 20:17:11
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2024-09-21 11:45:59
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2024-09-21 11:37:58
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-21 11:30:08
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-21 11:26:12
+
+
+# **Good Souls** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-09-21 11:22:18
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-21 11:10:01
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
 📅 2024-09-20 21:57:54
 
 
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-09-20 12:16:10
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-20 12:12:13
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2024-09-19 13:55:26
-
-
-# **Jobless Monday** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2024-09-19 13:51:44
-
-
-# **I Don't Smoke** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2024-09-19 13:49:37
-
-
-# **Francis Forever** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2024-09-19 13:46:18
-
-
-# **First Love/Late Spring** / Mitski
-
-![Foto del album: Bury Me At Makeout Creek](https://i.scdn.co/image/ab67616d00001e02e90db8983ebd43b776694179)
-
-**Album:** Bury Me At Makeout Creek
-
-📅 2024-09-19 13:43:49
-
-
-# **Rain** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-19 13:36:21
-
-
-# **Fool** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-19 13:32:25
-
-
-# **Twilight** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-19 13:27:17
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-19 13:23:29
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-19 10:58:30
