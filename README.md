@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2024-09-22 17:31:32
+
+
+# **Mercy in You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-09-22 17:28:12
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2024-09-22 17:23:12
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-22 17:19:09
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2024-09-22 17:15:53
+
+
+# **Mágico** / Joe Vasconcellos
+
+![Foto del album: Toque](https://i.scdn.co/image/ab67616d00001e021443f89117ffd83e8e3d4502)
+
+**Album:** Toque
+
+📅 2024-09-22 14:28:37
+
+
+# **Ella Usó Mi Cabeza Como Un Revólver - Remasterizado 2007** / Soda Stereo
+
+![Foto del album: Sueño Stereo (Remastered)](https://i.scdn.co/image/ab67616d00001e02b50bb73f2ef9047afa0644a4)
+
+**Album:** Sueño Stereo (Remastered)
+
+📅 2024-09-22 14:04:42
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-09-22 13:59:36
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2024-09-22 13:56:06
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-22 08:35:27
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nine Types of Light
 
 📅 2024-09-21 11:37:58
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-21 11:30:08
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-21 11:26:12
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-09-21 11:22:18
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-21 11:10:01
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-20 21:57:54
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-20 21:53:58
-
-
-# **The Villain I Appear to Be** / Connor Spiotto|Molly Pease
-
-![Foto del album: The Villain I Appear to Be](https://i.scdn.co/image/ab67616d00001e027cd257813b3a266800fd2153)
-
-**Album:** The Villain I Appear to Be
-
-📅 2024-09-20 21:50:04
-
-
-# **Tangled Up - Lokee Remix** / Caro Emerald|Lokee
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e026fd8c7a5cab665b1ca320b61)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2024-09-20 21:46:55
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2024-09-20 21:43:29
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2024-09-20 21:17:34
