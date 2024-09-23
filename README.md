@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2024-09-22 23:12:04
+
+
 # **Nobody Speak** / DJ Shadow|Run The Jewels
 
 ![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fire And Water
 
 📅 2024-09-21 11:45:59
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-09-21 11:37:58
