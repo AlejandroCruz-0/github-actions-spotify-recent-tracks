@@ -148,18 +148,18 @@ Nombre: **lotario1999**
 📅 2024-09-26 09:19:16
 
 
-# **Hammering in My Head (2018 - Remaster)** / Garbage
+# **Hammering in My Head (2018 Remaster)** / Garbage
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
 📅 2024-09-25 17:19:10
 
 
-# **Special (2018 - Remaster)** / Garbage
+# **Special (2018 Remaster)** / Garbage
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0288ad069d44592dec31db1f95)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
