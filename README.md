@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-09-30 08:43:09
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-09-30 08:34:05
+
+
 # **Weak And Powerless** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Songs of Faith and Devotion (Deluxe)
 
 📅 2024-09-27 10:10:57
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-27 09:41:56
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-09-27 09:37:49
