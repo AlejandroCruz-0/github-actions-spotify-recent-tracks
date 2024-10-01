@@ -13,40 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Silence Is Easy** / Starsailor
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Silence Is Easy
+**Album:** The Magnificent Tree
 
-📅 2024-09-30 08:43:09
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-09-30 08:34:05
+📅 2024-09-30 21:39:55
 
 
-# **Weak And Powerless** / A Perfect Circle
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Thirteenth Step
+**Album:** The Magnificent Tree
 
-📅 2024-09-29 12:27:11
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-09-29 12:01:56
+📅 2024-09-30 21:35:59
 
 
 # **Waves** / Hooverphonic
@@ -55,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-09-29 11:56:05
+📅 2024-09-30 18:22:36
 
 
 # **I Feel You** / Depeche Mode
@@ -64,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-29 11:52:02
+📅 2024-09-30 18:12:30
 
 
 # **The Outsider** / A Perfect Circle
@@ -73,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2024-09-29 11:47:26
+📅 2024-09-30 18:07:33
 
 
 # **Out Of Sight** / Hooverphonic
@@ -82,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-09-29 11:43:20
+📅 2024-09-30 18:03:27
 
 
 # **Mad About You** / Hooverphonic
@@ -91,97 +73,79 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2024-09-29 11:39:24
+📅 2024-09-30 17:59:30
 
 
-# **Fool** / bôa
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Twilight
+**Album:** Panic
 
-📅 2024-09-28 22:13:26
-
-
-# **Twilight** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-28 21:54:51
+📅 2024-09-30 13:54:20
 
 
-# **Duvet** / bôa
+# **Little L - Remastered 2006** / Jamiroquai
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Twilight
+**Album:** Driving Songs
 
-📅 2024-09-28 21:51:02
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2024-09-28 21:28:24
+📅 2024-09-30 13:35:35
 
 
-# **Losing My Religion** / R.E.M.
+# **Mercy in You** / Depeche Mode
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-27 12:17:32
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-09-27 12:13:03
+📅 2024-09-30 13:31:35
 
 
-# **The Passenger** / Iggy Pop
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Lust For Life
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-09-27 12:08:22
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-09-27 11:09:34
+📅 2024-09-30 13:27:14
 
 
-# **Out Of Sight** / Hooverphonic
+# **Out of Touch** / Daryl Hall & John Oates
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
 
-**Album:** The Magnificent Tree
+**Album:** The Very Best of Daryl Hall / John Oates
 
-📅 2024-09-27 10:24:14
+📅 2024-09-30 13:24:36
 
 
-# **Mad About You** / Hooverphonic
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2024-09-27 10:20:18
+📅 2024-09-30 13:19:48
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-09-30 13:14:13
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-09-30 13:10:47
 
 
 # **I Feel You** / Depeche Mode
@@ -190,4 +154,40 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2024-09-27 10:10:57
+📅 2024-09-30 13:05:36
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-09-30 13:01:00
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-30 12:56:54
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-30 12:51:28
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-09-30 11:39:35
