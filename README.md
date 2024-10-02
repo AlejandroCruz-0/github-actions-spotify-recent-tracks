@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-10-01 18:29:07
+
+
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-09-30 18:22:36
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-09-30 18:12:30
