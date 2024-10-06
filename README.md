@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-05 12:57:45
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-05 12:49:22
+
+
+# **Mission** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-05 12:40:47
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-05 12:29:23
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-05 12:25:06
+
+
 # **When I'm Down** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2024-10-04 12:30:55
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2024-10-04 12:27:40
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-10-04 12:16:01
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-10-04 12:11:25
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-10-04 12:07:18
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-10-04 12:03:22
