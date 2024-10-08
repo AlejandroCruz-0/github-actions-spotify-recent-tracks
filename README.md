@@ -13,67 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **When I'm Down** / Chris Cornell
+# **Will Do** / TV On The Radio
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Euphoria Morning
+**Album:** Nine Types of Light
 
-📅 2024-10-07 09:16:38
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 09:12:20
+📅 2024-10-07 20:37:43
 
 
-# **Follow My Way** / Chris Cornell
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Euphoria Morning
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2024-10-07 09:06:59
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 08:55:50
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 00:15:34
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 00:05:23
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 00:00:56
+📅 2024-10-07 20:33:58
 
 
 # **Moonchild** / Chris Cornell
@@ -82,88 +37,25 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-10-06 23:56:42
+📅 2024-10-07 19:54:34
 
 
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 20:18:55
-
-
-# **Disappearing One** / Chris Cornell
+# **Wave Goodbye** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-10-06 20:00:14
+📅 2024-10-07 19:41:20
 
 
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 14:12:32
-
-
-# **Pillow Of Your Bones** / Chris Cornell
+# **Mission** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-10-06 13:40:41
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 13:36:13
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 13:32:12
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 13:01:17
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 12:37:29
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-06 12:33:02
+📅 2024-10-07 19:37:37
 
 
 # **When I'm Down** / Chris Cornell
@@ -172,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-10-05 13:24:41
+📅 2024-10-07 19:33:34
 
 
 # **Follow My Way** / Chris Cornell
@@ -181,7 +73,97 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-10-05 12:57:45
+📅 2024-10-07 19:29:16
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-10-07 18:11:14
+
+
+# **Poor Misguided Fool** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-10-07 17:42:38
+
+
+# **Silence Is Easy** / Starsailor
+
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
+
+**Album:** Silence Is Easy
+
+📅 2024-10-07 17:21:33
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 16:41:54
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 16:00:27
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 15:44:53
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 15:41:46
+
+
+# **Wave Goodbye** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 15:37:45
+
+
+# **Mission** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 15:34:02
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 15:29:59
 
 
 # **Follow My Way** / Chris Cornell
@@ -190,4 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-10-05 12:49:22
+📅 2024-10-07 15:25:41
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 14:53:49
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-07 14:23:57
