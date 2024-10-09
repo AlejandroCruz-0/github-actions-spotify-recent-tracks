@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2024-10-08 12:35:51
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 12:32:29
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 12:27:56
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 12:23:35
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 12:18:57
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 11:29:53
+
+
+# **Flutter Girl** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 10:06:35
+
+
+# **Can't Change Me** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 09:39:18
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-08 08:54:11
+
+
 # **Follow My Way** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-10-07 19:29:16
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-10-07 18:11:14
-
-
-# **Poor Misguided Fool** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-10-07 17:42:38
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-10-07 17:21:33
-
-
-# **Sweet Euphoria** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 16:41:54
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 16:00:27
-
-
-# **Sweet Euphoria** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 15:44:53
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 15:41:46
-
-
-# **Wave Goodbye** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 15:37:45
-
-
-# **Mission** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-07 15:34:02
