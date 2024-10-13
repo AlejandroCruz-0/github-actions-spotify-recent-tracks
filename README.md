@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Hammering in My Head (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-10-12 12:41:34
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-10-12 12:36:42
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-12 12:32:47
+
+
 # **Wave Goodbye** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-10-10 22:05:45
-
-
-# **Sweet Euphoria** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-10 22:01:59
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-10 21:58:52
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-10 13:02:11
