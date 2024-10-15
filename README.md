@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Human by Name** / アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-14 22:45:50
+
+
+# **Hero's Awakening** / アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-14 22:16:42
+
+
+# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-14 22:13:46
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-14 20:46:12
+
+
 # **Disappearing One** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Metaphor: ReFantazio Special Soundtrack
 
 📅 2024-10-14 12:15:52
-
-
-# **Desecrated Cathedral** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-10-14 11:54:33
-
-
-# **Royal Capital Grand Trad -Night-** / アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-10-14 11:43:45
-
-
-# **Royal Capital Grand Trad** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-10-14 11:41:37
-
-
-# **King's Verdict** / アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-10-14 11:39:34
