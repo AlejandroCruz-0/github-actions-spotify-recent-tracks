@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Royal Capital Grand Trad** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-16 08:54:59
+
+
+# **King's Verdict** / アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-16 08:42:28
+
+
+# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-16 08:39:52
+
+
+# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-16 00:36:02
+
+
+# **Hammering in My Head (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-10-15 17:39:09
+
+
 # **Special (2018 Remaster)** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Love Is Here
 
 📅 2024-10-15 10:08:42
-
-
-# **Alcoholic** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-10-15 09:48:55
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-10-15 09:45:59
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-10-15 09:41:05
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-10-15 09:22:22
-
-
-# **Human by Name** / アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-10-14 22:45:50
