@@ -13,94 +13,103 @@ Nombre: **lotario1999**
 
 
 
-# **Pink Fluffy Dinosaurs** / Hooverphonic
+# **Moonchild** / Chris Cornell
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Magnificent Tree
+**Album:** Euphoria Morning
 
-📅 2024-10-16 17:21:11
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-10-16 17:10:35
+📅 2024-10-17 18:49:37
 
 
-# **Will Do** / TV On The Radio
+# **Nearly Forgot My Broken Heart** / Chris Cornell
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Higher Truth](https://i.scdn.co/image/ab67616d00001e023ad33cc40395ef3b12509469)
 
-**Album:** Nine Types of Light
+**Album:** Higher Truth
 
-📅 2024-10-16 17:06:07
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-10-16 17:02:22
+📅 2024-10-17 17:20:36
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Can't Change Me - French Version** / Chris Cornell
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Euphoria Morning
 
-📅 2024-10-16 17:01:02
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-10-16 16:55:36
+📅 2024-10-17 17:08:11
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Steel Rain** / Chris Cornell
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2024-10-16 16:52:20
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-10-16 16:42:47
+📅 2024-10-17 17:04:23
 
 
-# **Mad About You** / Hooverphonic
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Magnificent Tree
+**Album:** Euphoria Morning
 
-📅 2024-10-16 16:38:50
+📅 2024-10-17 16:58:41
 
 
-# **King's Verdict** / アトラスサウンドチーム|ATLUS GAME MUSIC
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Metaphor: ReFantazio Special Soundtrack
+**Album:** Euphoria Morning
 
-📅 2024-10-16 14:31:29
+📅 2024-10-17 16:54:14
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-17 15:59:45
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-17 15:49:31
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-17 15:45:20
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-17 15:41:35
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-10-17 15:38:28
 
 
 # **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
@@ -109,85 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Metaphor: ReFantazio Special Soundtrack
 
-📅 2024-10-16 14:18:23
+📅 2024-10-17 15:34:27
 
 
-# **Oh I Wept** / Free
+# **Four to the Floor - Thin White Duke Mix** / Starsailor
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Silence Is Easy (20th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e0263a895a6f16ce7d5e439bed8)
 
-**Album:** Fire And Water
+**Album:** Silence Is Easy (20th Anniversary Edition)
 
-📅 2024-10-16 14:15:50
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-10-16 13:57:24
+📅 2024-10-17 13:25:37
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Tie up My Hands** / Starsailor
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Love Is Here
 
-📅 2024-10-16 13:53:38
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2024-10-16 13:49:58
+📅 2024-10-17 13:11:26
 
 
-# **Will Do** / TV On The Radio
+# **Alcoholic** / Starsailor
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Nine Types of Light
+**Album:** Love Is Here
 
-📅 2024-10-16 13:45:31
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-10-16 13:41:46
+📅 2024-10-17 13:05:40
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Good Souls** / Starsailor
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Love Is Here
 
-📅 2024-10-16 13:40:26
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2024-10-16 13:34:59
+📅 2024-10-17 13:02:43
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **Silence Is Easy** / Starsailor
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Silence Is Easy
 
-📅 2024-10-16 13:31:43
+📅 2024-10-17 12:57:49
+
+
+# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-17 12:50:04
+
+
+# **King's Verdict** / アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-17 12:17:21
+
+
+# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-17 12:06:17
