@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2024-10-18 13:36:25
+
+
 # **Disappearing One** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Silence Is Easy (20th Anniversary Edition)
 
 📅 2024-10-17 13:25:37
-
-
-# **Tie up My Hands** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-10-17 13:11:26
