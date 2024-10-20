@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **It's In The Middle Of The Night** / Tate Jackson Trio
+
+![Foto del album: Jazz at Night](https://i.scdn.co/image/ab67616d00001e0280c90679a3a2f90f2a408524)
+
+**Album:** Jazz at Night
+
+📅 2024-10-19 12:34:24
+
+
+# **Cry Me a River** / Dominick Farinacci
+
+![Foto del album: Cry Me a River](https://i.scdn.co/image/ab67616d00001e0248f4e3c9c92ef4244a169699)
+
+**Album:** Cry Me a River
+
+📅 2024-10-19 12:30:45
+
+
+# **Body and Soul** / Brandon Sanders
+
+![Foto del album: Compton's Finest](https://i.scdn.co/image/ab67616d00001e022038c80159bc82ecf84a386d)
+
+**Album:** Compton's Finest
+
+📅 2024-10-19 12:26:40
+
+
+# **Old Folks** / Erik von Spreckelsen|Marek Konarski
+
+![Foto del album: Friendship](https://i.scdn.co/image/ab67616d00001e022ef894a9db3b49615ffaddd5)
+
+**Album:** Friendship
+
+📅 2024-10-19 12:21:45
+
+
+# **Ithaka** / Copenhagen Jazzexperience|Jacob Christoffersen|Claus Waidtløw
+
+![Foto del album: Everything I Love](https://i.scdn.co/image/ab67616d00001e02177aefaf8948e7bd2a96496d)
+
+**Album:** Everything I Love
+
+📅 2024-10-19 12:16:53
+
+
+# **We Three** / Cory Weeds
+
+![Foto del album: Just Coolin'](https://i.scdn.co/image/ab67616d00001e020df669a0ead57201905a6300)
+
+**Album:** Just Coolin'
+
+📅 2024-10-19 12:13:23
+
+
 # **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
 
 ![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-10-17 15:59:45
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-17 15:49:31
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-17 15:45:20
-
-
-# **Sweet Euphoria** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-17 15:41:35
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-17 15:38:28
-
-
-# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-10-17 15:34:27
-
-
-# **Four to the Floor - Thin White Duke Mix** / Starsailor
-
-![Foto del album: Silence Is Easy (20th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e0263a895a6f16ce7d5e439bed8)
-
-**Album:** Silence Is Easy (20th Anniversary Edition)
-
-📅 2024-10-17 13:25:37
