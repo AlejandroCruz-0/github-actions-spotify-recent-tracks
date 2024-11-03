@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-11-03 00:53:39
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2024-11-03 00:48:57
+
+
 # **Seven Days in Sunny June** / Jamiroquai
 
 ![Foto del album: Dynamite](https://i.scdn.co/image/ab67616d00001e02951fbcfd4b08a3a19f158ab5)
@@ -157,6 +175,15 @@ Nombre: **lotario1999**
 📅 2024-11-01 22:58:00
 
 
+# **White Flag** / Dido
+
+![Foto del album: Life For Rent](https://i.scdn.co/image/ab67616d00001e02d41b79f27ef8d8df5a191219)
+
+**Album:** Life For Rent
+
+📅 2024-10-31 23:25:09
+
+
 # **Nothing Compares 2 U** / Sinéad O'Connor
 
 ![Foto del album: I Do Not Want What I Haven't Got](https://i.scdn.co/image/ab67616d00001e024eeefa0555b6f8cc88df9ffe)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** I Do Not Want What I Haven't Got
 
 📅 2024-10-31 23:23:21
-
-
-# **All Apologies** / Sinéad O'Connor
-
-![Foto del album: Universal Mother](https://i.scdn.co/image/ab67616d00001e020252dd87b4ff317f775ced89)
-
-**Album:** Universal Mother
-
-📅 2024-10-31 23:18:41
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-31 23:15:48
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-10-31 23:10:37
