@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Ungodly Fruit** / Wax Tailor
+
+![Foto del album: Tales of the Forgotten Melodies](https://i.scdn.co/image/ab67616d00001e02ba54ef939a9b21c14111d1c2)
+
+**Album:** Tales of the Forgotten Melodies
+
+📅 2024-11-03 15:18:28
+
+
+# **All Mine** / Portishead
+
+![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+
+**Album:** Portishead
+
+📅 2024-11-03 15:06:07
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-03 15:02:05
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-11-03 14:56:58
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-11-03 14:48:52
+
+
+# **Hammering in My Head (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2024-11-03 14:45:10
+
+
 # **Special (2018 Remaster)** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-11-01 23:25:32
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-01 23:21:14
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2024-11-01 23:12:15
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2024-11-01 23:01:59
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-11-01 22:58:00
-
-
-# **White Flag** / Dido
-
-![Foto del album: Life For Rent](https://i.scdn.co/image/ab67616d00001e02d41b79f27ef8d8df5a191219)
-
-**Album:** Life For Rent
-
-📅 2024-10-31 23:25:09
-
-
-# **Nothing Compares 2 U** / Sinéad O'Connor
-
-![Foto del album: I Do Not Want What I Haven't Got](https://i.scdn.co/image/ab67616d00001e024eeefa0555b6f8cc88df9ffe)
-
-**Album:** I Do Not Want What I Haven't Got
-
-📅 2024-10-31 23:23:21
