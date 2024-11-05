@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **It Could Be Sweet** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-04 18:13:54
+
+
 # **Strangers** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Find the Flame from FINAL FANTASY XVI Original Soundtrack
 
 📅 2024-11-01 23:46:48
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2024-11-01 23:43:16
