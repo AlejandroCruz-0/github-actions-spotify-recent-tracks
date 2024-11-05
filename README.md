@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Strangers** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-04 17:45:01
+
+
+# **Sour Times** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-04 17:41:04
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-04 17:35:55
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-04 14:22:27
+
+
 # **Ungodly Fruit** / Wax Tailor
 
 ![Foto del album: Tales of the Forgotten Melodies](https://i.scdn.co/image/ab67616d00001e02ba54ef939a9b21c14111d1c2)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Stop Making Sense (Live)
 
 📅 2024-11-01 23:43:16
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
-
-**Album:** Mercury - Acts 1 & 2
-
-📅 2024-11-01 23:38:48
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2024-11-01 23:36:02
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-01 23:31:03
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-01 23:25:32
