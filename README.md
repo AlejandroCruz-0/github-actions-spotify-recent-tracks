@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-06 12:29:05
+
+
+# **Preaching The End Of The World** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-06 12:23:58
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-06 10:06:40
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-11-06 09:56:07
+
+
+# **The Wrong Place** / Hooverphonic
+
+![Foto del album: Hidden Stories](https://i.scdn.co/image/ab67616d00001e023b89a9267e0f75e33c94b5b1)
+
+**Album:** Hidden Stories
+
+📅 2024-11-06 09:08:43
+
+
+# **Eden** / Hooverphonic
+
+![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+
+**Album:** Blue Wonder Power Milk
+
+📅 2024-11-06 09:06:47
+
+
 # **2 Wicky** / Hooverphonic
 
 ![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-11-04 17:41:04
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-11-04 17:35:55
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-11-04 14:22:27
-
-
-# **Ungodly Fruit** / Wax Tailor
-
-![Foto del album: Tales of the Forgotten Melodies](https://i.scdn.co/image/ab67616d00001e02ba54ef939a9b21c14111d1c2)
-
-**Album:** Tales of the Forgotten Melodies
-
-📅 2024-11-03 15:18:28
-
-
-# **All Mine** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2024-11-03 15:06:07
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-11-03 15:02:05
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-11-03 14:56:58
