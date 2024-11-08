@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Alcoholic** / Starsailor
+
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
+
+**Album:** Love Is Here
+
+📅 2024-11-07 17:32:47
+
+
 # **Silence Is Easy** / Starsailor
 
 ![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-11-06 08:09:31
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-05 12:10:39
