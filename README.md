@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Mission** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-12 10:18:49
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-12 10:14:54
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-12 10:10:36
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2024-11-11 21:00:35
+
+
 # **Goodbye Stranger - 2010 Remastered** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Silence Is Easy
 
 📅 2024-11-07 13:16:52
-
-
-# **Poor Misguided Fool** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-11-07 13:13:11
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-06 12:55:04
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-06 12:29:05
-
-
-# **Preaching The End Of The World** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-06 12:23:58
