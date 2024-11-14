@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2024-11-13 13:10:39
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2024-11-13 12:42:05
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-11-13 12:37:52
+
+
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Love Is Here
 
 📅 2024-11-07 17:32:47
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2024-11-07 17:16:06
-
-
-# **Tie up My Hands** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-11-07 13:28:04
-
-
-# **Good Souls** / Starsailor
-
-![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
-
-**Album:** Love Is Here
-
-📅 2024-11-07 13:24:42
