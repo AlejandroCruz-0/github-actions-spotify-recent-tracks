@@ -13,6 +13,150 @@ Nombre: **lotario1999**
 
 
 
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-11-15 21:47:39
+
+
+# **About A Girl** / Nirvana
+
+![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
+
+**Album:** Bleach
+
+📅 2024-11-15 11:35:42
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-11-15 11:20:29
+
+
+# **Lithium** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-11-15 11:15:30
+
+
+# **About A Girl** / Nirvana
+
+![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
+
+**Album:** Bleach
+
+📅 2024-11-15 11:11:12
+
+
+# **Heart-Shaped Box** / Nirvana
+
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
+
+**Album:** In Utero (Deluxe Edition)
+
+📅 2024-11-15 11:08:24
+
+
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-11-15 11:03:17
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2024-11-15 10:59:39
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-15 10:55:24
+
+
+# **Girl Boy** / Blonde Redhead
+
+![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
+
+**Album:** Blonde Redhead
+
+📅 2024-11-15 10:18:51
+
+
+# **Pick Up Sticks** / Jon Kennedy
+
+![Foto del album: Useless Wooden Toys](https://i.scdn.co/image/ab67616d00001e02bb2912d51b945d3d373f9f7b)
+
+**Album:** Useless Wooden Toys
+
+📅 2024-11-15 10:17:18
+
+
+# **Ungodly Fruit** / Wax Tailor
+
+![Foto del album: Tales of the Forgotten Melodies](https://i.scdn.co/image/ab67616d00001e02ba54ef939a9b21c14111d1c2)
+
+**Album:** Tales of the Forgotten Melodies
+
+📅 2024-11-15 10:14:30
+
+
+# **Le voyage de Pénélope** / Air
+
+![Foto del album: Moon Safari](https://i.scdn.co/image/ab67616d00001e021216e4f7e84af70ef18146ed)
+
+**Album:** Moon Safari
+
+📅 2024-11-15 10:11:30
+
+
+# **All Mine** / Portishead
+
+![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+
+**Album:** Portishead
+
+📅 2024-11-15 10:08:18
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-15 10:04:17
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-11-15 09:28:37
+
+
 # **Only You** / Portishead
 
 ![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
@@ -47,147 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-11-15 07:58:18
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-15 07:53:12
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-14 12:04:41
-
-
-# **Sweet Euphoria** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-14 12:00:56
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-14 11:57:49
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-14 11:53:27
-
-
-# **Walking in My Shoes** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-11-14 08:25:37
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2024-11-14 07:53:17
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2024-11-13 17:44:37
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2024-11-13 13:10:39
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2024-11-13 12:42:05
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2024-11-13 12:37:52
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2024-11-12 22:33:51
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2024-11-12 22:26:03
-
-
-# **Mission** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-12 10:18:49
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-12 10:14:54
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-12 10:10:36
