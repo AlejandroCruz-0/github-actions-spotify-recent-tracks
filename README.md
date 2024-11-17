@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **About A Girl** / Nirvana
+
+![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
+
+**Album:** Bleach
+
+📅 2024-11-15 22:08:50
+
+
 # **Heart-Shaped Box** / Nirvana
 
 ![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Garbage (20th Anniversary Super Deluxe Edition)
 
 📅 2024-11-15 08:08:27
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-11-15 07:58:18
