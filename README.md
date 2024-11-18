@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **All Apologies** / Sinéad O'Connor
+
+![Foto del album: Universal Mother](https://i.scdn.co/image/ab67616d00001e020252dd87b4ff317f775ced89)
+
+**Album:** Universal Mother
+
+📅 2024-11-18 00:50:27
+
+
 # **Cowboys** / Portishead
 
 ![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Moon Safari
 
 📅 2024-11-15 10:11:30
-
-
-# **All Mine** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2024-11-15 10:08:18
