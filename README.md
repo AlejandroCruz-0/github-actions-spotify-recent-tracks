@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Steel Rain** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-18 11:35:37
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-18 11:24:29
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-18 11:20:02
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-18 11:16:03
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-18 10:53:44
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-18 10:18:13
+
+
+# **White Flag** / Dido
+
+![Foto del album: Life For Rent](https://i.scdn.co/image/ab67616d00001e02d41b79f27ef8d8df5a191219)
+
+**Album:** Life For Rent
+
+📅 2024-11-18 01:00:53
+
+
 # **All Apologies** / Sinéad O'Connor
 
 ![Foto del album: Universal Mother](https://i.scdn.co/image/ab67616d00001e020252dd87b4ff317f775ced89)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** In Utero (Deluxe Edition)
 
 📅 2024-11-15 11:08:24
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-11-15 11:03:17
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-11-15 10:59:39
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-11-15 10:55:24
-
-
-# **Girl Boy** / Blonde Redhead
-
-![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
-
-**Album:** Blonde Redhead
-
-📅 2024-11-15 10:18:51
-
-
-# **Pick Up Sticks** / Jon Kennedy
-
-![Foto del album: Useless Wooden Toys](https://i.scdn.co/image/ab67616d00001e02bb2912d51b945d3d373f9f7b)
-
-**Album:** Useless Wooden Toys
-
-📅 2024-11-15 10:17:18
-
-
-# **Ungodly Fruit** / Wax Tailor
-
-![Foto del album: Tales of the Forgotten Melodies](https://i.scdn.co/image/ab67616d00001e02ba54ef939a9b21c14111d1c2)
-
-**Album:** Tales of the Forgotten Melodies
-
-📅 2024-11-15 10:14:30
-
-
-# **Le voyage de Pénélope** / Air
-
-![Foto del album: Moon Safari](https://i.scdn.co/image/ab67616d00001e021216e4f7e84af70ef18146ed)
-
-**Album:** Moon Safari
-
-📅 2024-11-15 10:11:30
