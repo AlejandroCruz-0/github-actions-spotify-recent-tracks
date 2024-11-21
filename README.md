@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 17:17:28
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 16:36:34
+
+
+# **Mission** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 12:16:51
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 11:56:53
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 11:52:35
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 11:39:54
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-20 11:34:02
+
+
 # **Steel Rain** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-11-17 12:03:54
-
-
-# **About A Girl** / Nirvana
-
-![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
-
-**Album:** Bleach
-
-📅 2024-11-15 22:08:50
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-11-15 21:47:39
-
-
-# **About A Girl** / Nirvana
-
-![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
-
-**Album:** Bleach
-
-📅 2024-11-15 11:35:42
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-11-15 11:20:29
-
-
-# **Lithium** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2024-11-15 11:15:30
-
-
-# **About A Girl** / Nirvana
-
-![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
-
-**Album:** Bleach
-
-📅 2024-11-15 11:11:12
-
-
-# **Heart-Shaped Box** / Nirvana
-
-![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
-
-**Album:** In Utero (Deluxe Edition)
-
-📅 2024-11-15 11:08:24
