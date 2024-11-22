@@ -13,112 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **All Mine** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2024-11-21 08:58:05
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-11-21 08:54:04
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-20 17:17:28
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-20 16:36:34
-
-
-# **Mission** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-20 12:16:51
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-20 11:56:53
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-20 11:52:35
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-20 11:39:54
-
-
 # **Disappearing One** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2024-11-20 11:34:02
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-18 11:35:37
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-18 11:24:29
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-18 11:20:02
+📅 2024-11-21 13:19:24
 
 
 # **Moonchild** / Chris Cornell
@@ -127,7 +28,25 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-11-18 11:16:03
+📅 2024-11-21 13:06:51
+
+
+# **Wave Goodbye** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-21 13:02:49
+
+
+# **Mission** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-21 12:59:07
 
 
 # **When I'm Down** / Chris Cornell
@@ -136,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-11-18 10:53:44
+📅 2024-11-21 12:55:03
 
 
 # **Follow My Way** / Chris Cornell
@@ -145,25 +64,61 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2024-11-18 10:18:13
+📅 2024-11-21 12:50:46
 
 
-# **White Flag** / Dido
+# **Preaching The End Of The World** / Chris Cornell
 
-![Foto del album: Life For Rent](https://i.scdn.co/image/ab67616d00001e02d41b79f27ef8d8df5a191219)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Life For Rent
+**Album:** Euphoria Morning
 
-📅 2024-11-18 01:00:53
+📅 2024-11-21 12:45:38
 
 
-# **All Apologies** / Sinéad O'Connor
+# **Flutter Girl** / Chris Cornell
 
-![Foto del album: Universal Mother](https://i.scdn.co/image/ab67616d00001e020252dd87b4ff317f775ced89)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Universal Mother
+**Album:** Euphoria Morning
 
-📅 2024-11-18 00:50:27
+📅 2024-11-21 12:41:00
+
+
+# **Can't Change Me** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-21 12:36:37
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-21 11:41:31
+
+
+# **Pick Up Sticks** / Jon Kennedy
+
+![Foto del album: Useless Wooden Toys](https://i.scdn.co/image/ab67616d00001e02bb2912d51b945d3d373f9f7b)
+
+**Album:** Useless Wooden Toys
+
+📅 2024-11-21 11:29:10
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2024-11-21 10:44:41
 
 
 # **Cowboys** / Portishead
@@ -172,22 +127,67 @@ Nombre: **lotario1999**
 
 **Album:** Portishead
 
-📅 2024-11-17 12:38:23
+📅 2024-11-21 10:40:57
 
 
-# **All Mine** / Portishead
+# **Girl Boy** / Blonde Redhead
 
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
 
-**Album:** Portishead
+**Album:** Blonde Redhead
 
-📅 2024-11-17 12:28:18
+📅 2024-11-21 10:36:17
 
 
-# **Cowboys** / Portishead
+# **Glory Box** / Portishead
 
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Portishead
+**Album:** Dummy
 
-📅 2024-11-17 12:24:18
+📅 2024-11-21 10:34:28
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-21 09:52:44
+
+
+# **Biscuit** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-21 09:47:35
+
+
+# **Pedestal** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-21 09:42:32
+
+
+# **Roads** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-21 09:38:52
+
+
+# **Numb** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-11-21 09:33:48
