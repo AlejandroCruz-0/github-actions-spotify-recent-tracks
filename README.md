@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-24 13:11:37
+
+
 # **Moonchild** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-11-21 11:41:31
-
-
-# **Pick Up Sticks** / Jon Kennedy
-
-![Foto del album: Useless Wooden Toys](https://i.scdn.co/image/ab67616d00001e02bb2912d51b945d3d373f9f7b)
-
-**Album:** Useless Wooden Toys
-
-📅 2024-11-21 11:29:10
