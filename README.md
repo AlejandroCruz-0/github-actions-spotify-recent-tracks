@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-11-29 10:25:23
+
+
 # **When I'm Down** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-11-21 13:06:51
-
-
-# **Wave Goodbye** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2024-11-21 13:02:49
