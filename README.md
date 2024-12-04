@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **The Sensual Woman** / The Herbaliser
+
+![Foto del album: Very Mercenary](https://i.scdn.co/image/ab67616d00001e0246d6181c9bd591a937d32e67)
+
+**Album:** Very Mercenary
+
+📅 2024-12-03 23:06:39
+
+
+# **All Mine** / Portishead
+
+![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+
+**Album:** Portishead
+
+📅 2024-12-03 22:55:11
+
+
+# **Girl Boy** / Blonde Redhead
+
+![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
+
+**Album:** Blonde Redhead
+
+📅 2024-12-03 22:51:10
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-12-03 22:49:21
+
+
 # **Royal Capital Grand Trad** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
 
 ![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2024-12-02 08:51:26
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-12-02 08:02:25
-
-
-# **Undenied** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2024-12-01 10:22:45
-
-
-# **All Mine** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2024-12-01 10:12:12
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-12-01 10:07:45
