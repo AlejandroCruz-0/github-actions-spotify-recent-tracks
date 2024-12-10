@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Girl Boy** / Blonde Redhead
+
+![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
+
+**Album:** Blonde Redhead
+
+📅 2024-12-09 11:31:20
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-12-09 11:29:30
+
+
 # **Devastated Fortress** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
 
 ![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-12-03 22:49:21
-
-
-# **Royal Capital Grand Trad** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-12-02 12:50:44
-
-
-# **King's Verdict** / アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0241a73c0f0c04229406a9e3bb)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2024-12-02 12:20:18
