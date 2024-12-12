@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-12-11 19:08:18
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2024-12-11 19:03:52
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2024-12-11 18:58:46
+
+
 # **All Mine** / Portishead
 
 ![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2024-12-04 11:42:29
-
-
-# **The Sensual Woman** / The Herbaliser
-
-![Foto del album: Very Mercenary](https://i.scdn.co/image/ab67616d00001e0246d6181c9bd591a937d32e67)
-
-**Album:** Very Mercenary
-
-📅 2024-12-03 23:06:39
-
-
-# **All Mine** / Portishead
-
-![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
-
-**Album:** Portishead
-
-📅 2024-12-03 22:55:11
-
-
-# **Girl Boy** / Blonde Redhead
-
-![Foto del album: Blonde Redhead](https://i.scdn.co/image/ab67616d00001e0216ad1c823b08122acd3bbe13)
-
-**Album:** Blonde Redhead
-
-📅 2024-12-03 22:51:10
