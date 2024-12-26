@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Brotherswing** / Caravan Palace
+
+![Foto del album: Caravan Palace](https://i.scdn.co/image/ab67616d00001e0282e8630923961c066aab5887)
+
+**Album:** Caravan Palace
+
+📅 2024-12-24 21:05:25
+
+
 # **Sydney** / Caravan Palace
 
 ![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2024-12-20 09:47:04
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2024-12-20 09:24:23
