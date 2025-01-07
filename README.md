@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-01-04 23:47:41
-
-
 # **Your Woman** / White Town
 
 ![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
 **Album:** Women in Technology
 
-📅 2025-01-04 23:43:05
+📅 2025-01-06 20:38:20
 
 
 # **Cochise** / Audioslave
@@ -37,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Audioslave
 
-📅 2025-01-04 23:38:45
+📅 2025-01-06 20:33:59
 
 
 # **Fever** / The Black Keys
@@ -46,43 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2025-01-04 23:35:03
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-04 23:30:58
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-04 11:23:00
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-01-04 11:10:05
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-03 12:19:48
+📅 2025-01-06 20:30:17
 
 
 # **Sweet Euphoria** / Chris Cornell
@@ -91,52 +46,25 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-01-03 11:47:30
+📅 2025-01-06 20:26:10
 
 
-# **Moonchild** / Chris Cornell
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Euphoria Morning
+**Album:** Bueninvento
 
-📅 2025-01-03 11:44:22
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-03 11:40:17
+📅 2025-01-06 20:23:02
 
 
-# **Disappearing One** / Chris Cornell
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Euphoria Morning
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2025-01-03 11:34:05
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-02 20:51:29
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-01-02 19:56:45
+📅 2025-01-06 20:19:35
 
 
 # **The Outsider** / A Perfect Circle
@@ -145,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2025-01-02 13:03:06
+📅 2025-01-06 20:14:54
 
 
 # **Scoring** / bôa
@@ -154,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2025-01-02 12:49:55
+📅 2025-01-06 20:10:48
 
 
 # **Special (2018 Remaster)** / Garbage
@@ -163,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2025-01-02 12:46:04
+📅 2025-01-06 20:06:57
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -172,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2025-01-02 12:42:20
+📅 2025-01-06 20:03:13
 
 
 # **Follow My Way** / Chris Cornell
@@ -181,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-01-02 12:37:45
+📅 2025-01-06 19:58:39
 
 
 # **Losing My Religion** / R.E.M.
@@ -190,4 +118,76 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-01-02 12:32:37
+📅 2025-01-06 19:53:31
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-01-06 15:39:36
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-01-06 15:08:49
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-01-06 15:04:53
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-06 14:59:43
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-06 14:55:42
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-06 14:51:14
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-01-06 14:47:28
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2025-01-06 10:45:14
