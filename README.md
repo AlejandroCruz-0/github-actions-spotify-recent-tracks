@@ -13,139 +13,148 @@ Nombre: **lotario1999**
 
 
 
-# **Your Woman** / White Town
+# **Fetch The Bolt Cutters** / Fiona Apple
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
 
-**Album:** Women in Technology
+**Album:** Fetch The Bolt Cutters
 
-📅 2025-01-06 20:38:20
+📅 2025-01-07 18:07:51
 
 
-# **Cochise** / Audioslave
+# **Fetch The Bolt Cutters** / Fiona Apple
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
 
-**Album:** Audioslave
+**Album:** Fetch The Bolt Cutters
 
-📅 2025-01-06 20:33:59
+📅 2025-01-07 15:09:04
 
 
-# **Fever** / The Black Keys
+# **Under The Table** / Fiona Apple
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
 
-**Album:** Turn Blue
+**Album:** Fetch The Bolt Cutters
 
-📅 2025-01-06 20:30:17
+📅 2025-01-07 14:31:12
 
 
-# **Sweet Euphoria** / Chris Cornell
+# **All in Good Time** / Iron & Wine|Fiona Apple
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Light Verse](https://i.scdn.co/image/ab67616d00001e020cfc9be1d0866d063fea8782)
 
-**Album:** Euphoria Morning
+**Album:** Light Verse
 
-📅 2025-01-06 20:26:10
+📅 2025-01-07 14:27:50
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Fast As You Can** / Fiona Apple
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Bueninvento
+**Album:** When The Pawn...
 
-📅 2025-01-06 20:23:02
+📅 2025-01-07 14:23:34
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Limp** / Fiona Apple
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** When The Pawn...
 
-📅 2025-01-06 20:19:35
+📅 2025-01-07 14:18:22
 
 
-# **The Outsider** / A Perfect Circle
+# **Sleep to Dream** / Fiona Apple
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Thirteenth Step
+**Album:** Tidal
 
-📅 2025-01-06 20:14:54
+📅 2025-01-07 14:14:51
 
 
-# **Scoring** / bôa
+# **The First Taste** / Fiona Apple
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Twilight
+**Album:** Tidal
 
-📅 2025-01-06 20:10:48
+📅 2025-01-07 14:10:42
 
 
-# **Special (2018 Remaster)** / Garbage
+# **Get Gone** / Fiona Apple
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** When The Pawn...
 
-📅 2025-01-06 20:06:57
+📅 2025-01-07 14:05:55
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Across the Universe** / Fiona Apple
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Pleasantville -Music From The Motion Picture](https://i.scdn.co/image/ab67616d00001e02ad1c9ca438b5579fb2f9f3f4)
 
-**Album:** Not Like Us
+**Album:** Pleasantville -Music From The Motion Picture
 
-📅 2025-01-06 20:03:13
+📅 2025-01-07 14:01:47
 
 
-# **Follow My Way** / Chris Cornell
+# **I Know** / Fiona Apple
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
 
-**Album:** Euphoria Morning
+**Album:** When The Pawn...
 
-📅 2025-01-06 19:58:39
+📅 2025-01-07 13:56:39
 
 
-# **Losing My Religion** / R.E.M.
+# **Criminal** / Fiona Apple
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Tidal
 
-📅 2025-01-06 19:53:31
+📅 2025-01-07 13:51:43
 
 
-# **Losing My Religion** / R.E.M.
+# **I Want You To Love Me** / Fiona Apple
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Fetch The Bolt Cutters
 
-📅 2025-01-06 15:39:36
+📅 2025-01-07 13:46:01
 
 
-# **Out Of Sight** / Hooverphonic
+# **Evidence - 2016 Remaster** / Faith No More
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
 
-**Album:** The Magnificent Tree
+**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
 
-📅 2025-01-06 15:08:49
+📅 2025-01-07 13:41:08
 
 
-# **Glory Box** / Portishead
+# **Ashes to Ashes - 2016 Remaster** / Faith No More
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Album of the Year (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02464b3661ebe755ff3117c7e8)
 
-**Album:** Dummy
+**Album:** Album of the Year (2016 Remaster; Deluxe Edition)
 
-📅 2025-01-06 15:04:53
+📅 2025-01-07 13:36:13
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2025-01-07 13:13:30
 
 
 # **Moonchild** / Chris Cornell
@@ -154,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-01-06 14:59:43
+📅 2025-01-07 13:04:22
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -163,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-01-06 14:55:42
+📅 2025-01-07 11:33:48
 
 
 # **Disappearing One** / Chris Cornell
@@ -172,22 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-01-06 14:51:14
+📅 2025-01-07 11:12:24
 
 
-# **Mad About You** / Hooverphonic
+# **I Feel You** / Depeche Mode
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** The Magnificent Tree
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-01-06 14:47:28
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2025-01-06 10:45:14
+📅 2025-01-06 20:48:42
