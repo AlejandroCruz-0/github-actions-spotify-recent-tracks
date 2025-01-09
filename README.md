@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Fetch The Bolt Cutters** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-08 11:27:49
+
+
 # **Under The Table** / Fiona Apple
 
 ![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-01-07 11:33:48
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-07 11:12:24
