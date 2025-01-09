@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Newspaper** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 09:14:36
+
+
+# **Rack of His** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 09:09:04
+
+
+# **Relay** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 09:05:21
+
+
+# **Fetch The Bolt Cutters** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 08:58:34
+
+
+# **Ladies** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-08 12:13:34
+
+
 # **Fetch The Bolt Cutters** / Fiona Apple
 
 ![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fetch The Bolt Cutters
 
 📅 2025-01-07 13:46:01
-
-
-# **Evidence - 2016 Remaster** / Faith No More
-
-![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
-
-**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
-
-📅 2025-01-07 13:41:08
-
-
-# **Ashes to Ashes - 2016 Remaster** / Faith No More
-
-![Foto del album: Album of the Year (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02464b3661ebe755ff3117c7e8)
-
-**Album:** Album of the Year (2016 Remaster; Deluxe Edition)
-
-📅 2025-01-07 13:36:13
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2025-01-07 13:13:30
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-07 13:04:22
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-07 11:33:48
