@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Heavy Balloon** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 17:23:38
+
+
+# **Ladies** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 17:08:46
+
+
+# **Newspaper** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 17:03:21
+
+
+# **Rack of His** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 16:57:45
+
+
+# **Relay** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 16:54:03
+
+
+# **Heavy Balloon** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 09:54:02
+
+
+# **Ladies** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-09 09:20:01
+
+
 # **Newspaper** / Fiona Apple
 
 ![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** When The Pawn...
 
 📅 2025-01-07 14:18:22
-
-
-# **Sleep to Dream** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-01-07 14:14:51
-
-
-# **The First Taste** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-01-07 14:10:42
-
-
-# **Get Gone** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2025-01-07 14:05:55
-
-
-# **Across the Universe** / Fiona Apple
-
-![Foto del album: Pleasantville -Music From The Motion Picture](https://i.scdn.co/image/ab67616d00001e02ad1c9ca438b5579fb2f9f3f4)
-
-**Album:** Pleasantville -Music From The Motion Picture
-
-📅 2025-01-07 14:01:47
-
-
-# **I Know** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2025-01-07 13:56:39
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-01-07 13:51:43
-
-
-# **I Want You To Love Me** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-07 13:46:01
