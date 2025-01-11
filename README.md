@@ -13,6 +13,168 @@ Nombre: **lotario1999**
 
 
 
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2025-01-10 13:51:08
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2025-01-10 13:47:42
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-01-10 13:42:25
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
+
+**Album:** Twilight
+
+📅 2025-01-10 13:38:18
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-01-10 13:34:28
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-01-10 13:30:34
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-10 13:26:00
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-01-10 13:20:29
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-01-10 13:16:00
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-01-10 13:11:05
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-10 13:04:23
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-10 13:00:22
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-10 12:55:54
+
+
+# **Rack of His** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-10 12:51:45
+
+
+# **Relay** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-10 12:48:02
+
+
+# **Under The Table** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-10 12:43:13
+
+
+# **Fetch The Bolt Cutters** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-10 12:39:20
+
+
+# **Relay** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-10 09:16:51
+
+
 # **Under The Table** / Fiona Apple
 
 ![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
@@ -29,165 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fetch The Bolt Cutters
 
 📅 2025-01-10 08:34:35
-
-
-# **Heavy Balloon** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 17:23:38
-
-
-# **Ladies** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 17:08:46
-
-
-# **Newspaper** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 17:03:21
-
-
-# **Rack of His** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 16:57:45
-
-
-# **Relay** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 16:54:03
-
-
-# **Heavy Balloon** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 09:54:02
-
-
-# **Ladies** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 09:20:01
-
-
-# **Newspaper** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 09:14:36
-
-
-# **Rack of His** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 09:09:04
-
-
-# **Relay** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 09:05:21
-
-
-# **Fetch The Bolt Cutters** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-09 08:58:34
-
-
-# **Ladies** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-08 12:13:34
-
-
-# **Fetch The Bolt Cutters** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-08 11:27:49
-
-
-# **Under The Table** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-07 18:24:24
-
-
-# **Fetch The Bolt Cutters** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-07 18:07:51
-
-
-# **Fetch The Bolt Cutters** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-07 15:09:04
-
-
-# **Under The Table** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-07 14:31:12
-
-
-# **All in Good Time** / Iron & Wine|Fiona Apple
-
-![Foto del album: Light Verse](https://i.scdn.co/image/ab67616d00001e020cfc9be1d0866d063fea8782)
-
-**Album:** Light Verse
-
-📅 2025-01-07 14:27:50
