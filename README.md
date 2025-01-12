@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **The Rapture of Riddley Walker** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2025-01-12 01:35:30
+
+
+# **One Eye Dollar** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2025-01-12 01:31:22
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2025-01-12 01:29:58
+
+
 # **Fever** / The Black Keys
 
 ![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fetch The Bolt Cutters
 
 📅 2025-01-10 12:43:13
-
-
-# **Fetch The Bolt Cutters** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-10 12:39:20
-
-
-# **Relay** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-10 09:16:51
-
-
-# **Under The Table** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-10 08:37:56
