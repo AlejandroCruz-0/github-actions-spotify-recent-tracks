@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **I Want You To Love Me** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 17:18:17
+
+
+# **I Want You To Love Me** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 16:57:06
+
+
+# **Drumset** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 12:31:31
+
+
+# **For Her** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 12:10:26
+
+
+# **Cosmonauts** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 12:07:42
+
+
+# **Heavy Balloon** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 12:03:43
+
+
+# **Ladies** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 11:49:12
+
+
+# **Newspaper** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 11:43:46
+
+
+# **Rack of His** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 11:38:14
+
+
+# **Relay** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 11:34:31
+
+
+# **Fetch The Bolt Cutters** / Fiona Apple
+
+![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
+
+**Album:** Fetch The Bolt Cutters
+
+📅 2025-01-13 11:22:55
+
+
 # **Special (2018 Remaster)** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Fetch The Bolt Cutters
 
 📅 2025-01-12 12:59:07
-
-
-# **Cyborg Bette** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-12 11:59:04
-
-
-# **Book, Saddle, & Go** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-12 11:49:02
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-12 11:45:17
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-12 11:40:55
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-12 11:36:34
-
-
-# **Ashes to Ashes - 2016 Remaster** / Faith No More
-
-![Foto del album: Album of the Year (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02464b3661ebe755ff3117c7e8)
-
-**Album:** Album of the Year (2016 Remaster; Deluxe Edition)
-
-📅 2025-01-12 11:31:14
-
-
-# **The Regulator** / Clutch
-
-![Foto del album: Blast Tyrant (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e023fd8b2cbceab317ad9cd9ad7)
-
-**Album:** Blast Tyrant (Deluxe Edition)
-
-📅 2025-01-12 11:27:37
-
-
-# **When Vegans Attack** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-01-12 02:20:27
-
-
-# **The Rapture of Riddley Walker** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-01-12 01:35:30
-
-
-# **One Eye Dollar** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-01-12 01:31:22
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-01-12 01:29:58
