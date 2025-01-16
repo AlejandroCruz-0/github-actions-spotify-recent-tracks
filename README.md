@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-01-16 00:02:25
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-15 23:27:10
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-01-15 23:22:01
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-01-15 23:17:32
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-01-15 23:13:36
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-15 23:08:27
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-15 23:04:25
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-15 22:59:56
+
+
 # **Fetch The Bolt Cutters** / Fiona Apple
 
 ![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Not Like Us
 
 📅 2025-01-14 12:00:21
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-14 11:55:46
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-01-14 11:50:39
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-01-14 11:46:10
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-01-14 11:42:14
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-14 11:37:04
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-14 11:33:03
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-14 11:28:35
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-14 09:28:50
