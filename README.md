@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-01-17 14:48:07
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-01-17 14:43:28
+
+
+# **2 Wicky** / Hooverphonic
+
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+
+**Album:** A New Stereophonic Sound Spectacular
+
+📅 2025-01-17 10:43:49
+
+
+# **All Mine** / Portishead
+
+![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+
+**Album:** Portishead
+
+📅 2025-01-17 10:28:56
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-01-17 10:24:55
+
+
 # **Royal Capital Grand Trad** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
 
 ![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2025-01-15 23:13:36
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-15 23:08:27
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-15 23:04:25
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-15 22:59:56
-
-
-# **Fetch The Bolt Cutters** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-15 11:34:56
-
-
-# **Newspaper** / Fiona Apple
-
-![Foto del album: Fetch The Bolt Cutters](https://i.scdn.co/image/ab67616d00001e02841292c1316c4bf85447bcd9)
-
-**Album:** Fetch The Bolt Cutters
-
-📅 2025-01-15 11:10:32
