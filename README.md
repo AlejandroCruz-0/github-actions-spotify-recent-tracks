@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-02-01 13:26:29
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-01 13:15:41
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-02-01 13:11:45
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-01 13:06:36
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-01 13:02:35
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-01 12:58:07
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-01 12:54:21
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-01 12:38:41
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-01 12:27:32
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-01 10:43:48
+
+
+# **D.C. Sound Attack!** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-01 10:30:24
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-01-31 19:03:38
+
+
 # **Unto the Breach** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Not Like Us
 
 📅 2025-01-31 11:44:27
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-01-31 11:39:52
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-01-31 11:34:45
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-01-31 11:30:16
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-01-31 11:26:20
-
-
-# **Oh, Isabella** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-31 09:32:17
-
-
-# **Cyborg Bette** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-31 09:12:30
-
-
-# **Book, Saddle, & Go** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-31 09:09:16
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-31 09:05:31
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-31 09:01:09
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-01-31 08:56:48
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2025-01-30 22:56:04
-
-
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-01-30 22:20:17
