@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-02-05 11:38:04
+
+
 # **Special (2018 Remaster)** / Garbage
 
 ![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Out Of Time (25th Anniversary Edition)
 
 📅 2025-02-03 21:04:50
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-02-03 21:00:22
