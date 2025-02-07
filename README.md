@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-06 19:55:09
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-06 19:32:41
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-06 13:39:28
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-06 13:25:07
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-06 13:21:03
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-02-06 10:41:41
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-06 10:25:45
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-06 10:21:43
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-06 10:17:16
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-06 10:13:30
+
+
 # **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
 
 ![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Women in Technology
 
 📅 2025-02-04 11:32:18
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2025-02-04 11:08:25
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2025-02-04 11:04:02
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-02-04 11:00:12
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-02-04 10:56:23
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-02-04 10:10:33
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-04 09:54:11
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-04 09:49:43
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-02-04 09:45:57
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-03 21:58:12
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-02-03 21:04:50
