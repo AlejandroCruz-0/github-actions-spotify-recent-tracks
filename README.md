@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **The Face** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-07 11:58:53
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-07 11:54:31
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-07 11:50:10
+
+
+# **Book, Saddle, & Go** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-07 11:40:01
+
+
+# **Tomorrow** / Mikuni Shimokawa
+
+![Foto del album: 392 - Mikuni Shimokawa Best Selection -](https://i.scdn.co/image/ab67616d00001e026e39cda4478c9199669232d7)
+
+**Album:** 392 - Mikuni Shimokawa Best Selection -
+
+📅 2025-02-07 11:31:04
+
+
+# **ユキトキ** / yanaginagi
+
+![Foto del album: エウアル](https://i.scdn.co/image/ab67616d00001e02b5d5e98b4c188dad0297f492)
+
+**Album:** エウアル
+
+📅 2025-02-07 11:27:28
+
+
+# **砂糖玉の月** / yanaginagi
+
+![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e02b4563e403bb37cc2bca3cfee)
+
+**Album:** ナッテ
+
+📅 2025-02-07 11:22:59
+
+
+# **here and there** / yanaginagi
+
+![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e02b4563e403bb37cc2bca3cfee)
+
+**Album:** ナッテ
+
+📅 2025-02-07 11:18:21
+
+
+# **All the Way** / Mikuni Shimokawa
+
+![Foto del album: Kimi no Uta](https://i.scdn.co/image/ab67616d00001e0281c2a7e21a1ff47c0d66795b)
+
+**Album:** Kimi no Uta
+
+📅 2025-02-07 11:13:25
+
+
+# **Mad About You - Orchestra Version** / Hooverphonic
+
+![Foto del album: With Orchestra](https://i.scdn.co/image/ab67616d00001e02f5e9f5b520c70be35202ef4a)
+
+**Album:** With Orchestra
+
+📅 2025-02-07 11:05:42
+
+
+# **Eden** / Hooverphonic
+
+![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+
+**Album:** Blue Wonder Power Milk
+
+📅 2025-02-07 11:02:00
+
+
+# **2 Wicky** / Hooverphonic
+
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+
+**Album:** A New Stereophonic Sound Spectacular
+
+📅 2025-02-07 10:58:26
+
+
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2025-02-07 10:53:41
+
+
 # **Gone Cold** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-02-06 10:25:45
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-06 10:21:43
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-06 10:17:16
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-02-06 10:13:30
-
-
-# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2025-02-05 11:38:04
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-02-04 14:50:32
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-02-04 14:34:20
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-04 14:29:45
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-02-04 14:24:38
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-04 13:28:45
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-04 13:17:28
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-04 12:52:52
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-04 12:26:28
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2025-02-04 11:32:18
