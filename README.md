@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Breakfast at the Inn** / アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-02-08 12:00:26
+
+
+# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-02-08 11:36:00
+
+
+# **Book, Saddle, & Go** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-08 11:32:59
+
+
 # **The Face** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-02-06 13:25:07
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-06 13:21:03
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-02-06 10:41:41
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-06 10:25:45
