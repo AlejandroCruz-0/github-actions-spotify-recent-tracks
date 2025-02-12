@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-11 10:30:35
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2025-02-11 10:20:26
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2025-02-11 10:15:50
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-11 10:10:11
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-02-11 10:06:15
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-02-11 08:39:44
+
+
 # **Follow My Way** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-02-07 11:54:31
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-07 11:50:10
-
-
-# **Book, Saddle, & Go** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-07 11:40:01
-
-
-# **Tomorrow** / Mikuni Shimokawa
-
-![Foto del album: 392 - Mikuni Shimokawa Best Selection -](https://i.scdn.co/image/ab67616d00001e026e39cda4478c9199669232d7)
-
-**Album:** 392 - Mikuni Shimokawa Best Selection -
-
-📅 2025-02-07 11:31:04
-
-
-# **ユキトキ** / yanaginagi
-
-![Foto del album: エウアル](https://i.scdn.co/image/ab67616d00001e02b5d5e98b4c188dad0297f492)
-
-**Album:** エウアル
-
-📅 2025-02-07 11:27:28
-
-
-# **砂糖玉の月** / yanaginagi
-
-![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e02b4563e403bb37cc2bca3cfee)
-
-**Album:** ナッテ
-
-📅 2025-02-07 11:22:59
-
-
-# **here and there** / yanaginagi
-
-![Foto del album: ナッテ](https://i.scdn.co/image/ab67616d00001e02b4563e403bb37cc2bca3cfee)
-
-**Album:** ナッテ
-
-📅 2025-02-07 11:18:21
