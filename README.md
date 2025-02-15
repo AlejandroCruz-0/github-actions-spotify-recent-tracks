@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-14 18:20:43
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-14 18:16:57
+
+
+# **2 Wicky** / Hooverphonic
+
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+
+**Album:** A New Stereophonic Sound Spectacular
+
+📅 2025-02-14 11:55:06
+
+
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2025-02-14 11:37:10
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-14 11:30:49
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2025-02-14 11:13:09
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2025-02-14 11:00:50
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2025-02-14 10:57:19
+
+
+# **Canned Heat - Remastered 2006** / Jamiroquai
+
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+
+**Album:** Driving Songs
+
+📅 2025-02-14 10:53:27
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-14 08:54:40
+
+
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
 📅 2025-02-13 16:35:15
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-02-13 16:32:38
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2025-02-13 10:32:40
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2025-02-13 10:18:00
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2025-02-13 10:14:05
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2025-02-13 10:10:39
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-02-13 10:05:58
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e029e030b804258dc2017ad859f)
-
-**Album:** Twilight
-
-📅 2025-02-13 10:01:52
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-02-13 09:58:01
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-02-13 09:54:17
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-02-13 09:49:43
