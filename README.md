@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-15 13:06:17
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-02-15 13:01:10
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2025-02-15 12:11:38
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-02-15 11:56:56
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+
+**Album:** Twilight
+
+📅 2025-02-15 11:52:50
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-02-15 11:48:59
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-02-15 11:45:15
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-15 11:40:40
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-02-15 11:35:33
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-15 11:31:05
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-02-15 11:27:09
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-15 11:22:00
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-15 11:16:31
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-02-15 11:05:20
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-02-15 11:01:34
+
+
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-02-14 18:16:57
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2025-02-14 11:55:06
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-02-14 11:37:10
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-14 11:30:49
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2025-02-14 11:13:09
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-02-14 11:00:50
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2025-02-14 10:57:19
-
-
-# **Canned Heat - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2025-02-14 10:53:27
-
-
-# **Pink Fluffy Dinosaurs** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-02-14 08:54:40
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2025-02-14 08:42:47
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2025-02-14 08:38:19
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-02-14 08:34:34
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-14 08:32:37
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-02-14 08:28:16
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-02-13 16:58:45
-
-
-# **Pool Walk** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-02-13 16:37:56
