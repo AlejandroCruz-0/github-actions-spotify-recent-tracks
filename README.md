@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Symbiosis (feat. Cassie Wei)** / Mili|Yamato Kasai|Cassie Wei
+
+![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
+
+**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
+
+📅 2025-02-18 19:12:29
+
+
+# **Main theme (feat. Cassie Wei)** / Mili|Yamato Kasai|Cassie Wei
+
+![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
+
+**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
+
+📅 2025-02-18 19:09:52
+
+
+# **Awakening** / Mili|Yamato Kasai
+
+![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
+
+**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
+
+📅 2025-02-18 19:07:15
+
+
+# **Memories** / Mili|Yamato Kasai
+
+![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
+
+**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
+
+📅 2025-02-18 19:05:48
+
+
+# **L** / Mili|Yamato Kasai
+
+![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
+
+**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
+
+📅 2025-02-18 19:04:42
+
+
+# **Gewalt (feat. Toshiki Soejima)** / Mili|Yamato Kasai|Toshiki Soejima
+
+![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
+
+**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
+
+📅 2025-02-18 08:52:18
+
+
 # **My Favourite Game** / The Cardigans
 
 ![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gangbusters Melody Club
 
 📅 2025-02-16 21:14:21
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2025-02-16 20:30:53
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-02-16 20:27:42
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2025-02-16 20:21:40
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2025-02-16 20:18:02
-
-
-# **Canned Heat - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2025-02-16 20:14:10
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-02-16 13:58:26
