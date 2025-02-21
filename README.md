@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-20 23:52:21
+
+
 # **Mommy’s Dollhouse** / Cristobal Tapia De Veer
 
 ![Foto del album: Babygirl (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e023d8d07bbbab9dc82d05aefe1)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-02-18 19:56:26
-
-
-# **Symbiosis (feat. Cassie Wei)** / Mili|Yamato Kasai|Cassie Wei
-
-![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
-
-**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
-
-📅 2025-02-18 19:12:29
