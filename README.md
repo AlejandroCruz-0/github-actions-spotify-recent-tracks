@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Mommy’s Dollhouse** / Cristobal Tapia De Veer
+
+![Foto del album: Babygirl (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e023d8d07bbbab9dc82d05aefe1)
+
+**Album:** Babygirl (Original Soundtrack)
+
+📅 2025-02-20 16:24:18
+
+
+# **Wolves** / Cristobal Tapia De Veer
+
+![Foto del album: Babygirl (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e023d8d07bbbab9dc82d05aefe1)
+
+**Album:** Babygirl (Original Soundtrack)
+
+📅 2025-02-20 15:42:32
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-20 15:39:43
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-20 15:37:29
+
+
+# **Decadence** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-02-19 23:29:27
+
+
 # **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
 
 ![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
 
 📅 2025-02-18 19:12:29
-
-
-# **Main theme (feat. Cassie Wei)** / Mili|Yamato Kasai|Cassie Wei
-
-![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
-
-**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
-
-📅 2025-02-18 19:09:52
-
-
-# **Awakening** / Mili|Yamato Kasai
-
-![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
-
-**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
-
-📅 2025-02-18 19:07:15
-
-
-# **Memories** / Mili|Yamato Kasai
-
-![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
-
-**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
-
-📅 2025-02-18 19:05:48
-
-
-# **L** / Mili|Yamato Kasai
-
-![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
-
-**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
-
-📅 2025-02-18 19:04:42
-
-
-# **Gewalt (feat. Toshiki Soejima)** / Mili|Yamato Kasai|Toshiki Soejima
-
-![Foto del album: ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack](https://i.scdn.co/image/ab67616d00001e020255c2d005fc8929e3c7a09c)
-
-**Album:** ENDER MAGNOLIA: Bloom in the Mist Original Soundtrack
-
-📅 2025-02-18 08:52:18
