@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-22 00:11:02
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-02-21 23:50:47
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-21 23:47:10
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-21 23:44:01
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-02-21 12:35:17
+
+
 # **Moonchild** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
 
 📅 2025-02-19 21:46:55
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-02-19 21:44:47
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-02-19 21:43:01
-
-
-# **Lacero** / Kim Neundorf
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-02-19 21:32:08
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-02-19 21:30:11
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-02-19 21:27:33
