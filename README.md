@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Uprising** / Muse
+
+![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
+
+**Album:** The Resistance
+
+📅 2025-02-24 20:37:15
+
+
 # **Supermassive Black Hole** / Muse
 
 ![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Fall
 
 📅 2025-02-23 10:14:56
-
-
-# **Line of Fire** / Junip
-
-![Foto del album: Junip](https://i.scdn.co/image/ab67616d00001e02869304aaaf799e616df10442)
-
-**Album:** Junip
-
-📅 2025-02-22 23:11:01
