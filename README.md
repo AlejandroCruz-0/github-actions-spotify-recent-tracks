@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Supermassive Black Hole** / Muse
+
+![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
+
+**Album:** Black Holes and Revelations
+
+📅 2025-02-25 11:55:05
+
+
+# **Supermassive Black Hole** / Muse
+
+![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
+
+**Album:** Black Holes and Revelations
+
+📅 2025-02-25 10:12:01
+
+
+# **Supermassive Black Hole** / Muse
+
+![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
+
+**Album:** Black Holes and Revelations
+
+📅 2025-02-25 10:04:54
+
+
 # **Uprising** / Muse
 
 ![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Black Holes and Revelations
 
 📅 2025-02-23 10:22:22
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-02-23 10:18:21
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-02-23 10:16:41
-
-
-# **Amarillo** / Gorillaz
-
-![Foto del album: The Fall](https://i.scdn.co/image/ab67616d00001e02bfcb1c9ce002a2c2cd5e9f34)
-
-**Album:** The Fall
-
-📅 2025-02-23 10:14:56
