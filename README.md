@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Droplets - Instrumental Version** / Shirobon
+
+![Foto del album: Data Mind (Instrumental)](https://i.scdn.co/image/ab67616d00001e02139c37298b54f1b39df660cc)
+
+**Album:** Data Mind (Instrumental)
+
+📅 2025-02-26 21:01:30
+
+
+# **Afterdusk** / Flint|Out of Flux
+
+![Foto del album: Afterdusk](https://i.scdn.co/image/ab67616d00001e026f25cc976c1f10bcb30fafba)
+
+**Album:** Afterdusk
+
+📅 2025-02-26 20:58:59
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-02-26 20:56:04
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-02-26 12:10:10
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-26 11:57:53
+
+
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2025-02-26 08:54:20
+
+
 # **My Body Is A Cage** / Peter Gabriel
 
 ![Foto del album: Scratch My Back](https://i.scdn.co/image/ab67616d00001e0211ef07dfb622a5d7aac57f22)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Resistance
 
 📅 2025-02-24 20:37:15
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2025-02-24 20:24:39
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2025-02-23 20:53:35
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-02-23 15:52:21
-
-
-# **The Suburbs** / Arcade Fire
-
-![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
-
-**Album:** The Suburbs (Deluxe)
-
-📅 2025-02-23 15:37:14
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2025-02-23 15:31:22
-
-
-# **Uprising** / Muse
-
-![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
-
-**Album:** The Resistance
-
-📅 2025-02-23 13:54:37
