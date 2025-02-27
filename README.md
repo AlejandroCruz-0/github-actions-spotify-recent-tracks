@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Six Eight** / Xerxes
+
+![Foto del album: Six Eight](https://i.scdn.co/image/ab67616d00001e02f08651f225626f4685ca8284)
+
+**Album:** Six Eight
+
+📅 2025-02-26 21:11:42
+
+
 # **Droplets - Instrumental Version** / Shirobon
 
 ![Foto del album: Data Mind (Instrumental)](https://i.scdn.co/image/ab67616d00001e02139c37298b54f1b39df660cc)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Black Holes and Revelations
 
 📅 2025-02-25 10:04:54
-
-
-# **Uprising** / Muse
-
-![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
-
-**Album:** The Resistance
-
-📅 2025-02-24 20:37:15
