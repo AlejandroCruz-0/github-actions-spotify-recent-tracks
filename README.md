@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
+
+**Album:** Psychic Warfare
+
+📅 2025-02-27 12:25:26
+
+
+# **Goodbye** / Apparat|Soap&Skin
+
+![Foto del album: The Devil's Walk](https://i.scdn.co/image/ab67616d00001e0276f2cb2ac2670e125a4670ca)
+
+**Album:** The Devil's Walk
+
+📅 2025-02-27 12:22:12
+
+
+# **You Want It Darker** / Leonard Cohen
+
+![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+
+**Album:** You Want It Darker
+
+📅 2025-02-27 12:17:54
+
+
+# **I Don't Even Care About You** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+
+**Album:** Loner
+
+📅 2025-02-27 12:13:09
+
+
+# **Papercut** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2025-02-27 12:09:21
+
+
+# **Lure of the Maw** / Tobias Lilja
+
+![Foto del album: Little Nightmares (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c7e0f977e5662cfe49020460)
+
+**Album:** Little Nightmares (Original Game Soundtrack)
+
+📅 2025-02-27 12:05:20
+
+
+# **Love Lockdown** / Kanye West
+
+![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
+
+**Album:** 808s & Heartbreak
+
+📅 2025-02-27 11:52:37
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2025-02-27 11:48:06
+
+
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2025-02-27 10:15:16
+
+
+# **My Body Is A Cage** / Peter Gabriel
+
+![Foto del album: Scratch My Back](https://i.scdn.co/image/ab67616d00001e0211ef07dfb622a5d7aac57f22)
+
+**Album:** Scratch My Back
+
+📅 2025-02-27 10:01:00
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2025-02-27 09:54:03
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-02-27 09:43:10
+
+
 # **Six Eight** / Xerxes
 
 ![Foto del album: Six Eight](https://i.scdn.co/image/ab67616d00001e02f08651f225626f4685ca8284)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Scratch My Back
 
 📅 2025-02-26 08:43:16
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2025-02-26 08:23:43
-
-
-# **Voodoo In My Blood** / Massive Attack|Young Fathers
-
-![Foto del album: Ritual Spirit](https://i.scdn.co/image/ab67616d00001e02379474197c2f811bbb5e19eb)
-
-**Album:** Ritual Spirit
-
-📅 2025-02-26 08:08:06
-
-
-# **I Get Overwhelmed** / Dark Rooms
-
-![Foto del album: I Get Overwhelmed](https://i.scdn.co/image/ab67616d00001e023eea2fd4aa4287e42d80144e)
-
-**Album:** I Get Overwhelmed
-
-📅 2025-02-26 08:03:38
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-02-26 07:58:29
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-02-25 21:48:51
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-02-25 21:45:09
-
-
-# **The Suburbs** / Arcade Fire
-
-![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
-
-**Album:** The Suburbs (Deluxe)
-
-📅 2025-02-25 21:39:21
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2025-02-25 21:34:06
-
-
-# **Uprising** / Muse
-
-![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
-
-**Album:** The Resistance
-
-📅 2025-02-25 12:07:56
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2025-02-25 11:55:05
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2025-02-25 10:12:01
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2025-02-25 10:04:54
