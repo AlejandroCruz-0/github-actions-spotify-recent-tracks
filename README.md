@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **One Step Closer** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2025-02-27 12:36:16
+
+
 # **Your Love Is Incarceration** / Clutch
 
 ![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gozo Poderoso
 
 📅 2025-02-26 08:54:20
-
-
-# **My Body Is A Cage** / Peter Gabriel
-
-![Foto del album: Scratch My Back](https://i.scdn.co/image/ab67616d00001e0211ef07dfb622a5d7aac57f22)
-
-**Album:** Scratch My Back
-
-📅 2025-02-26 08:43:16
