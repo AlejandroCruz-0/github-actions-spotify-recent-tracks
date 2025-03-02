@@ -13,6 +13,168 @@ Nombre: **lotario1999**
 
 
 
+# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-01 20:18:47
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-01 20:17:08
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2025-03-01 16:18:13
+
+
+# **Coffee & TV** / Blur
+
+![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
+
+**Album:** 13
+
+📅 2025-03-01 16:08:10
+
+
+# **Tom The Model** / Beth Gibbons|Rustin Man
+
+![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
+
+**Album:** Out Of Season
+
+📅 2025-03-01 16:02:11
+
+
+# **50 Ways to Leave Your Lover** / Paul Simon
+
+![Foto del album: Still Crazy After All These Years](https://i.scdn.co/image/ab67616d00001e023879ef4375b97d2b58bf0768)
+
+**Album:** Still Crazy After All These Years
+
+📅 2025-03-01 15:58:30
+
+
+# **I Get Overwhelmed** / Dark Rooms
+
+![Foto del album: I Get Overwhelmed](https://i.scdn.co/image/ab67616d00001e023eea2fd4aa4287e42d80144e)
+
+**Album:** I Get Overwhelmed
+
+📅 2025-03-01 15:54:52
+
+
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2025-03-01 15:49:45
+
+
+# **The Suburbs** / Arcade Fire
+
+![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
+
+**Album:** The Suburbs (Deluxe)
+
+📅 2025-03-01 15:45:54
+
+
+# **Waltz #1** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-03-01 13:24:47
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2025-03-01 13:14:10
+
+
+# **Hysteria** / Muse
+
+![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e023303a842ee1bc0b23204333d)
+
+**Album:** Absolution
+
+📅 2025-03-01 10:35:01
+
+
+# **Uprising** / Muse
+
+![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
+
+**Album:** The Resistance
+
+📅 2025-03-01 10:24:33
+
+
+# **Supermassive Black Hole** / Muse
+
+![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
+
+**Album:** Black Holes and Revelations
+
+📅 2025-03-01 10:19:28
+
+
+# **DISCOVER** / Out of Flux
+
+![Foto del album: DISCOVER](https://i.scdn.co/image/ab67616d00001e026da657f145ff66126506c5d0)
+
+**Album:** DISCOVER
+
+📅 2025-03-01 10:04:46
+
+
+# **_trigger_thought** / William Fyke
+
+![Foto del album: _trigger_thought](https://i.scdn.co/image/ab67616d00001e02380dc5a4eb6523d9c5ea050a)
+
+**Album:** _trigger_thought
+
+📅 2025-03-01 09:54:21
+
+
+# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-01 09:52:08
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-01 09:50:29
+
+
 # **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -29,165 +191,3 @@ Nombre: **lotario1999**
 **Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
 
 📅 2025-03-01 00:48:30
-
-
-# **Lacero Puttanesca 1** / Cristobal Tapia De Veer|Kim Neundorf
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-02-28 12:52:08
-
-
-# **Buon Giorno** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-02-28 12:40:20
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-02-28 12:38:56
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-02-28 12:37:18
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-02-28 12:35:59
-
-
-# **One Step Closer** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2025-02-27 12:36:16
-
-
-# **Your Love Is Incarceration** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
-
-**Album:** Psychic Warfare
-
-📅 2025-02-27 12:25:26
-
-
-# **Goodbye** / Apparat|Soap&Skin
-
-![Foto del album: The Devil's Walk](https://i.scdn.co/image/ab67616d00001e0276f2cb2ac2670e125a4670ca)
-
-**Album:** The Devil's Walk
-
-📅 2025-02-27 12:22:12
-
-
-# **You Want It Darker** / Leonard Cohen
-
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
-
-**Album:** You Want It Darker
-
-📅 2025-02-27 12:17:54
-
-
-# **I Don't Even Care About You** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2025-02-27 12:13:09
-
-
-# **Papercut** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2025-02-27 12:09:21
-
-
-# **Lure of the Maw** / Tobias Lilja
-
-![Foto del album: Little Nightmares (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02c7e0f977e5662cfe49020460)
-
-**Album:** Little Nightmares (Original Game Soundtrack)
-
-📅 2025-02-27 12:05:20
-
-
-# **Love Lockdown** / Kanye West
-
-![Foto del album: 808s & Heartbreak](https://i.scdn.co/image/ab67616d00001e02346d77e155d854735410ed18)
-
-**Album:** 808s & Heartbreak
-
-📅 2025-02-27 11:52:37
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2025-02-27 11:48:06
-
-
-# **Rompecabezas** / Aterciopelados
-
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
-
-**Album:** Gozo Poderoso
-
-📅 2025-02-27 10:15:16
-
-
-# **My Body Is A Cage** / Peter Gabriel
-
-![Foto del album: Scratch My Back](https://i.scdn.co/image/ab67616d00001e0211ef07dfb622a5d7aac57f22)
-
-**Album:** Scratch My Back
-
-📅 2025-02-27 10:01:00
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2025-02-27 09:54:03
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-02-27 09:43:10
