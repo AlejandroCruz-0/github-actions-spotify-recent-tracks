@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Wake Up!** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-03-03 08:36:20
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-03 08:32:57
+
+
+# **Blue Fields** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2025-03-02 22:42:00
+
+
+# **Balamb GARDEN** / Nobuo Uematsu
+
+![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
+
+**Album:** FINAL FANTASY VIII Original Soundtrack
+
+📅 2025-03-02 22:18:52
+
+
+# **Courtship** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-03-02 21:10:50
+
+
 # **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
 
 ![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
 
 📅 2025-03-02 11:23:38
-
-
-# **Afterdusk** / Flint|Out of Flux
-
-![Foto del album: Afterdusk](https://i.scdn.co/image/ab67616d00001e026f25cc976c1f10bcb30fafba)
-
-**Album:** Afterdusk
-
-📅 2025-03-01 20:36:43
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-01 20:18:47
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-03-01 20:17:08
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2025-03-01 16:18:13
-
-
-# **Coffee & TV** / Blur
-
-![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
-
-**Album:** 13
-
-📅 2025-03-01 16:08:10
