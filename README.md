@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Lacero Espressivo** / Kim Neundorf
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-03 08:47:38
+
+
 # **Wake Up!** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
 
 📅 2025-03-02 11:26:01
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-03-02 11:23:38
