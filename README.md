@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Sisters** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-04 13:58:02
+
+
+# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-04 12:51:21
+
+
+# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-03-04 12:32:09
+
+
+# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-03-04 11:57:17
+
+
+# **Weird Times** / Clutch
+
+![Foto del album: Book of Bad Decisions](https://i.scdn.co/image/ab67616d00001e02cbe2a50918effae1416b5404)
+
+**Album:** Book of Bad Decisions
+
+📅 2025-03-04 11:31:53
+
+
+# **Vision Quest** / Clutch
+
+![Foto del album: Book of Bad Decisions](https://i.scdn.co/image/ab67616d00001e02cbe2a50918effae1416b5404)
+
+**Album:** Book of Bad Decisions
+
+📅 2025-03-04 11:29:39
+
+
+# **In Walks Barbarella** / Clutch
+
+![Foto del album: Book of Bad Decisions](https://i.scdn.co/image/ab67616d00001e02cbe2a50918effae1416b5404)
+
+**Album:** Book of Bad Decisions
+
+📅 2025-03-04 11:26:20
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-03-04 10:57:03
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-03-04 10:33:46
+
+
+# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-04 10:29:46
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-04 10:27:54
+
+
 # **Lacero Espressivo** / Kim Neundorf
 
 ![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-03-02 13:45:01
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-03-02 13:31:19
-
-
-# **Renaissance (Main Title Theme) - [Extended Version] [from “The White Lotus: Season 2”]** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 13:02:16
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-03-02 12:52:10
-
-
-# **Lacero** / Kim Neundorf
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:48:01
-
-
-# **Arcana** / Kim Neundorf
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:36:16
-
-
-# **Sisters** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:34:39
-
-
-# **Rinascimento Intro** / Kim Neundorf
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:33:56
-
-
-# **Let's Fun!** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:32:37
-
-
-# **Lacero Puttanesca 1** / Cristobal Tapia De Veer|Kim Neundorf
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:29:56
-
-
-# **Buon Giorno** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:27:25
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-02 11:26:01
