@@ -33,7 +33,7 @@ Nombre: **lotario1999**
 
 # **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
 
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0264e954b7cd04a842fe5a3e86)
 
 **Album:** Metaphor: ReFantazio Special Soundtrack
 
@@ -42,7 +42,7 @@ Nombre: **lotario1999**
 
 # **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
 
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0285fb5b4f316b63c94fb3a23e)
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e0264e954b7cd04a842fe5a3e86)
 
 **Album:** Metaphor: ReFantazio Special Soundtrack
 
