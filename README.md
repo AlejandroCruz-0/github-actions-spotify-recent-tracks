@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Independence Day** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-03-07 08:55:22
+
+
 # **The Suburbs** / Arcade Fire
 
 ![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Metaphor: ReFantazio Special Soundtrack
 
 📅 2025-03-04 12:32:09
-
-
-# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2025-03-04 11:57:17
