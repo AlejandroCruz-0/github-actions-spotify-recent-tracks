@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **HOLIDAY** / Lil Nas X
+
+![Foto del album: HOLIDAY](https://i.scdn.co/image/ab67616d00001e026771a05f34d77e5fc2bde64c)
+
+**Album:** HOLIDAY
+
+📅 2025-03-08 21:54:53
+
+
+# **Points of Authority** / Linkin Park
+
+![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
+
+**Album:** Hybrid Theory (Bonus Edition)
+
+📅 2025-03-08 21:52:18
+
+
+# **Waltz #1** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-03-08 21:48:57
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2025-03-08 21:45:34
+
+
 # **The Suburbs** / Arcade Fire
 
 ![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Want It Darker
 
 📅 2025-03-06 22:51:24
-
-
-# **I Don't Even Care About You** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
-
-**Album:** Loner
-
-📅 2025-03-06 22:46:39
-
-
-# **One Step Closer** / Linkin Park
-
-![Foto del album: Hybrid Theory (Bonus Edition)](https://i.scdn.co/image/ab67616d00001e02e2f039481babe23658fc719a)
-
-**Album:** Hybrid Theory (Bonus Edition)
-
-📅 2025-03-06 22:42:23
-
-
-# **Your Love Is Incarceration** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e02c9ad83374a016d8349ed48db)
-
-**Album:** Psychic Warfare
-
-📅 2025-03-06 22:39:45
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-03-06 22:36:31
