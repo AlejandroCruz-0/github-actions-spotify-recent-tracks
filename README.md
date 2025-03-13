@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-13 09:13:57
+
+
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-13 09:09:15
+
+
+# **Anytime Anywhere** / milet
+
+![Foto del album: Anytime Anywhere](https://i.scdn.co/image/ab67616d00001e02226d5c168f602298610fb028)
+
+**Album:** Anytime Anywhere
+
+📅 2025-03-12 23:43:22
+
+
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-12 23:17:27
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-03-12 22:08:53
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-12 21:57:14
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-12 21:53:12
+
+
 # **Disappearing One** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Full Moon Fever
 
 📅 2025-03-12 16:44:29
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-12 16:36:45
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-03-12 16:25:06
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2025-03-12 16:19:32
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2025-03-12 16:15:51
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2025-03-12 16:04:44
-
-
-# **Fever** / The Black Keys
-
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
-
-**Album:** Turn Blue
-
-📅 2025-03-12 15:53:04
-
-
-# **Steel Rain** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-12 12:52:32
