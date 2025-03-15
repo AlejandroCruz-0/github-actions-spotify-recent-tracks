@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-14 23:34:04
+
+
+# **Mariposas** / Camilo Sanabria
+
+![Foto del album: Cien años de soledad (Banda sonora de la serie de Netflix)](https://i.scdn.co/image/ab67616d00001e02f83a664f67dd705a5ef1105e)
+
+**Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
+
+📅 2025-03-14 23:22:54
+
+
+# **Celestial Classical Violin** / Rafael Krux
+
+![Foto del album: Celestial Classical Violin](https://i.scdn.co/image/ab67616d00001e02f3f1b60d737d97dfb359c14e)
+
+**Album:** Celestial Classical Violin
+
+📅 2025-03-14 23:12:08
+
+
+# **Labor Of Love** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-03-14 23:09:48
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-03-14 23:07:43
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-14 23:05:05
+
+
+# **Uprising** / Muse
+
+![Foto del album: The Resistance](https://i.scdn.co/image/ab67616d00001e02b6d4566db0d12894a1a3b7a2)
+
+**Album:** The Resistance
+
+📅 2025-03-14 16:00:18
+
+
 # **Supermassive Black Hole** / Muse
 
 ![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-03-14 12:29:19
-
-
-# **Let's Fun More!** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-14 12:25:04
-
-
-# **Úrsula Vuelve** / Camilo Sanabria
-
-![Foto del album: Cien años de soledad (Banda sonora de la serie de Netflix)](https://i.scdn.co/image/ab67616d00001e02f83a664f67dd705a5ef1105e)
-
-**Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
-
-📅 2025-03-14 12:22:49
-
-
-# **Classical Cello Solo** / Rafael Krux
-
-![Foto del album: Classical Cello Solo](https://i.scdn.co/image/ab67616d00001e021271efa35eee8b05d2612d86)
-
-**Album:** Classical Cello Solo
-
-📅 2025-03-14 12:19:50
-
-
-# **Idea 25 - Piano Version** / Gibran Alcocer|Andrea Vanzo
-
-![Foto del album: Idea 25 (Remixes)](https://i.scdn.co/image/ab67616d00001e02be9ad3c23006908754f8af6e)
-
-**Album:** Idea 25 (Remixes)
-
-📅 2025-03-14 12:18:06
-
-
-# **A Found Memory** / Marshall Watson Music
-
-![Foto del album: Soft Murmurs](https://i.scdn.co/image/ab67616d00001e02f76d525c089bb5d3d5bb3aee)
-
-**Album:** Soft Murmurs
-
-📅 2025-03-14 12:14:59
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-03-14 12:11:43
-
-
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-03-14 12:10:21
