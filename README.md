@@ -13,76 +13,130 @@ Nombre: **lotario1999**
 
 
 
-# **Disappearing One** / Chris Cornell
+# **Supermassive Black Hole** / Muse
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
 
-**Album:** Euphoria Morning
+**Album:** Black Holes and Revelations
 
-📅 2025-03-14 08:19:09
+📅 2025-03-14 15:42:55
 
 
-# **Mad About You** / Hooverphonic
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-14 08:15:23
+📅 2025-03-14 14:05:24
 
 
-# **El Éxodo** / Camilo Sanabria
+# **Oh I Wept** / Free
 
-![Foto del album: Cien años de soledad (Banda sonora de la serie de Netflix)](https://i.scdn.co/image/ab67616d00001e02f83a664f67dd705a5ef1105e)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
+**Album:** Fire And Water
 
-📅 2025-03-13 17:16:44
+📅 2025-03-14 13:52:33
 
 
-# **Pool Walk** / Cristobal Tapia De Veer
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2025-03-14 13:48:05
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2025-03-13 17:06:32
+📅 2025-03-14 13:44:20
 
 
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+# **Walking in My Shoes** / Depeche Mode
 
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-13 17:05:16
-
-
-# **Mariposas** / Camilo Sanabria
-
-![Foto del album: Cien años de soledad (Banda sonora de la serie de Netflix)](https://i.scdn.co/image/ab67616d00001e02f83a664f67dd705a5ef1105e)
-
-**Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
-
-📅 2025-03-13 16:58:59
+📅 2025-03-14 13:43:00
 
 
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+# **Weak And Powerless** / A Perfect Circle
 
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+**Album:** Thirteenth Step
 
-📅 2025-03-13 16:56:41
+📅 2025-03-14 13:37:34
 
 
-# **Human** / Laura Masotto
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: The Spirit of Things](https://i.scdn.co/image/ab67616d00001e02692fc5fc8fd8dcad66b837e2)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Spirit of Things
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-03-13 15:25:12
+📅 2025-03-14 13:34:18
+
+
+# **Waves** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-03-14 13:28:27
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2025-03-14 13:24:25
+
+
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-14 13:16:00
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-03-14 12:46:13
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-03-14 12:29:19
+
+
+# **Let's Fun More!** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-14 12:25:04
 
 
 # **Úrsula Vuelve** / Camilo Sanabria
@@ -91,103 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
 
-📅 2025-03-13 15:14:16
+📅 2025-03-14 12:22:49
 
 
-# **Still Vibrating** / Theodore Shapiro
+# **Classical Cello Solo** / Rafael Krux
+
+![Foto del album: Classical Cello Solo](https://i.scdn.co/image/ab67616d00001e021271efa35eee8b05d2612d86)
+
+**Album:** Classical Cello Solo
+
+📅 2025-03-14 12:19:50
+
+
+# **Idea 25 - Piano Version** / Gibran Alcocer|Andrea Vanzo
+
+![Foto del album: Idea 25 (Remixes)](https://i.scdn.co/image/ab67616d00001e02be9ad3c23006908754f8af6e)
+
+**Album:** Idea 25 (Remixes)
+
+📅 2025-03-14 12:18:06
+
+
+# **A Found Memory** / Marshall Watson Music
+
+![Foto del album: Soft Murmurs](https://i.scdn.co/image/ab67616d00001e02f76d525c089bb5d3d5bb3aee)
+
+**Album:** Soft Murmurs
+
+📅 2025-03-14 12:14:59
+
+
+# **Main Titles** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-03-13 15:11:18
+📅 2025-03-14 12:11:43
 
 
-# **ALASKA 1** / s8jfou
-
-![Foto del album: ALASKA](https://i.scdn.co/image/ab67616d00001e023133f79814ad94113a6aedec)
-
-**Album:** ALASKA
-
-📅 2025-03-13 15:09:28
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
 **Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2025-03-13 15:07:13
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-03-13 15:04:35
-
-
-# **勇者** / YOASOBI
-
-![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
-
-**Album:** THE BOOK 3
-
-📅 2025-03-13 14:57:27
-
-
-# **Anytime Anywhere** / milet
-
-![Foto del album: Anytime Anywhere](https://i.scdn.co/image/ab67616d00001e02226d5c168f602298610fb028)
-
-**Album:** Anytime Anywhere
-
-📅 2025-03-13 11:02:03
-
-
-# **勇者** / YOASOBI
-
-![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
-
-**Album:** THE BOOK 3
-
-📅 2025-03-13 10:49:36
-
-
-# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
-
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
-
-📅 2025-03-13 10:46:22
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-13 10:44:06
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-03-13 10:32:49
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-03-13 10:22:33
+📅 2025-03-14 12:10:21
