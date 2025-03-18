@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Anytime Anywhere** / milet
+
+![Foto del album: Anytime Anywhere](https://i.scdn.co/image/ab67616d00001e02226d5c168f602298610fb028)
+
+**Album:** Anytime Anywhere
+
+📅 2025-03-18 08:46:31
+
+
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-18 08:42:40
+
+
+# **You Give Me Something** / Jamiroquai
+
+![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
+
+**Album:** A Funk Odyssey
+
+📅 2025-03-17 14:16:12
+
+
 # **Rejuvenated** / Cristobal Tapia De Veer
 
 ![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-03-16 13:13:48
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-03-16 13:08:41
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-03-16 13:04:00
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-16 12:58:51
