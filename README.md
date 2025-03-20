@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2025-03-19 16:25:15
+
+
+# **Spoonful** / Howlin' Wolf
+
+![Foto del album: Howlin' Wolf](https://i.scdn.co/image/ab67616d00001e0201dd571c86f5e43f8d5d27bc)
+
+**Album:** Howlin' Wolf
+
+📅 2025-03-19 15:32:18
+
+
+# **Smokestack Lightnin'** / Howlin' Wolf
+
+![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
+
+**Album:** Moanin' In The Moonlight
+
+📅 2025-03-19 15:20:28
+
+
+# **Epic** / Faith No More
+
+![Foto del album: The Real Thing](https://i.scdn.co/image/ab67616d00001e02e081ef6de656ee714788ea0d)
+
+**Album:** The Real Thing
+
+📅 2025-03-19 13:12:43
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2025-03-19 13:02:11
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-03-19 12:57:38
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+
+**Album:** Twilight
+
+📅 2025-03-19 12:53:32
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-03-19 12:49:41
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-03-19 12:45:57
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-19 12:41:22
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-03-19 12:36:15
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-19 12:31:04
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-19 12:26:03
+
+
 # **Glory Box** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-03-18 10:52:36
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2025-03-18 10:47:58
-
-
-# **I Get Overwhelmed** / Dark Rooms
-
-![Foto del album: I Get Overwhelmed](https://i.scdn.co/image/ab67616d00001e023eea2fd4aa4287e42d80144e)
-
-**Album:** I Get Overwhelmed
-
-📅 2025-03-18 10:44:07
-
-
-# **Everybody Cares, Everybody Understands** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-03-18 10:39:20
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-03-18 10:34:55
-
-
-# **Down By The Water** / PJ Harvey
-
-![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
-
-**Album:** To Bring You My Love
-
-📅 2025-03-18 10:18:59
-
-
-# **My Body Is a Cage** / Arcade Fire
-
-![Foto del album: Neon Bible](https://i.scdn.co/image/ab67616d00001e029e0e42aa866e5fa167b19608)
-
-**Album:** Neon Bible
-
-📅 2025-03-18 10:02:55
-
-
-# **A Question Mark** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-03-18 09:58:07
-
-
-# **Rock the Casbah - Remastered** / The Clash
-
-![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
-
-**Album:** Combat Rock (Remastered)
-
-📅 2025-03-18 09:55:25
-
-
-# **Burn the Witch** / Radiohead
-
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
-
-**Album:** A Moon Shaped Pool
-
-📅 2025-03-18 09:51:42
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-03-18 09:39:39
-
-
-# **The Suburbs** / Arcade Fire
-
-![Foto del album: The Suburbs (Deluxe)](https://i.scdn.co/image/ab67616d00001e021d6b4b0418200b6324734062)
-
-**Album:** The Suburbs (Deluxe)
-
-📅 2025-03-18 09:29:21
-
-
-# **bliss** / milet
-
-![Foto del album: Anytime Anywhere](https://i.scdn.co/image/ab67616d00001e02b2f3bd7c5cdf59dc0c3109ff)
-
-**Album:** Anytime Anywhere
-
-📅 2025-03-18 08:57:09
-
-
-# **Anytime Anywhere** / milet
-
-![Foto del album: Anytime Anywhere](https://i.scdn.co/image/ab67616d00001e02226d5c168f602298610fb028)
-
-**Album:** Anytime Anywhere
-
-📅 2025-03-18 08:46:31
