@@ -13,121 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Moonchild** / Chris Cornell
+# **Unto the Breach** / Clutch
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** Euphoria Morning
+**Album:** Earth Rocker
 
-📅 2025-03-20 09:00:46
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-20 08:56:42
+📅 2025-03-20 19:07:08
 
 
-# **Disappearing One** / Chris Cornell
+# **D.C. Sound Attack!** / Clutch
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** Euphoria Morning
+**Album:** Earth Rocker
 
-📅 2025-03-20 08:52:15
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-20 08:46:08
+📅 2025-03-20 19:03:38
 
 
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-03-20 08:41:01
-
-
-# **Out Of Sight** / Hooverphonic
+# **Waves** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-20 08:36:32
+📅 2025-03-20 17:33:43
 
 
-# **Glory Box** / Portishead
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Dummy
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-20 08:32:36
-
-
-# **Romance** / Warsaw Philharmonic Orchestra
-
-![Foto del album: The Vision of Escaflowne (Original Motion Picture Soundtrack 1)](https://i.scdn.co/image/ab67616d00001e021b0bb3aab6968e1fcb5c1cc2)
-
-**Album:** The Vision of Escaflowne (Original Motion Picture Soundtrack 1)
-
-📅 2025-03-19 16:55:30
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2025-03-19 16:25:15
-
-
-# **Spoonful** / Howlin' Wolf
-
-![Foto del album: Howlin' Wolf](https://i.scdn.co/image/ab67616d00001e0201dd571c86f5e43f8d5d27bc)
-
-**Album:** Howlin' Wolf
-
-📅 2025-03-19 15:32:18
-
-
-# **Smokestack Lightnin'** / Howlin' Wolf
-
-![Foto del album: Moanin' In The Moonlight](https://i.scdn.co/image/ab67616d00001e026181b1ed45a906d5b2c89af3)
-
-**Album:** Moanin' In The Moonlight
-
-📅 2025-03-19 15:20:28
-
-
-# **Epic** / Faith No More
-
-![Foto del album: The Real Thing](https://i.scdn.co/image/ab67616d00001e02e081ef6de656ee714788ea0d)
-
-**Album:** The Real Thing
-
-📅 2025-03-19 13:12:43
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2025-03-19 13:02:11
+📅 2025-03-20 17:22:59
 
 
 # **The Outsider** / A Perfect Circle
@@ -136,52 +55,79 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2025-03-19 12:57:38
+📅 2025-03-20 17:18:22
 
 
-# **Scoring** / bôa
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Twilight
+**Album:** The Magnificent Tree
 
-📅 2025-03-19 12:53:32
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-03-19 12:49:41
+📅 2025-03-20 17:14:16
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Not Like Us
+**Album:** The Magnificent Tree
 
-📅 2025-03-19 12:45:57
+📅 2025-03-20 17:10:20
 
 
-# **Follow My Way** / Chris Cornell
+# **When I'm Down** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2025-03-19 12:41:22
+📅 2025-03-20 11:55:13
 
 
-# **Losing My Religion** / R.E.M.
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-19 12:36:15
+📅 2025-03-20 11:44:41
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2025-03-20 11:40:05
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2025-03-20 11:35:44
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-20 11:18:51
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-20 11:14:49
 
 
 # **Disappearing One** / Chris Cornell
@@ -190,4 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-19 12:31:04
+📅 2025-03-20 11:10:22
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-03-20 11:06:36
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-03-20 10:54:10
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-03-20 10:50:14
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-20 10:45:05
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-20 10:41:03
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-03-20 10:36:36
