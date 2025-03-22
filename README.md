@@ -13,40 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **Gone Cold** / Clutch
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Earth Rocker
+**Album:** Synkronized
 
-📅 2025-03-20 19:38:43
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-03-20 19:07:08
+📅 2025-03-21 21:40:18
 
 
-# **D.C. Sound Attack!** / Clutch
+# **Condemnation** / Depeche Mode
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Earth Rocker
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-20 19:03:38
+📅 2025-03-21 21:35:22
 
 
-# **Waves** / Hooverphonic
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2025-03-21 21:31:54
+
+
+# **Canned Heat - Remastered 2006** / Jamiroquai
+
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+
+**Album:** Driving Songs
+
+📅 2025-03-21 21:28:01
+
+
+# **I Love You** / Woodkid
+
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+
+**Album:** The Golden Age
+
+📅 2025-03-21 21:24:13
+
+
+# **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-20 17:33:43
+📅 2025-03-21 21:20:16
+
+
+# **勇者** / YOASOBI
+
+![Foto del album: THE BOOK 3](https://i.scdn.co/image/ab67616d00001e02f3527c2e1ffc2e99bb6a072e)
+
+**Album:** THE BOOK 3
+
+📅 2025-03-21 14:41:24
 
 
 # **I Feel You** / Depeche Mode
@@ -55,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-20 17:22:59
+📅 2025-03-21 12:33:12
 
 
 # **The Outsider** / A Perfect Circle
@@ -64,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Thirteenth Step
 
-📅 2025-03-20 17:18:22
+📅 2025-03-21 12:23:06
 
 
 # **Out Of Sight** / Hooverphonic
@@ -73,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-20 17:14:16
+📅 2025-03-21 12:19:00
 
 
 # **Mad About You** / Hooverphonic
@@ -82,7 +109,16 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-20 17:10:20
+📅 2025-03-21 12:15:03
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-21 12:10:33
 
 
 # **When I'm Down** / Chris Cornell
@@ -91,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-20 11:55:13
+📅 2025-03-21 10:46:20
 
 
 # **I Feel You** / Depeche Mode
@@ -100,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-20 11:44:41
+📅 2025-03-21 10:36:08
 
 
 # **Your Woman** / White Town
@@ -109,52 +145,16 @@ Nombre: **lotario1999**
 
 **Album:** Women in Technology
 
-📅 2025-03-20 11:40:05
+📅 2025-03-21 10:31:32
 
 
-# **Cochise** / Audioslave
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Audioslave
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-03-20 11:35:44
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-20 11:18:51
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-20 11:14:49
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-20 11:10:22
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-03-20 11:06:36
+📅 2025-03-21 10:26:55
 
 
 # **Out Of Sight** / Hooverphonic
@@ -163,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-20 10:54:10
+📅 2025-03-21 10:22:26
 
 
 # **Glory Box** / Portishead
@@ -172,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2025-03-20 10:50:14
+📅 2025-03-21 10:18:30
 
 
 # **Moonchild** / Chris Cornell
@@ -181,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-20 10:45:05
+📅 2025-03-21 10:13:21
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -190,4 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-20 10:41:03
+📅 2025-03-21 10:09:19
