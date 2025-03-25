@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-03-25 09:17:40
+
+
+# **Rëd Blue** / MANARËM
+
+![Foto del album: Rëd Blue](https://i.scdn.co/image/ab67616d00001e0244ef8ddca82d1ea38b64afe4)
+
+**Album:** Rëd Blue
+
+📅 2025-03-25 09:15:02
+
+
+# **The Substance** / Raffertie
+
+![Foto del album: The Substance (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e02348086e05a7f839b9ea4c747)
+
+**Album:** The Substance (Original Motion Picture Score)
+
+📅 2025-03-25 09:11:16
+
+
+# **OXYGENE** / Flying Lotus
+
+![Foto del album: ASH (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e1c568dd6b7b7f2626811718)
+
+**Album:** ASH (Original Motion Picture Soundtrack)
+
+📅 2025-03-25 09:08:45
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-03-25 09:07:11
+
+
+# **Mariposas** / Camilo Sanabria
+
+![Foto del album: Cien años de soledad (Banda sonora de la serie de Netflix)](https://i.scdn.co/image/ab67616d00001e02f83a664f67dd705a5ef1105e)
+
+**Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
+
+📅 2025-03-25 09:05:49
+
+
+# **Let's Fun More!** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-25 09:03:32
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-25 09:01:16
+
+
+# **Breakfast at the Inn** / アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-03-25 00:41:12
+
+
+# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-03-25 00:29:58
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-03-24 18:44:36
+
+
 # **Avalanches** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Shocking Miss Emerald (The Remixes)
 
 📅 2025-03-24 17:57:32
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2025-03-24 17:53:54
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-03-24 17:50:42
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2025-03-24 17:45:27
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2025-03-24 17:40:48
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-03-24 16:56:35
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2025-03-24 16:44:29
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-03-24 16:40:26
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2025-03-24 16:35:51
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2025-03-24 16:30:32
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
-
-**Album:** Return To Cookie Mountain
-
-📅 2025-03-24 16:26:47
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-03-24 16:21:18
