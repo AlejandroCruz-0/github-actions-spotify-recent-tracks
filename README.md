@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **The Face** / Clutch
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Earth Rocker
 
-📅 2025-03-25 09:17:40
+📅 2025-03-25 18:26:20
 
 
-# **Rëd Blue** / MANARËM
+# **Gone Cold** / Clutch
 
-![Foto del album: Rëd Blue](https://i.scdn.co/image/ab67616d00001e0244ef8ddca82d1ea38b64afe4)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** Rëd Blue
+**Album:** Earth Rocker
 
-📅 2025-03-25 09:15:02
+📅 2025-03-25 18:21:58
 
 
-# **The Substance** / Raffertie
+# **Unto the Breach** / Clutch
 
-![Foto del album: The Substance (Original Motion Picture Score)](https://i.scdn.co/image/ab67616d00001e02348086e05a7f839b9ea4c747)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** The Substance (Original Motion Picture Score)
+**Album:** Earth Rocker
 
-📅 2025-03-25 09:11:16
+📅 2025-03-25 18:17:37
 
 
-# **OXYGENE** / Flying Lotus
+# **Bound For The Floor** / Local H
 
-![Foto del album: ASH (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e1c568dd6b7b7f2626811718)
+![Foto del album: As Good As Dead](https://i.scdn.co/image/ab67616d00001e02f5504d1dd44f61d6e8fd8625)
 
-**Album:** ASH (Original Motion Picture Soundtrack)
+**Album:** As Good As Dead
 
-📅 2025-03-25 09:08:45
+📅 2025-03-25 15:13:12
 
 
-# **Main Titles** / Theodore Shapiro
+# **High and Dry** / Radiohead
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** The Bends
 
-📅 2025-03-25 09:07:11
+📅 2025-03-25 15:00:41
 
 
-# **Mariposas** / Camilo Sanabria
+# **In the Meantime** / Spacehog
 
-![Foto del album: Cien años de soledad (Banda sonora de la serie de Netflix)](https://i.scdn.co/image/ab67616d00001e02f83a664f67dd705a5ef1105e)
+![Foto del album: Resident Alien](https://i.scdn.co/image/ab67616d00001e029511e3a2fc113eae0dd111dd)
 
-**Album:** Cien años de soledad (Banda sonora de la serie de Netflix)
+**Album:** Resident Alien
 
-📅 2025-03-25 09:05:49
+📅 2025-03-25 13:20:50
 
 
-# **Let's Fun More!** / Cristobal Tapia De Veer
+# **Machinehead - Remastered** / Bush
 
-![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+![Foto del album: Sixteen Stone (Remastered)](https://i.scdn.co/image/ab67616d00001e021581237e4d580feafaed6bc0)
 
-**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+**Album:** Sixteen Stone (Remastered)
 
-📅 2025-03-25 09:03:32
+📅 2025-03-25 13:10:10
 
 
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+# **Mrs. Robinson - 2022 Remastered Edition** / The Lemonheads
 
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+![Foto del album: It's a Shame About Ray (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0245251c9ca2c4296acf0e8980)
 
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+**Album:** It's a Shame About Ray (Expanded Edition)
 
-📅 2025-03-25 09:01:16
+📅 2025-03-25 13:05:54
 
 
-# **Breakfast at the Inn** / アトラスサウンドチーム|ATLUS GAME MUSIC
+# **Say It Ain't So - Original Mix** / Weezer
 
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
+![Foto del album: Weezer](https://i.scdn.co/image/ab67616d00001e02345536847e60f622ee0eae96)
 
-**Album:** Metaphor: ReFantazio Special Soundtrack
+**Album:** Weezer
 
-📅 2025-03-25 00:41:12
+📅 2025-03-25 13:02:09
 
 
-# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+# **Only Happy When It Rains - 2015 Remaster** / Garbage
 
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
+![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0215a5f121a2b5b459643231c3)
 
-**Album:** Metaphor: ReFantazio Special Soundtrack
+**Album:** Garbage (20th Anniversary Super Deluxe Edition)
 
-📅 2025-03-25 00:29:58
+📅 2025-03-25 12:57:49
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Fell On Black Days** / Soundgarden
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Superunknown (20th Anniversary)](https://i.scdn.co/image/ab67616d00001e025124ed45a94033830b320500)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Superunknown (20th Anniversary)
 
-📅 2025-03-24 18:44:36
+📅 2025-03-25 12:53:52
 
 
-# **Avalanches** / Caravan Palace
+# **Mrs. Robinson - 2022 Remastered Edition** / The Lemonheads
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: It's a Shame About Ray (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0245251c9ca2c4296acf0e8980)
 
-**Album:** Gangbusters Melody Club
+**Album:** It's a Shame About Ray (Expanded Edition)
 
-📅 2025-03-24 18:29:48
+📅 2025-03-25 11:35:01
 
 
-# **I Love You** / Woodkid
+# **Say It Ain't So - Original Mix** / Weezer
 
-![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
+![Foto del album: Weezer](https://i.scdn.co/image/ab67616d00001e02345536847e60f622ee0eae96)
 
-**Album:** The Golden Age
+**Album:** Weezer
 
-📅 2025-03-24 18:25:38
+📅 2025-03-25 11:31:17
 
 
-# **This Love** / Maroon 5
+# **Only Happy When It Rains - 2015 Remaster** / Garbage
 
-![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
+![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0215a5f121a2b5b459643231c3)
 
-**Album:** Songs About Jane: 10th Anniversary Edition
+**Album:** Garbage (20th Anniversary Super Deluxe Edition)
 
-📅 2025-03-24 18:21:48
+📅 2025-03-25 11:26:57
 
 
-# **I'm Good Luv, Enjoy.** / Aaron May
+# **Fell On Black Days** / Soundgarden
 
-![Foto del album: CHASE](https://i.scdn.co/image/ab67616d00001e0253c7a0c956286b6a39185af4)
+![Foto del album: Superunknown (20th Anniversary)](https://i.scdn.co/image/ab67616d00001e025124ed45a94033830b320500)
 
-**Album:** CHASE
+**Album:** Superunknown (20th Anniversary)
 
-📅 2025-03-24 18:18:21
+📅 2025-03-25 11:23:00
 
 
-# **Mirrors** / Caravan Palace
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Gangbusters Melody Club
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-03-24 18:16:06
+📅 2025-03-25 11:12:26
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **Waves** / Hooverphonic
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Synkronized
+**Album:** The Magnificent Tree
 
-📅 2025-03-24 18:12:24
+📅 2025-03-25 10:57:59
 
 
-# **Flutter Girl** / Chris Cornell
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Euphoria Morning
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-24 18:07:37
+📅 2025-03-25 10:53:57
 
 
-# **Criminal** / Fiona Apple
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Tidal
+**Album:** Thirteenth Step
 
-📅 2025-03-24 18:03:14
+📅 2025-03-25 10:49:20
 
 
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** The Magnificent Tree
 
-📅 2025-03-24 17:57:32
+📅 2025-03-25 10:45:14
