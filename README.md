@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Cold Shoulder** / Adele
+# **Something Approaches** / Rhys Lindsay
 
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
+![Foto del album: Exo One (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02cec8891992c080d69eae0fba)
 
-**Album:** 19
+**Album:** Exo One (Original Game Soundtrack)
 
-📅 2025-03-26 09:14:11
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-03-26 09:11:00
+📅 2025-03-26 17:36:06
 
 
-# **Disappearing One** / Chris Cornell
+# **Scavengers** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2025-03-26 17:11:34
+
+
+# **Vesta** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2025-03-26 17:09:32
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-26 17:06:23
+
+
+# **Steel Rain** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2025-03-26 09:06:35
+📅 2025-03-26 13:20:26
 
 
-# **Mad About You** / Hooverphonic
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2025-03-26 09:02:50
+📅 2025-03-26 13:09:09
 
 
-# **Book, Saddle, & Go** / Clutch
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Earth Rocker
+**Album:** Thirteenth Step
 
-📅 2025-03-25 18:36:54
+📅 2025-03-26 12:44:06
 
 
-# **The Face** / Clutch
+# **Scoring** / bôa
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
 
-**Album:** Earth Rocker
+**Album:** Twilight
 
-📅 2025-03-25 18:26:20
+📅 2025-03-26 12:29:59
 
 
-# **Gone Cold** / Clutch
+# **Not the Doctor - 2015 Remaster** / Alanis Morissette
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
 
-**Album:** Earth Rocker
+**Album:** Jagged Little Pill (2015 Remaster)
 
-📅 2025-03-25 18:21:58
+📅 2025-03-26 12:25:24
 
 
-# **Unto the Breach** / Clutch
+# **Judith** / A Perfect Circle
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
 
-**Album:** Earth Rocker
+**Album:** Mer De Noms
 
-📅 2025-03-25 18:17:37
+📅 2025-03-26 12:20:19
 
 
-# **Bound For The Floor** / Local H
+# **Show Me How to Live** / Audioslave
 
-![Foto del album: As Good As Dead](https://i.scdn.co/image/ab67616d00001e02f5504d1dd44f61d6e8fd8625)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** As Good As Dead
+**Album:** Audioslave
 
-📅 2025-03-25 15:13:12
+📅 2025-03-26 12:16:11
 
 
-# **High and Dry** / Radiohead
+# **Duvet** / bôa
 
-![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
 
-**Album:** The Bends
+**Album:** Twilight
 
-📅 2025-03-25 15:00:41
+📅 2025-03-26 12:11:33
 
 
-# **In the Meantime** / Spacehog
+# **The World Is Not Enough (2022 Remaster)** / Garbage
 
-![Foto del album: Resident Alien](https://i.scdn.co/image/ab67616d00001e029511e3a2fc113eae0dd111dd)
+![Foto del album: Anthology](https://i.scdn.co/image/ab67616d00001e0217aee413e8b2a7288c31286f)
 
-**Album:** Resident Alien
+**Album:** Anthology
 
-📅 2025-03-25 13:20:50
+📅 2025-03-26 12:08:09
 
 
-# **Machinehead - Remastered** / Bush
+# **Far From Any Road** / The Handsome Family
 
-![Foto del album: Sixteen Stone (Remastered)](https://i.scdn.co/image/ab67616d00001e021581237e4d580feafaed6bc0)
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
 
-**Album:** Sixteen Stone (Remastered)
+**Album:** Singing Bones
 
-📅 2025-03-25 13:10:10
+📅 2025-03-26 12:04:10
 
 
-# **Mrs. Robinson - 2022 Remastered Edition** / The Lemonheads
+# **Miracle** / Caravan Palace
 
-![Foto del album: It's a Shame About Ray (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0245251c9ca2c4296acf0e8980)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** It's a Shame About Ray (Expanded Edition)
+**Album:** Chronologic
 
-📅 2025-03-25 13:05:54
+📅 2025-03-26 12:01:23
 
 
-# **Say It Ain't So - Original Mix** / Weezer
+# **Forget Myself** / Elbow
 
-![Foto del album: Weezer](https://i.scdn.co/image/ab67616d00001e02345536847e60f622ee0eae96)
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
-**Album:** Weezer
+**Album:** Leaders Of The Free World
 
-📅 2025-03-25 13:02:09
+📅 2025-03-26 11:56:03
 
 
-# **Only Happy When It Rains - 2015 Remaster** / Garbage
+# **Sam Plays, Sam Builds** / Nicolas Snyder
 
-![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0215a5f121a2b5b459643231c3)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2025-03-25 12:57:49
+📅 2025-03-26 11:45:11
 
 
-# **Fell On Black Days** / Soundgarden
+# **Routine Maintenance** / Nicolas Snyder
 
-![Foto del album: Superunknown (20th Anniversary)](https://i.scdn.co/image/ab67616d00001e025124ed45a94033830b320500)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Superunknown (20th Anniversary)
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2025-03-25 12:53:52
+📅 2025-03-26 11:34:08
 
 
-# **Mrs. Robinson - 2022 Remastered Edition** / The Lemonheads
+# **Levi's Dream** / Nicolas Snyder
 
-![Foto del album: It's a Shame About Ray (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0245251c9ca2c4296acf0e8980)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** It's a Shame About Ray (Expanded Edition)
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2025-03-25 11:35:01
+📅 2025-03-26 11:32:11
 
 
-# **Say It Ain't So - Original Mix** / Weezer
+# **Kamen's Folly** / Nicolas Snyder
 
-![Foto del album: Weezer](https://i.scdn.co/image/ab67616d00001e02345536847e60f622ee0eae96)
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
 
-**Album:** Weezer
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
 
-📅 2025-03-25 11:31:17
-
-
-# **Only Happy When It Rains - 2015 Remaster** / Garbage
-
-![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0215a5f121a2b5b459643231c3)
-
-**Album:** Garbage (20th Anniversary Super Deluxe Edition)
-
-📅 2025-03-25 11:26:57
-
-
-# **Fell On Black Days** / Soundgarden
-
-![Foto del album: Superunknown (20th Anniversary)](https://i.scdn.co/image/ab67616d00001e025124ed45a94033830b320500)
-
-**Album:** Superunknown (20th Anniversary)
-
-📅 2025-03-25 11:23:00
+📅 2025-03-26 11:30:37
