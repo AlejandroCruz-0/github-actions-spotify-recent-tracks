@@ -13,139 +13,112 @@ Nombre: **lotario1999**
 
 
 
-# **Scoring** / bôa
+# **Cold Shoulder** / Adele
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
 
-**Album:** Twilight
+**Album:** 19
 
-📅 2025-03-27 09:18:45
+📅 2025-03-27 17:48:10
 
 
-# **Special (2018 Remaster)** / Garbage
+# **Judas** / Depeche Mode
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-27 09:14:55
+📅 2025-03-27 17:44:57
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Gasoline** / Audioslave
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Not Like Us
+**Album:** Audioslave
 
-📅 2025-03-27 09:11:11
+📅 2025-03-27 17:39:43
 
 
-# **Follow My Way** / Chris Cornell
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** Euphoria Morning
+**Album:** White Pony
 
-📅 2025-03-27 09:06:36
+📅 2025-03-27 17:35:03
 
 
-# **Losing My Religion** / R.E.M.
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Gran Turismo (Remastered)
 
-📅 2025-03-27 09:01:29
+📅 2025-03-27 16:52:20
 
 
-# **Out Of Sight** / Hooverphonic
+# **Come As You Are** / Nirvana
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** The Magnificent Tree
+**Album:** Nevermind (Remastered)
 
-📅 2025-03-27 08:56:59
+📅 2025-03-27 16:48:39
 
 
-# **Glory Box** / Portishead
+# **A Face In The Crowd** / Tom Petty
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Dummy
+**Album:** Full Moon Fever
 
-📅 2025-03-27 08:53:04
+📅 2025-03-27 16:41:45
 
 
-# **Moonchild** / Chris Cornell
+# **Congregation** / Low
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Euphoria Morning
+**Album:** Ones and Sixes
 
-📅 2025-03-27 08:47:54
+📅 2025-03-27 16:29:21
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
 
-**Album:** Euphoria Morning
+**Album:** With Orchestra Live
 
-📅 2025-03-27 08:43:52
+📅 2025-03-27 16:25:29
 
 
-# **Disappearing One** / Chris Cornell
+# **Good Souls** / Starsailor
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** Euphoria Morning
+**Album:** Love Is Here
 
-📅 2025-03-27 08:39:25
+📅 2025-03-27 16:21:29
 
 
-# **Mad About You** / Hooverphonic
+# **81 Special** / Caravan Palace
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** The Magnificent Tree
+**Album:** Gangbusters Melody Club
 
-📅 2025-03-27 08:35:39
+📅 2025-03-27 16:16:35
 
 
-# **Something Approaches** / Rhys Lindsay
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
 
-![Foto del album: Exo One (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02cec8891992c080d69eae0fba)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Exo One (Original Game Soundtrack)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-03-26 17:36:06
-
-
-# **Scavengers** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2025-03-26 17:11:34
-
-
-# **Vesta** / Nicolas Snyder
-
-![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
-
-**Album:** Scavengers Reign (Original Max Series Soundtrack)
-
-📅 2025-03-26 17:09:32
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2025-03-26 17:06:23
+📅 2025-03-27 13:25:04
 
 
 # **Steel Rain** / Chris Cornell
@@ -154,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-26 13:20:26
+📅 2025-03-27 12:44:23
 
 
 # **Holy Ghost** / Bent Knee
@@ -163,31 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-03-26 13:09:09
+📅 2025-03-27 12:25:12
 
 
-# **The Outsider** / A Perfect Circle
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Thirteenth Step
+**Album:** El Camino
 
-📅 2025-03-26 12:44:06
+📅 2025-03-27 12:19:38
 
 
-# **Scoring** / bôa
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2025-03-27 12:15:57
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2025-03-27 12:10:32
+
+
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2025-03-27 12:06:40
+
+
+# **Deeply** / bôa
 
 ![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
 
 **Album:** Twilight
 
-📅 2025-03-26 12:29:59
+📅 2025-03-27 11:19:31
 
 
-# **Not the Doctor - 2015 Remaster** / Alanis Morissette
+# **Jeremy** / Pearl Jam
 
-![Foto del album: Jagged Little Pill (2015 Remaster)](https://i.scdn.co/image/ab67616d00001e02242e643ea07118ecf677a6ef)
+![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
 
-**Album:** Jagged Little Pill (2015 Remaster)
+**Album:** Ten
 
-📅 2025-03-26 12:25:24
+📅 2025-03-27 11:03:11
