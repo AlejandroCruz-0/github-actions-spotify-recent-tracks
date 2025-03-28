@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-03-28 00:05:02
+
+
+# **Happy Idiot** / TV On The Radio
+
+![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
+
+**Album:** Seeds
+
+📅 2025-03-28 00:00:50
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2025-03-27 23:57:50
+
+
 # **Cold Shoulder** / Adele
 
 ![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2025-03-27 12:10:32
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-03-27 12:06:40
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-03-27 11:19:31
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2025-03-27 11:03:11
