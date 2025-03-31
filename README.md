@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Melodies of Life (The Layers of Harmony)** / Emiko Shiratori
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2025-03-31 08:27:04
+
+
+# **Melodies Of Life ～Final Fantasy** / Emiko Shiratori
+
+![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+
+**Album:** FINAL FANTASY IX Original Soundtrack
+
+📅 2025-03-31 08:15:53
+
+
+# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-03-30 23:04:39
+
+
+# **Theme of Laura** / Akira Yamaoka
+
+![Foto del album: SILENT HILL2 （Original Soundtrack）](https://i.scdn.co/image/ab67616d00001e0230f7a8628bd1b67c0ee5c817)
+
+**Album:** SILENT HILL2 （Original Soundtrack）
+
+📅 2025-03-30 22:30:09
+
+
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-03-30 22:26:25
+
+
+# **Renaissance (Main Title Theme) - from "The White Lotus: Season 2"** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)](https://i.scdn.co/image/ab67616d00001e02ca42c7097e42e582f13671d1)
+
+**Album:** The White Lotus: Season 2 (Soundtrack from the HBO® Original Series)
+
+📅 2025-03-30 22:25:07
+
+
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-03-30 22:23:30
+
+
 # **ojos de tristeza** / Yaima Cat|HAKANNA
 
 ![Foto del album: LCQSQH](https://i.scdn.co/image/ab67616d00001e0292ffe4d25a36a6eb67494744)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** I Don’t Live Here Anymore
 
 📅 2025-03-28 10:46:17
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-03-28 00:05:02
-
-
-# **Happy Idiot** / TV On The Radio
-
-![Foto del album: Seeds](https://i.scdn.co/image/ab67616d00001e02d37d023cf0ddb1440f659ee3)
-
-**Album:** Seeds
-
-📅 2025-03-28 00:00:50
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2025-03-27 23:57:50
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2025-03-27 18:21:31
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e02da737a3e194e3b9a46c1a6a3)
-
-**Album:** 19
-
-📅 2025-03-27 17:48:10
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-03-27 17:44:57
-
-
-# **Gasoline** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2025-03-27 17:39:43
