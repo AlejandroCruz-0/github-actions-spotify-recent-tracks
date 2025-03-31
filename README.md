@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **ojos de tristeza** / Yaima Cat|HAKANNA
+
+![Foto del album: LCQSQH](https://i.scdn.co/image/ab67616d00001e0292ffe4d25a36a6eb67494744)
+
+**Album:** LCQSQH
+
+📅 2025-03-30 17:00:38
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-03-30 15:21:42
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+
+**Album:** Earth Rocker
+
+📅 2025-03-30 14:34:20
+
+
 # **Not Like Us** / Kendrick Lamar
 
 ![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Audioslave
 
 📅 2025-03-27 17:39:43
-
-
-# **Change (In the House of Flies)** / Deftones
-
-![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
-
-**Album:** White Pony
-
-📅 2025-03-27 17:35:03
-
-
-# **My Favourite Game** / The Cardigans
-
-![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
-
-**Album:** Gran Turismo (Remastered)
-
-📅 2025-03-27 16:52:20
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2025-03-27 16:48:39
