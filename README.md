@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Not Your Kind of People** / Garbage
+
+![Foto del album: Not Your Kind of People (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e0248a1a1a0e7692ce93ff0e95b)
+
+**Album:** Not Your Kind of People (Deluxe Version)
+
+📅 2025-03-31 16:57:05
+
+
 # **Two Weeks** / FKA twigs
 
 ![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** FINAL FANTASY IX Original Soundtrack
 
 📅 2025-03-31 08:27:04
-
-
-# **Melodies Of Life ～Final Fantasy** / Emiko Shiratori
-
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
-
-**Album:** FINAL FANTASY IX Original Soundtrack
-
-📅 2025-03-31 08:15:53
