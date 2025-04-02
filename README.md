@@ -13,58 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Not Your Kind of People** / Garbage
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Not Your Kind of People (Deluxe Version)](https://i.scdn.co/image/ab67616d00001e0248a1a1a0e7692ce93ff0e95b)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Not Your Kind of People (Deluxe Version)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-03-31 16:57:05
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2025-03-31 16:46:41
+📅 2025-04-01 15:54:20
 
 
-# **Let a Poor Man Be** / Clutch
+# **Your Woman** / White Town
 
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e027ea5188305bb8ba53cc626e1)
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
-**Album:** Strange Cousins From the West
+**Album:** Women in Technology
 
-📅 2025-03-31 16:42:33
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-03-31 16:26:08
+📅 2025-04-01 15:49:43
 
 
-# **Deeply** / bôa
+# **Fever** / The Black Keys
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Twilight
+**Album:** Turn Blue
 
-📅 2025-03-31 15:22:04
+📅 2025-04-01 15:11:53
 
 
-# **Jeremy** / Pearl Jam
+# **Sweet Euphoria** / Chris Cornell
 
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Ten
+**Album:** Euphoria Morning
 
-📅 2025-03-31 15:07:26
+📅 2025-04-01 14:51:35
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2025-04-01 14:48:27
 
 
 # **Heart-Shaped Box - 2023 Remaster** / Nirvana
@@ -73,7 +64,34 @@ Nombre: **lotario1999**
 
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2025-03-31 11:51:40
+📅 2025-04-01 14:45:01
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-04-01 12:18:34
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2025-04-01 11:51:32
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2025-04-01 11:47:50
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -82,16 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2025-03-31 11:09:05
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-03-31 10:50:24
+📅 2025-04-01 11:42:44
 
 
 # **Losing My Religion** / R.E.M.
@@ -100,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-03-31 10:45:17
+📅 2025-04-01 11:30:48
 
 
 # **Out Of Sight** / Hooverphonic
@@ -109,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-31 10:40:46
+📅 2025-04-01 11:26:19
 
 
 # **Glory Box** / Portishead
@@ -118,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2025-03-31 10:36:49
+📅 2025-04-01 11:22:23
 
 
 # **Moonchild** / Chris Cornell
@@ -127,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-31 10:31:40
+📅 2025-04-01 11:17:14
 
 
 # **Pillow Of Your Bones** / Chris Cornell
@@ -136,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-31 10:27:39
+📅 2025-04-01 11:13:12
 
 
 # **Disappearing One** / Chris Cornell
@@ -145,25 +154,16 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-03-31 10:23:11
+📅 2025-04-01 11:08:45
 
 
-# **Mad About You** / Hooverphonic
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** The Magnificent Tree
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-03-31 10:19:26
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-03-31 09:56:31
+📅 2025-04-01 11:00:21
 
 
 # **Out Of Sight** / Hooverphonic
@@ -172,22 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-03-31 09:30:08
+📅 2025-04-01 10:21:50
 
 
-# **Mad About You** / Hooverphonic
+# **Glory Box** / Portishead
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** The Magnificent Tree
+**Album:** Dummy
 
-📅 2025-03-31 09:26:12
+📅 2025-04-01 10:17:54
 
 
-# **Melodies of Life (The Layers of Harmony)** / Emiko Shiratori
+# **Moonchild** / Chris Cornell
 
-![Foto del album: FINAL FANTASY IX Original Soundtrack](https://i.scdn.co/image/ab67616d00001e0273fdbf8281a526452f942410)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** FINAL FANTASY IX Original Soundtrack
+**Album:** Euphoria Morning
 
-📅 2025-03-31 08:27:04
+📅 2025-04-01 10:12:45
