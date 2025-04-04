@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Walking in My Shoes** / Depeche Mode
+# **Book, Saddle, & Go** / Clutch
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Earth Rocker
 
-📅 2025-04-03 08:53:07
+📅 2025-04-03 19:10:54
 
 
-# **Goodbye Stranger - 2010 Remastered** / Supertramp
+# **The Face** / Clutch
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Earth Rocker
 
-📅 2025-04-03 08:46:41
+📅 2025-04-03 19:07:10
 
 
-# **Mad About You** / Hooverphonic
+# **Gone Cold** / Clutch
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** The Magnificent Tree
+**Album:** Earth Rocker
 
-📅 2025-04-03 08:40:50
+📅 2025-04-03 19:02:22
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Unto the Breach** / Clutch
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
 
-**Album:** Bueninvento
+**Album:** Earth Rocker
 
-📅 2025-04-02 16:41:39
+📅 2025-04-03 18:58:01
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
 
-📅 2025-04-02 16:28:15
+📅 2025-04-03 18:01:48
 
 
-# **Glory Box** / Portishead
+# **The Well** / Bent Knee
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Dummy
+**Album:** Land Animal
 
-📅 2025-04-02 16:23:20
+📅 2025-04-03 16:17:28
 
 
-# **Moonchild** / Chris Cornell
+# **Belly Side Up** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2025-04-02 16:18:18
+📅 2025-04-03 16:02:34
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Time Deer** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2025-04-02 16:14:16
+📅 2025-04-03 15:58:19
 
 
-# **Disappearing One** / Chris Cornell
+# **Land Animal** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2025-04-02 16:09:49
+📅 2025-04-03 15:54:00
 
 
-# **Cochise** / Audioslave
+# **These Hands** / Bent Knee
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Audioslave
+**Album:** Land Animal
 
-📅 2025-04-02 10:01:52
+📅 2025-04-03 15:48:46
 
 
-# **Fever** / The Black Keys
+# **Insides In** / Bent Knee
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Turn Blue
+**Album:** Land Animal
 
-📅 2025-04-02 09:35:34
+📅 2025-04-03 15:43:09
 
 
-# **Sweet Euphoria** / Chris Cornell
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2025-04-02 09:31:27
+📅 2025-04-03 15:36:40
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Hole** / Bent Knee
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Bueninvento
+**Album:** Land Animal
 
-📅 2025-04-02 09:28:19
+📅 2025-04-03 15:31:06
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Terror Bird** / Bent Knee
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Land Animal
 
-📅 2025-04-02 09:24:53
+📅 2025-04-03 15:27:44
 
 
-# **The Outsider** / A Perfect Circle
+# **Terror Bird** / Bent Knee
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Thirteenth Step
+**Album:** Land Animal
 
-📅 2025-04-02 09:20:12
+📅 2025-04-03 13:47:07
 
 
-# **Scoring** / bôa
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Twilight
+**Album:** Land Animal
 
-📅 2025-04-02 09:16:06
+📅 2025-04-03 12:23:25
 
 
-# **Special (2018 Remaster)** / Garbage
+# **Hole** / Bent Knee
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Land Animal
 
-📅 2025-04-02 09:12:15
+📅 2025-04-03 12:13:09
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Terror Bird** / Bent Knee
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Not Like Us
+**Album:** Land Animal
 
-📅 2025-04-02 09:08:31
+📅 2025-04-03 12:09:47
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **These Hands** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2025-04-02 09:02:55
+📅 2025-04-03 12:04:44
 
 
-# **Disappearing One** / Chris Cornell
+# **Insides In** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2025-04-02 09:02:41
+📅 2025-04-03 11:45:47
