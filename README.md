@@ -13,49 +13,40 @@ Nombre: **lotario1999**
 
 
 
-# **Book, Saddle, & Go** / Clutch
+# **Terror Bird** / Bent Knee
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Earth Rocker
+**Album:** Land Animal
 
-📅 2025-04-03 19:10:54
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-04-03 19:07:10
+📅 2025-04-04 19:02:03
 
 
-# **Gone Cold** / Clutch
+# **Human Convention** / The Reign of Kindo
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
+![Foto del album: Happy However After](https://i.scdn.co/image/ab67616d00001e0260118e9b0efdb6001155e187)
 
-**Album:** Earth Rocker
+**Album:** Happy However After
 
-📅 2025-04-03 19:02:22
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02f10523c15349ce3741c0b4fc)
-
-**Album:** Earth Rocker
-
-📅 2025-04-03 18:58:01
+📅 2025-04-04 14:50:37
 
 
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+# **In God We Trust** / Bent Knee
 
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+![Foto del album: Shiny Eyed Babies](https://i.scdn.co/image/ab67616d00001e02c201f2419e571857323854b1)
 
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+**Album:** Shiny Eyed Babies
 
-📅 2025-04-03 18:01:48
+📅 2025-04-04 14:38:57
+
+
+# **Boxes - .** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-04-04 14:33:35
 
 
 # **The Well** / Bent Knee
@@ -64,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 16:17:28
+📅 2025-04-04 14:27:35
 
 
 # **Belly Side Up** / Bent Knee
@@ -73,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 16:02:34
+📅 2025-04-04 14:22:04
 
 
 # **Time Deer** / Bent Knee
@@ -82,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:58:19
+📅 2025-04-04 14:17:48
 
 
 # **Land Animal** / Bent Knee
@@ -91,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:54:00
+📅 2025-04-04 14:13:29
 
 
 # **These Hands** / Bent Knee
@@ -100,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:48:46
+📅 2025-04-04 14:08:16
 
 
 # **Insides In** / Bent Knee
@@ -109,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:43:09
+📅 2025-04-04 14:02:39
 
 
 # **Holy Ghost** / Bent Knee
@@ -118,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:36:40
+📅 2025-04-04 13:56:05
 
 
 # **Hole** / Bent Knee
@@ -127,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:31:06
+📅 2025-04-04 13:50:31
 
 
 # **Terror Bird** / Bent Knee
@@ -136,58 +127,67 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2025-04-03 15:27:44
+📅 2025-04-04 13:47:09
 
 
-# **Terror Bird** / Bent Knee
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** Land Animal
+**Album:** The Mountain Will Fall
 
-📅 2025-04-03 13:47:07
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-04-03 12:23:25
+📅 2025-04-04 13:37:18
 
 
-# **Hole** / Bent Knee
+# **L'Odeur Animale** / Hooverphonic
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Land Animal
+**Album:** The Magnificent Tree
 
-📅 2025-04-03 12:13:09
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-04-03 12:09:47
+📅 2025-04-04 13:34:01
 
 
-# **These Hands** / Bent Knee
+# **Little L - Remastered 2006** / Jamiroquai
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Land Animal
+**Album:** Driving Songs
 
-📅 2025-04-03 12:04:44
+📅 2025-04-04 13:30:14
 
 
-# **Insides In** / Bent Knee
+# **Mercy in You** / Depeche Mode
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Land Animal
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-04-03 11:45:47
+📅 2025-04-04 13:26:14
+
+
+# **Pineapple Suite** / Cristobal Tapia De Veer
+
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+
+📅 2025-04-04 13:21:53
+
+
+# **Out of Touch** / Daryl Hall & John Oates
+
+![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
+
+**Album:** The Very Best of Daryl Hall / John Oates
+
+📅 2025-04-04 13:19:16
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+
+**Album:** Twilight
+
+📅 2025-04-04 13:15:05
