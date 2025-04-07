@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e027670bb5989d2a85e07129428)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2025-04-06 10:57:56
+
+
+# **All Mine** / Portishead
+
+![Foto del album: Portishead](https://i.scdn.co/image/ab67616d00001e02d48721bfc334d8a5d1faeffb)
+
+**Album:** Portishead
+
+📅 2025-04-05 20:02:58
+
+
 # **Glory Box** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Mountain Will Fall
 
 📅 2025-04-04 13:37:18
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-04-04 13:34:01
-
-
-# **Little L - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2025-04-04 13:30:14
