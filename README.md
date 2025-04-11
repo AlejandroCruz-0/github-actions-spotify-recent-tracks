@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Everything In Its Right Place** / Radiohead
+
+![Foto del album: Kid A](https://i.scdn.co/image/ab67616d00001e026c7112082b63beefffe40151)
+
+**Album:** Kid A
+
+📅 2025-04-10 22:22:42
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-04-10 22:08:12
+
+
+# **Never Coming Home** / Bent Knee
+
+![Foto del album: Twenty Pills Without Water](https://i.scdn.co/image/ab67616d00001e02077c25d3a77662180d7738fa)
+
+**Album:** Twenty Pills Without Water
+
+📅 2025-04-10 22:03:17
+
+
 # **Never Coming Home** / Bent Knee
 
 ![Foto del album: Twenty Pills Without Water](https://i.scdn.co/image/ab67616d00001e02077c25d3a77662180d7738fa)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-04-07 12:54:40
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-04-07 12:49:30
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-04-07 12:45:02
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-04-07 11:01:47
