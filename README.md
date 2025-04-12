@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+
+**Album:** The Future
+
+📅 2025-04-11 11:33:21
+
+
+# **Hole** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-04-11 10:16:59
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-04-11 10:13:37
+
+
+# **Let's Dance - 2002 Remaster** / David Bowie
+
+![Foto del album: Let's Dance](https://i.scdn.co/image/ab67616d00001e02d706bf752d9d31845b80d1e8)
+
+**Album:** Let's Dance
+
+📅 2025-04-11 10:07:55
+
+
 # **Everything In Its Right Place** / Radiohead
 
 ![Foto del album: Kid A](https://i.scdn.co/image/ab67616d00001e026c7112082b63beefffe40151)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2025-04-07 13:11:30
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-04-07 13:07:23
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-04-07 13:02:59
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-04-07 12:59:15
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-04-07 12:54:40
