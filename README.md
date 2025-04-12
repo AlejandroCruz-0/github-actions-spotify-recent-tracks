@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Who by Fire** / Leonard Cohen
+
+![Foto del album: New Skin For The Old Ceremony](https://i.scdn.co/image/ab67616d00001e02ba630a902f9d9de95572f29d)
+
+**Album:** New Skin For The Old Ceremony
+
+📅 2025-04-11 21:46:24
+
+
 # **Closing Time** / Leonard Cohen
 
 ![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** In Utero (30th Anniversary Super Deluxe)
 
 📅 2025-04-07 13:35:50
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-04-07 13:11:30
