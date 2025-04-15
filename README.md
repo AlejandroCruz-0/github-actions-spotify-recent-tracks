@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Who by Fire** / Leonard Cohen
+
+![Foto del album: New Skin For The Old Ceremony](https://i.scdn.co/image/ab67616d00001e02ba630a902f9d9de95572f29d)
+
+**Album:** New Skin For The Old Ceremony
+
+📅 2025-04-14 21:37:52
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-04-14 11:34:05
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twenty Pills Without Water
 
 📅 2025-04-08 09:56:20
-
-
-# **I Like It** / Bent Knee
-
-![Foto del album: Twenty Pills Without Water](https://i.scdn.co/image/ab67616d00001e02077c25d3a77662180d7738fa)
-
-**Album:** Twenty Pills Without Water
-
-📅 2025-04-08 09:52:52
-
-
-# **Forest** / Bent Knee
-
-![Foto del album: Twenty Pills Without Water](https://i.scdn.co/image/ab67616d00001e02077c25d3a77662180d7738fa)
-
-**Album:** Twenty Pills Without Water
-
-📅 2025-04-08 09:49:41
