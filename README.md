@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-04-23 00:30:31
+
+
 # **Disappearing One** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2025-04-20 11:37:15
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-04-20 11:33:40
