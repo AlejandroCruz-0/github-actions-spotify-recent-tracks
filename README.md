@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Follow My Way** / Chris Cornell
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2025-04-23 16:01:29
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2025-04-23 15:57:32
+
+
+# **Goodbye Stranger - 2010 Remastered** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2025-04-23 15:52:52
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2025-04-23 15:47:01
+
+
+# **When I'm Down** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2025-04-23 00:30:31
+📅 2025-04-23 15:42:53
 
 
-# **Disappearing One** / Chris Cornell
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2025-04-23 15:38:34
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2025-04-23 15:33:58
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2025-04-23 15:29:24
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2025-04-23 15:25:58
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2025-04-23 12:21:36
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2025-04-23 12:18:10
+
+
+# **Tokens** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-23 12:13:12
+
+
+# **Note To Self** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-23 12:11:25
+
+
+# **Hall Of Eagans** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-23 12:09:21
+
+
+# **Kimono Hallway** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-23 12:07:03
+
+
+# **Labor Of Love** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-23 12:02:36
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-23 12:00:32
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-04-23 11:59:12
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-04-23 10:26:35
+
+
+# **Moonchild** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2025-04-21 16:38:44
-
-
-# **Slide Show Part1** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2025-04-21 16:06:49
-
-
-# **The Oath** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2025-04-21 16:05:26
-
-
-# **Where I Belong** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2025-04-21 16:02:00
-
-
-# **ODEKA ke Chocobo** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2025-04-21 15:58:20
-
-
-# **Fisherman's Horizon** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2025-04-21 15:57:04
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-04-21 12:14:16
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2025-04-21 11:38:50
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-04-21 11:34:58
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-04-21 11:30:50
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
-
-**Album:** Dear Science
-
-📅 2025-04-21 11:26:28
-
-
-# **Don't Call My Name** / Skinshape
-
-![Foto del album: Life & Love](https://i.scdn.co/image/ab67616d00001e0255832e9fb94c657e6e94cb2d)
-
-**Album:** Life & Love
-
-📅 2025-04-20 22:59:20
-
-
-# **Oracolo** / Skinshape
-
-![Foto del album: Oracolo](https://i.scdn.co/image/ab67616d00001e02f0c6f3355c889fa95e57506f)
-
-**Album:** Oracolo
-
-📅 2025-04-20 20:11:30
-
-
-# **The Plc** / Autechre
-
-![Foto del album: Quaristice](https://i.scdn.co/image/ab67616d00001e024e9d1d09bfa6c16ef3e108a3)
-
-**Album:** Quaristice
-
-📅 2025-04-20 19:31:31
-
-
-# **Altibzz** / Autechre
-
-![Foto del album: Quaristice](https://i.scdn.co/image/ab67616d00001e024e9d1d09bfa6c16ef3e108a3)
-
-**Album:** Quaristice
-
-📅 2025-04-20 18:50:35
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2025-04-20 12:52:45
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-04-20 12:48:53
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
-
-**Album:** Return To Cookie Mountain
-
-📅 2025-04-20 11:41:53
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-04-20 11:37:15
+📅 2025-04-23 10:21:26
