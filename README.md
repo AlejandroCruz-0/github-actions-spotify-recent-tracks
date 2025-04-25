@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-25 08:18:04
+
+
 # **Alive** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2025-04-23 21:16:09
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2025-04-23 16:01:29
