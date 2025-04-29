@@ -67,6 +67,15 @@ Nombre: **lotario1999**
 📅 2025-04-28 01:41:46
 
 
+# **Labor Of Love** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-04-27 23:15:19
+
+
 # **Main Titles** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
 📅 2025-04-26 10:41:09
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-04-26 10:39:05
