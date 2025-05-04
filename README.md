@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-04 00:19:04
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-04 00:15:19
+
+
 # **Not Like Us** / Kendrick Lamar
 
 ![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nevermind (Remastered)
 
 📅 2025-05-02 17:31:07
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
-
-**Album:** Return To Cookie Mountain
-
-📅 2025-05-02 17:25:17
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2025-05-02 17:20:33
