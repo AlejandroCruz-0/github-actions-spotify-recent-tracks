@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-04 22:01:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-04 21:57:51
+
+
 # **Fallout 4 Main Theme** / Inon Zur
 
 ![Foto del album: Fallout 4 (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02050fea0d19777c55cf3453c2)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-05-03 12:21:00
-
-
-# **Silence Is Easy** / Starsailor
-
-![Foto del album: Silence Is Easy](https://i.scdn.co/image/ab67616d00001e02dd1e78b24a9636465430cf8a)
-
-**Album:** Silence Is Easy
-
-📅 2025-05-02 17:45:53
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2025-05-02 17:42:12
