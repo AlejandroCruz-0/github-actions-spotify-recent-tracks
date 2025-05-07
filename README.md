@@ -13,121 +13,148 @@ Nombre: **lotario1999**
 
 
 
-# **Losing My Religion** / R.E.M.
+# **Turning Sheep into Goats** / Rishloo
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Feathergun](https://i.scdn.co/image/ab67616d00001e023c64c336ac47c4fb8a4a6e41)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Feathergun
 
-📅 2025-05-05 09:55:53
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-05 09:51:24
+📅 2025-05-06 13:57:31
 
 
-# **Glory Box** / Portishead
+# **Dark Water** / Agent Fresco
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Destrier](https://i.scdn.co/image/ab67616d00001e021ffc68fe482c85984d1ded54)
 
-**Album:** Dummy
+**Album:** Destrier
 
-📅 2025-05-05 09:47:28
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-05 09:41:52
+📅 2025-05-06 13:53:37
 
 
-# **Mad About You** / Hooverphonic
+# **Neoprene Byzantine** / Closure in Moscow
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Pink Lemonade](https://i.scdn.co/image/ab67616d00001e0236836f3554326d9f9a87533f)
 
-**Album:** The Magnificent Tree
+**Album:** Pink Lemonade
 
-📅 2025-05-05 09:38:06
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-05 09:34:23
+📅 2025-05-06 13:49:58
 
 
-# **Disappearing One** / Chris Cornell
+# **Ellen/Oprah** / Adam Neely|Jessica Kion|Ben Levin
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Ellen/Oprah](https://i.scdn.co/image/ab67616d00001e02766cc75a932793ec1a5bb373)
 
-**Album:** Euphoria Morning
+**Album:** Ellen/Oprah
 
-📅 2025-05-04 22:01:36
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-04 21:57:51
+📅 2025-05-06 13:46:03
 
 
-# **Fallout 4 Main Theme** / Inon Zur
+# **Battle Creek** / Bent Knee
 
-![Foto del album: Fallout 4 (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02050fea0d19777c55cf3453c2)
+![Foto del album: Shiny Eyed Babies](https://i.scdn.co/image/ab67616d00001e02c201f2419e571857323854b1)
 
-**Album:** Fallout 4 (Original Game Soundtrack)
+**Album:** Shiny Eyed Babies
 
-📅 2025-05-04 13:09:58
-
-
-# **The Four Tempers** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-05-04 08:49:50
+📅 2025-05-06 13:43:18
 
 
-# **Main Titles** / Theodore Shapiro
+# **Boxes - .** / Bent Knee
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Land Animal
 
-📅 2025-05-04 08:44:41
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-04 00:19:04
+📅 2025-05-06 13:37:34
 
 
-# **Mad About You** / Hooverphonic
+# **The Well** / Bent Knee
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** The Magnificent Tree
+**Album:** Land Animal
 
-📅 2025-05-04 00:15:19
+📅 2025-05-06 13:31:34
+
+
+# **Belly Side Up** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 13:26:03
+
+
+# **Time Deer** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 13:21:48
+
+
+# **Land Animal** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 13:17:28
+
+
+# **These Hands** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 13:12:15
+
+
+# **Insides In** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 13:06:38
+
+
+# **Holy Ghost** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 13:00:09
+
+
+# **Hole** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 12:54:35
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-06 12:03:08
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-05-06 11:58:34
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -136,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2025-05-03 13:36:05
+📅 2025-05-06 11:53:06
 
 
 # **Follow My Way** / Chris Cornell
@@ -145,34 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-05-03 13:31:30
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-05-03 13:26:23
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-03 13:21:54
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-05-03 13:17:58
+📅 2025-05-06 11:48:32
 
 
 # **Disappearing One** / Chris Cornell
@@ -181,13 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-05-03 13:12:26
+📅 2025-05-06 11:43:16
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Glory Box** / Portishead
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Euphoria Morning
+**Album:** Dummy
 
-📅 2025-05-03 12:54:14
+📅 2025-05-06 10:54:29
