@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2025-05-08 19:27:50
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2025-05-08 19:23:27
+
+
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
+
+**Album:** The Shocking Miss Emerald (The Remixes)
+
+📅 2025-05-08 19:22:27
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ellen/Oprah
 
 📅 2025-05-06 13:46:03
-
-
-# **Battle Creek** / Bent Knee
-
-![Foto del album: Shiny Eyed Babies](https://i.scdn.co/image/ab67616d00001e02c201f2419e571857323854b1)
-
-**Album:** Shiny Eyed Babies
-
-📅 2025-05-06 13:43:18
-
-
-# **Boxes - .** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-05-06 13:37:34
-
-
-# **The Well** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-05-06 13:31:34
