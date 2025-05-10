@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2025-05-09 15:33:23
+
+
+# **Fever** / The Black Keys
+
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+
+**Album:** Turn Blue
+
+📅 2025-05-09 12:03:27
+
+
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2025-05-09 11:57:09
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-09 11:53:45
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-09 10:16:29
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-09 10:12:44
+
+
 # **Oh I Wept** / Free
 
 ![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** With Orchestra Live
 
 📅 2025-05-07 10:39:25
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-07 10:35:25
-
-
-# **Limbo** / Richard Henshall
-
-![Foto del album: The Cocoon](https://i.scdn.co/image/ab67616d00001e02661f41a3c115d8b82fca4654)
-
-**Album:** The Cocoon
-
-📅 2025-05-07 10:31:36
-
-
-# **Turning Sheep into Goats** / Rishloo
-
-![Foto del album: Feathergun](https://i.scdn.co/image/ab67616d00001e023c64c336ac47c4fb8a4a6e41)
-
-**Album:** Feathergun
-
-📅 2025-05-06 13:57:31
-
-
-# **Dark Water** / Agent Fresco
-
-![Foto del album: Destrier](https://i.scdn.co/image/ab67616d00001e021ffc68fe482c85984d1ded54)
-
-**Album:** Destrier
-
-📅 2025-05-06 13:53:37
-
-
-# **Neoprene Byzantine** / Closure in Moscow
-
-![Foto del album: Pink Lemonade](https://i.scdn.co/image/ab67616d00001e0236836f3554326d9f9a87533f)
-
-**Album:** Pink Lemonade
-
-📅 2025-05-06 13:49:58
-
-
-# **Ellen/Oprah** / Adam Neely|Jessica Kion|Ben Levin
-
-![Foto del album: Ellen/Oprah](https://i.scdn.co/image/ab67616d00001e02766cc75a932793ec1a5bb373)
-
-**Album:** Ellen/Oprah
-
-📅 2025-05-06 13:46:03
