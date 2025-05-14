@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2025-05-13 13:48:35
+
+
+# **Time is Running Out** / Muse
+
+![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e023303a842ee1bc0b23204333d)
+
+**Album:** Absolution
+
+📅 2025-05-13 11:43:00
+
+
+# **I'll Keep Coming** / Low Roar
+
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
+
+**Album:** 0
+
+📅 2025-05-13 11:39:03
+
+
+# **Will Do** / TV On The Radio
+
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+
+**Album:** Nine Types of Light
+
+📅 2025-05-13 11:33:10
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2025-05-13 11:29:26
+
+
 # **Tom The Model** / Beth Gibbons|Rustin Man
 
 ![Foto del album: Out Of Season](https://i.scdn.co/image/ab67616d00001e0251f8d86729a62a35e2792bbf)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-05-11 12:42:46
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-11 12:38:19
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-11 12:30:39
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-11 08:51:30
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-11 08:47:45
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-05-10 13:10:50
