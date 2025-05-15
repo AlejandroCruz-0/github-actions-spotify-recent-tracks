@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Tabu** / Gustavo Cerati
+
+![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
+
+**Album:** Bocanada
+
+📅 2025-05-15 00:59:21
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2025-05-15 00:48:46
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2025-05-15 00:43:31
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2025-05-15 00:37:39
+
+
 # **Electric Worry** / Clutch
 
 ![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2025-05-12 08:19:45
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-12 08:14:18
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-12 08:10:32
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-05-11 13:38:17
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-11 12:47:07
