@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+
+**Album:** Land Animal
+
+📅 2025-05-15 22:46:42
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-15 22:03:15
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-15 21:59:03
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-15 21:55:24
+
+
 # **Follow My Way** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Panic
 
 📅 2025-05-12 09:15:49
-
-
-# **Lone Digger** / Caravan Palace
-
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
-
-**Album:** <I°_°I>
-
-📅 2025-05-12 09:12:37
-
-
-# **Amarillo** / Gorillaz
-
-![Foto del album: The Fall](https://i.scdn.co/image/ab67616d00001e02bfcb1c9ce002a2c2cd5e9f34)
-
-**Album:** The Fall
-
-📅 2025-05-12 09:08:46
-
-
-# **Coffee & TV** / Blur
-
-![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
-
-**Album:** 13
-
-📅 2025-05-12 09:05:21
-
-
-# **Time is Running Out** / Muse
-
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e023303a842ee1bc0b23204333d)
-
-**Album:** Absolution
-
-📅 2025-05-12 08:59:22
