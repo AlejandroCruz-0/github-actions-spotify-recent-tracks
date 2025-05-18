@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Buddhism** / Florian Porterfield
+
+![Foto del album: Buddhism](https://i.scdn.co/image/ab67616d00001e02c9613be29ae10fd928c15318)
+
+**Album:** Buddhism
+
+📅 2025-05-18 06:48:38
+
+
+# **Healing Star** / Broadleaf Radio
+
+![Foto del album: Healing Star](https://i.scdn.co/image/ab67616d00001e02a9b19c880855284e4bea6cd0)
+
+**Album:** Healing Star
+
+📅 2025-05-18 06:46:21
+
+
+# **Must Be Real** / EMIKO
+
+![Foto del album: Must Be Real](https://i.scdn.co/image/ab67616d00001e02b2599056df929df3d47d4ebb)
+
+**Album:** Must Be Real
+
+📅 2025-05-18 06:43:51
+
+
+# **Dreamfall** / Aura Veil
+
+![Foto del album: Dreamfall](https://i.scdn.co/image/ab67616d00001e027e4f40f905a4fdaf28486ec9)
+
+**Album:** Dreamfall
+
+📅 2025-05-18 06:40:33
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-05-18 06:37:28
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** From Beale Street to Oblivion
 
 📅 2025-05-15 00:48:46
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-05-15 00:43:31
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2025-05-15 00:37:39
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e0287338f24cea47278af7d8c11)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-05-14 18:50:56
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2025-05-13 13:48:35
-
-
-# **Time is Running Out** / Muse
-
-![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e023303a842ee1bc0b23204333d)
-
-**Album:** Absolution
-
-📅 2025-05-13 11:43:00
