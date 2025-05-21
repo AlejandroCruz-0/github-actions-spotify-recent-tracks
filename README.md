@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-21 06:08:03
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-05-18 21:17:21
-
-
-# **Buddhism** / Florian Porterfield
-
-![Foto del album: Buddhism](https://i.scdn.co/image/ab67616d00001e02c9613be29ae10fd928c15318)
-
-**Album:** Buddhism
-
-📅 2025-05-18 06:48:38
