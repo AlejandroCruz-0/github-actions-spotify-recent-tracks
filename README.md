@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Prelude to a Heroic Tale** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
+
+![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
+
+**Album:** Metaphor: ReFantazio Special Soundtrack
+
+📅 2025-05-21 18:57:41
+
+
 # **Main Titles** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-05-18 21:21:09
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-18 21:17:21
