@@ -13,94 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **No One Knows** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2025-05-22 20:09:57
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2025-05-22 10:41:22
-
-
-# **L'Odeur Animale** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-22 10:38:22
-
-
-# **Pineapple Suite** / Cristobal Tapia De Veer
-
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
-
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
-
-📅 2025-05-22 10:37:55
-
-
-# **Little L - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2025-05-22 10:34:18
-
-
-# **Mercy in You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-05-22 10:30:18
-
-
-# **Out of Touch** / Daryl Hall & John Oates
-
-![Foto del album: The Very Best of Daryl Hall / John Oates](https://i.scdn.co/image/ab67616d00001e0256ce6584f5f6e58b2237f5d9)
-
-**Album:** The Very Best of Daryl Hall / John Oates
-
-📅 2025-05-22 10:23:20
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-05-22 10:19:10
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-05-22 10:15:21
-
-
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
 **Album:** Land Animal
 
-📅 2025-05-22 10:10:05
+📅 2025-05-23 12:42:38
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2025-05-23 12:37:05
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2025-05-23 12:33:23
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2025-05-23 12:26:17
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2025-05-23 12:18:17
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2025-05-23 12:13:43
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -109,85 +73,121 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2025-05-22 10:04:31
+📅 2025-05-23 12:08:50
 
 
-# **Fever** / The Black Keys
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Turn Blue
+**Album:** The Magnificent Tree
 
-📅 2025-05-22 10:01:05
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2025-05-22 09:56:59
+📅 2025-05-23 11:20:53
 
 
-# **Deeper Underground - Full Version** / Jamiroquai
+# **Glory Box** / Portishead
 
-![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Synkronized
+**Album:** Dummy
 
-📅 2025-05-22 09:52:51
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-05-22 09:47:43
+📅 2025-05-23 11:17:04
 
 
-# **Congregation** / Low
+# **Moonchild** / Chris Cornell
 
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Ones and Sixes
+**Album:** Euphoria Morning
 
-📅 2025-05-22 09:44:11
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2025-05-22 09:40:04
+📅 2025-05-23 11:06:18
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Euphoria Morning
 
-📅 2025-05-22 09:36:18
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-05-22 09:34:38
+📅 2025-05-23 11:02:17
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** With Orchestra Live
+**Album:** Euphoria Morning
 
-📅 2025-05-22 09:28:49
+📅 2025-05-23 10:58:06
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-23 10:54:08
+
+
+# **The Four Tempers** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-23 10:50:03
+
+
+# **Finding Sam** / Nicolas Snyder
+
+![Foto del album: Scavengers Reign (Original Max Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e028c37623ef7f257b3f00635da)
+
+**Album:** Scavengers Reign (Original Max Series Soundtrack)
+
+📅 2025-05-23 10:46:05
+
+
+# **Falling Leaves** / Atticus Ross|Leopold Ross|Nick Chuba
+
+![Foto del album: Shōgun (Vol. 2) [Original Soundtrack]](https://i.scdn.co/image/ab67616d00001e02269a0417ce5a61d774d56239)
+
+**Album:** Shōgun (Vol. 2) [Original Soundtrack]
+
+📅 2025-05-23 10:43:58
+
+
+# **Silk Drape** / Jason Hill
+
+![Foto del album: Mindhunter: Season 2 (Soundtrack from the Netflix Series)](https://i.scdn.co/image/ab67616d00001e02b1eaa6eaf3ce9158f75870c1)
+
+**Album:** Mindhunter: Season 2 (Soundtrack from the Netflix Series)
+
+📅 2025-05-23 10:41:02
+
+
+# **Library** / Daniel Blumberg
+
+![Foto del album: The Brutalist (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e028e93775f37424647cfe50cd6)
+
+**Album:** The Brutalist (Original Motion Picture Soundtrack)
+
+📅 2025-05-23 10:37:25
+
+
+# **Elevator Down** / Theodore Shapiro
+
+![Foto del album: Severance: Season 2 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02156257abb4f41e346dd9e738)
+
+**Album:** Severance: Season 2 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-23 10:33:58
+
+
+# **Alive** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-23 10:31:40
