@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-23 22:19:55
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-23 22:15:53
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-23 22:11:26
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-23 22:08:10
+
+
 # **Holy Ghost** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Shōgun (Vol. 2) [Original Soundtrack]
 
 📅 2025-05-23 10:43:58
-
-
-# **Silk Drape** / Jason Hill
-
-![Foto del album: Mindhunter: Season 2 (Soundtrack from the Netflix Series)](https://i.scdn.co/image/ab67616d00001e02b1eaa6eaf3ce9158f75870c1)
-
-**Album:** Mindhunter: Season 2 (Soundtrack from the Netflix Series)
-
-📅 2025-05-23 10:41:02
-
-
-# **Library** / Daniel Blumberg
-
-![Foto del album: The Brutalist (Original Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e028e93775f37424647cfe50cd6)
-
-**Album:** The Brutalist (Original Motion Picture Soundtrack)
-
-📅 2025-05-23 10:37:25
-
-
-# **Elevator Down** / Theodore Shapiro
-
-![Foto del album: Severance: Season 2 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02156257abb4f41e346dd9e738)
-
-**Album:** Severance: Season 2 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-05-23 10:33:58
-
-
-# **Alive** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-05-23 10:31:40
