@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Lumière** / Lorien Testard|Alice Duport-Percier
+
+![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
+
+**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+
+📅 2025-05-26 00:09:02
+
+
 # **Gustave** / Lorien Testard
 
 ![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Dummy
 
 📅 2025-05-23 11:17:04
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-23 11:06:18
