@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Gustave** / Lorien Testard
+
+![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
+
+**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+
+📅 2025-05-25 11:34:16
+
+
+# **Alicia** / Lorien Testard|Alice Duport-Percier
+
+![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
+
+**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+
+📅 2025-05-25 11:30:28
+
+
+# **Kimono Hallway** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-25 11:27:55
+
+
 # **Labor Of Love** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-05-23 11:06:18
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-23 11:02:17
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-23 10:58:06
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-23 10:54:08
