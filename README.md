@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Alicia** / Lorien Testard|Alice Duport-Percier
+
+![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
+
+**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+
+📅 2025-05-27 09:52:45
+
+
 # **Lumière** / Lorien Testard|Alice Duport-Percier
 
 ![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-05-23 11:20:53
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-05-23 11:17:04
