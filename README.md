@@ -13,157 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **Alicia** / Lorien Testard|Alice Duport-Percier
+# **Oh I Wept** / Free
 
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+**Album:** Fire And Water
 
-📅 2025-05-27 09:52:45
-
-
-# **Lumière** / Lorien Testard|Alice Duport-Percier
-
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
-
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
-
-📅 2025-05-26 00:09:02
+📅 2025-05-28 16:39:02
 
 
-# **Gustave** / Lorien Testard
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
 
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2025-05-25 11:34:16
-
-
-# **Alicia** / Lorien Testard|Alice Duport-Percier
-
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b564673cb131036b12872979)
-
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
-
-📅 2025-05-25 11:30:28
+📅 2025-05-28 16:34:42
 
 
-# **Kimono Hallway** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-05-25 11:27:55
-
-
-# **Labor Of Love** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-05-24 17:52:00
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-05-24 17:49:56
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-05-24 17:48:38
-
-
-# **Moonchild** / Chris Cornell
+# **Can't Change Me** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2025-05-23 22:19:55
+📅 2025-05-28 16:31:29
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Euphoria Morning
+**Album:** Nevermind (Remastered)
 
-📅 2025-05-23 22:15:53
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-23 22:11:26
+📅 2025-05-28 16:28:04
 
 
-# **Mad About You** / Hooverphonic
+# **Like a Stone** / Audioslave
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** The Magnificent Tree
+**Album:** Audioslave
 
-📅 2025-05-23 22:08:10
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-05-23 12:42:38
+📅 2025-05-28 16:22:17
 
 
-# **Dead and Gone** / The Black Keys
+# **Wolf Like Me** / TV On The Radio
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
 
-**Album:** El Camino
+**Album:** Return To Cookie Mountain
 
-📅 2025-05-23 12:37:05
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2025-05-23 12:33:23
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2025-05-23 12:26:17
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-05-23 12:18:17
+📅 2025-05-28 16:17:22
 
 
 # **Your Woman** / White Town
@@ -172,16 +73,25 @@ Nombre: **lotario1999**
 
 **Album:** Women in Technology
 
-📅 2025-05-23 12:13:43
+📅 2025-05-28 15:51:39
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Bueninvento
+**Album:** Not Like Us
 
-📅 2025-05-23 12:08:50
+📅 2025-05-28 15:46:49
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-05-28 13:54:35
 
 
 # **Out Of Sight** / Hooverphonic
@@ -190,4 +100,94 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-05-23 11:20:53
+📅 2025-05-28 13:50:05
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-05-28 13:46:09
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-28 13:41:00
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-28 13:36:58
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-28 13:32:31
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-28 13:28:45
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-28 13:24:57
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-28 13:21:12
+
+
+# **Alive** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-28 13:15:22
+
+
+# **Cobel At Lumon** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-28 10:05:52
+
+
+# **The Four Tempers** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-05-28 10:02:16
