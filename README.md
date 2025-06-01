@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+
+**Album:** Twilight
+
+📅 2025-05-31 13:35:28
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-05-31 13:31:38
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-05-31 13:27:53
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-31 13:20:01
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-05-31 13:14:54
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-31 13:10:25
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-05-31 13:06:30
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-05-31 11:22:42
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-05-31 11:18:41
+
+
+# **Lonesome Street** / Blur
+
+![Foto del album: Lonesome Street](https://i.scdn.co/image/ab6742d3000053b74613fc3a9102a74ec40df563)
+
+**Album:** Lonesome Street
+
+📅 2025-05-31 11:15:00
+
+
+# **The Wrong Place** / Hooverphonic
+
+![Foto del album: Hidden Stories](https://i.scdn.co/image/ab67616d00001e023b89a9267e0f75e33c94b5b1)
+
+**Album:** Hidden Stories
+
+📅 2025-05-31 11:15:00
+
+
 # **Eden** / Hooverphonic
 
 ![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** With Orchestra Live
 
 📅 2025-05-29 15:45:04
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-29 13:34:18
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-29 13:30:32
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-29 13:27:13
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-29 10:52:16
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-29 10:47:49
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-29 10:44:07
-
-
-# **Hot Together** / The Pointer Sisters
-
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
-
-**Album:** Hot Together (Expanded Edition)
-
-📅 2025-05-29 10:39:03
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2025-05-29 09:39:26
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-29 09:31:32
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-05-29 09:26:06
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-29 09:21:47
