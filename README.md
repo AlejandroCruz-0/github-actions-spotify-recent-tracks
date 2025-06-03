@@ -13,76 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **Scoring** / bôa
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Twilight
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-05-31 13:35:28
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-05-31 13:31:38
+📅 2025-06-02 18:31:18
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Not Like Us
+**Album:** Full Moon Fever
 
-📅 2025-05-31 13:27:53
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-05-31 13:20:01
+📅 2025-06-02 18:25:21
 
 
-# **Losing My Religion** / R.E.M.
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Bueninvento
 
-📅 2025-05-31 13:14:54
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-31 13:10:25
+📅 2025-06-02 15:16:28
 
 
-# **Glory Box** / Portishead
+# **Fever** / The Black Keys
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Dummy
+**Album:** Turn Blue
 
-📅 2025-05-31 13:06:30
+📅 2025-06-02 15:13:02
 
 
-# **Disappearing One** / Chris Cornell
+# **Two Weeks** / FKA twigs
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** Euphoria Morning
+**Album:** LP1
 
-📅 2025-05-31 11:22:42
+📅 2025-06-02 15:08:57
+
+
+# **Deeper Underground - Full Version** / Jamiroquai
+
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
+
+**Album:** Synkronized
+
+📅 2025-06-02 15:04:47
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2025-06-02 15:00:00
+
+
+# **Condemnation** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2025-06-02 14:56:21
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
+
+**Album:** Ones and Sixes
+
+📅 2025-06-02 14:52:55
+
+
+# **Canned Heat - Remastered 2006** / Jamiroquai
+
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
+
+**Album:** Driving Songs
+
+📅 2025-06-02 14:48:59
 
 
 # **Mad About You** / Hooverphonic
@@ -91,103 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-05-31 11:18:41
+📅 2025-06-02 14:45:11
 
 
-# **Lonesome Street** / Blur
+# **Come Undone** / Duran Duran
 
-![Foto del album: Lonesome Street](https://i.scdn.co/image/ab6742d3000053b74613fc3a9102a74ec40df563)
+![Foto del album: Duran Duran](https://i.scdn.co/image/ab67616d00001e025d11c2fe73a7d376d3b06107)
 
-**Album:** Lonesome Street
+**Album:** Duran Duran
 
-📅 2025-05-31 11:15:00
-
-
-# **The Wrong Place** / Hooverphonic
-
-![Foto del album: Hidden Stories](https://i.scdn.co/image/ab67616d00001e023b89a9267e0f75e33c94b5b1)
-
-**Album:** Hidden Stories
-
-📅 2025-05-31 11:15:00
+📅 2025-06-02 14:41:09
 
 
-# **Eden** / Hooverphonic
+# **You Make My Dreams (Come True)** / Daryl Hall & John Oates
 
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+![Foto del album: Voices](https://i.scdn.co/image/ab67616d00001e02fe1a9aa59e3c6189a09ae37a)
 
-**Album:** Blue Wonder Power Milk
+**Album:** Voices
 
-📅 2025-05-30 22:49:02
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2025-05-30 22:45:28
+📅 2025-06-02 14:36:53
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Maneater** / Daryl Hall & John Oates
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
 
-**Album:** With Orchestra Live
+**Album:** H2O
 
-📅 2025-05-30 22:40:46
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-30 22:36:44
+📅 2025-06-02 14:33:42
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Immigrant Song - Remaster** / Led Zeppelin
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
 
-**Album:** With Orchestra Live
+**Album:** Led Zeppelin III (Remaster)
 
-📅 2025-05-30 10:58:48
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-30 10:54:45
+📅 2025-06-02 14:29:16
 
 
-# **Mad About You** / Hooverphonic
+# **Electric Worry** / Clutch
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
 
-**Album:** The Magnificent Tree
+**Album:** From Beale Street to Oblivion
 
-📅 2025-05-29 21:45:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-05-29 15:48:46
+📅 2025-06-02 12:09:38
 
 
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+# **Criminal** / Fiona Apple
 
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** With Orchestra Live
+**Album:** Tidal
 
-📅 2025-05-29 15:45:04
+📅 2025-06-02 12:04:23
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2025-06-02 11:58:30
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2025-06-02 11:54:28
+
+
+# **The Four Tempers** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-06-02 11:50:39
