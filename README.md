@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-06-05 05:50:22
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-06-05 05:43:15
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-06-05 05:39:28
+
+
 # **Flutter Girl** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2025-06-03 11:39:35
-
-
-# **Hole** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-06-03 11:34:02
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-06-03 11:30:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-06-03 11:26:11
