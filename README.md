@@ -13,148 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **Badaboum** / Hooverphonic
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: In Wonderland](https://i.scdn.co/image/ab67616d00001e029e99c13f72a625d32358f1c3)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** In Wonderland
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-06-18 17:55:48
-
-
-# **Amalfi** / Hooverphonic
-
-![Foto del album: Reflection](https://i.scdn.co/image/ab67616d00001e02bade97c6c0675c92d5ca7ed5)
-
-**Album:** Reflection
-
-📅 2025-06-18 17:52:30
+📅 2025-06-21 20:41:49
 
 
-# **Mad About You - Orchestra Version** / Hooverphonic
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: With Orchestra](https://i.scdn.co/image/ab67616d00001e02f5e9f5b520c70be35202ef4a)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** With Orchestra
+**Album:** Full Moon Fever
 
-📅 2025-06-18 17:49:13
-
-
-# **The Wrong Place** / Hooverphonic
-
-![Foto del album: Hidden Stories](https://i.scdn.co/image/ab67616d00001e023b89a9267e0f75e33c94b5b1)
-
-**Album:** Hidden Stories
-
-📅 2025-06-18 17:45:30
+📅 2025-06-21 20:36:01
 
 
-# **Eden** / Hooverphonic
-
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
-
-**Album:** Blue Wonder Power Milk
-
-📅 2025-06-18 17:42:33
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2025-06-18 17:38:59
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-06-18 17:34:14
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-06-18 17:30:14
-
-
-# **2 Wicky** / Hooverphonic
-
-![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
-
-**Album:** A New Stereophonic Sound Spectacular
-
-📅 2025-06-18 15:31:05
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-06-18 15:26:20
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-06-18 15:22:45
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-06-18 13:34:06
-
-
-# **Moonchild** / Chris Cornell
+# **When I'm Down** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2025-06-18 13:28:38
+📅 2025-06-21 20:31:50
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Euphoria Morning
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-06-18 13:24:39
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-06-18 13:20:09
+📅 2025-06-21 20:27:31
 
 
-# **Mad About You** / Hooverphonic
+# **Your Woman** / White Town
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
-**Album:** The Magnificent Tree
+**Album:** Women in Technology
 
-📅 2025-06-18 13:16:23
+📅 2025-06-21 20:22:58
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2025-06-21 20:18:34
 
 
 # **Fever** / The Black Keys
@@ -163,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Turn Blue
 
-📅 2025-06-18 10:03:58
+📅 2025-06-21 20:14:39
 
 
 # **Sweet Euphoria** / Chris Cornell
@@ -172,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-06-18 09:59:51
+📅 2025-06-21 20:08:59
 
 
 # **Sería Feliz** / Julieta Venegas
@@ -181,13 +91,103 @@ Nombre: **lotario1999**
 
 **Album:** Bueninvento
 
-📅 2025-06-18 09:56:42
+📅 2025-06-21 20:05:50
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Special (2018 Remaster)** / Garbage
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2025-06-18 09:53:16
+📅 2025-06-21 20:02:24
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-06-21 19:58:38
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-06-21 19:54:04
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-06-21 19:49:23
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-06-21 19:44:19
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-06-21 19:40:34
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-06-21 19:36:52
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-06-21 13:08:44
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-06-21 13:04:57
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-06-21 11:58:02
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-06-21 11:54:14
