@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-06-22 11:50:18
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-06-22 11:47:36
+
+
 # **Goodbye Stranger - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-06-21 13:04:57
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-06-21 11:58:02
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-06-21 11:54:14
