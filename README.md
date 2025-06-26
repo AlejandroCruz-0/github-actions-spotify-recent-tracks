@@ -13,157 +13,130 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You** / Hooverphonic
+# **Hells Bells** / AC/DC
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
 
-**Album:** The Magnificent Tree
+**Album:** Back In Black
 
-📅 2025-06-24 19:04:07
+📅 2025-06-25 17:16:21
 
 
-# **Insides In** / Bent Knee
+# **Immigrant Song - Remaster** / Led Zeppelin
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
 
-**Album:** Land Animal
+**Album:** Led Zeppelin III (Remaster)
 
-📅 2025-06-24 15:52:22
+📅 2025-06-25 17:11:10
 
 
-# **Holy Ghost** / Bent Knee
+# **Electric Worry** / Clutch
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
 
-**Album:** Land Animal
+**Album:** From Beale Street to Oblivion
 
-📅 2025-06-24 15:45:52
+📅 2025-06-25 17:08:42
 
 
-# **Hole** / Bent Knee
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** Land Animal
+**Album:** Gran Turismo (Remastered)
 
-📅 2025-06-24 15:40:19
+📅 2025-06-25 16:39:26
 
 
-# **Terror Bird** / Bent Knee
+# **Legendary** / Welshly Arms
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Land Animal
+**Album:** No Place Is Home
 
-📅 2025-06-24 15:36:58
+📅 2025-06-25 13:36:35
 
 
-# **Losing My Religion** / R.E.M.
+# **Beetlebum - 2012 Remaster** / Blur
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Blur (Special Edition)
 
-📅 2025-06-24 15:33:14
+📅 2025-06-25 13:32:43
 
 
-# **Out Of Sight** / Hooverphonic
+# **Plug in Baby** / Muse
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
 
-**Album:** The Magnificent Tree
+**Album:** Origin of Symmetry
 
-📅 2025-06-24 12:27:13
+📅 2025-06-25 13:27:39
 
 
-# **Glory Box** / Portishead
+# **Down By The Water** / PJ Harvey
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: To Bring You My Love](https://i.scdn.co/image/ab67616d00001e026ea4af8437d78b607f30c8f0)
 
-**Album:** Dummy
+**Album:** To Bring You My Love
 
-📅 2025-06-24 12:23:17
+📅 2025-06-25 13:23:58
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Genghis Khan** / Miike Snow
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: iii](https://i.scdn.co/image/ab67616d00001e0206eda68098c2a886a43685a8)
 
-**Album:** Euphoria Morning
+**Album:** iii
 
-📅 2025-06-24 12:16:58
+📅 2025-06-25 13:20:51
 
 
-# **Disappearing One** / Chris Cornell
+# **Rock the Casbah - Remastered** / The Clash
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Combat Rock (Remastered)](https://i.scdn.co/image/ab67616d00001e0225a4df452a3c42ccc2e9288b)
 
-**Album:** Euphoria Morning
+**Album:** Combat Rock (Remastered)
 
-📅 2025-06-24 12:12:39
+📅 2025-06-25 13:17:18
 
 
-# **Mad About You** / Hooverphonic
+# **My Favourite Game** / The Cardigans
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Gran Turismo (Remastered)](https://i.scdn.co/image/ab67616d00001e025ef700b0fb079793f8b0d774)
 
-**Album:** The Magnificent Tree
+**Album:** Gran Turismo (Remastered)
 
-📅 2025-06-24 12:08:45
+📅 2025-06-25 13:13:28
 
 
-# **Renaissance Affair** / Hooverphonic
+# **Legendary** / Welshly Arms
 
-![Foto del album: Blue Wonder Power Milk](https://i.scdn.co/image/ab67616d00001e023f0b3636ab5f7bf10b57858e)
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
 
-**Album:** Blue Wonder Power Milk
+**Album:** No Place Is Home
 
-📅 2025-06-24 09:41:08
+📅 2025-06-25 13:09:45
 
 
-# **Take The Long Way Home - Remastered 2010** / Supertramp
+# **Beetlebum - 2012 Remaster** / Blur
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Blur (Special Edition)
 
-📅 2025-06-23 17:09:19
+📅 2025-06-25 13:05:52
 
 
-# **Depth Of My Soul** / Thievery Corporation|Shana Halligan
+# **Plug in Baby** / Muse
 
-![Foto del album: Saudade](https://i.scdn.co/image/ab67616d00001e02bff7b876dfc636ea5da66219)
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
 
-**Album:** Saudade
+**Album:** Origin of Symmetry
 
-📅 2025-06-23 17:04:11
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-06-23 17:00:47
-
-
-# **Deeply** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-06-23 16:57:09
-
-
-# **Bones** / Imagine Dragons
-
-![Foto del album: Mercury - Acts 1 & 2](https://i.scdn.co/image/ab67616d00001e02fc915b69600dce2991a61f13)
-
-**Album:** Mercury - Acts 1 & 2
-
-📅 2025-06-23 16:52:34
+📅 2025-06-25 13:00:47
 
 
 # **Rock It for Me** / Caravan Palace
@@ -172,22 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** Panic
 
-📅 2025-06-23 16:49:47
+📅 2025-06-25 12:47:36
 
 
-# **Mercy in You** / Depeche Mode
+# **Two Weeks** / FKA twigs
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** LP1
 
-📅 2025-06-23 16:45:16
+📅 2025-06-25 12:32:21
 
 
-# **Pineapple Suite** / Cristobal Tapia De Veer
+# **Nobody Speak** / DJ Shadow|Run The Jewels
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** The Mountain Will Fall
 
-📅 2025-06-23 16:40:55
+📅 2025-06-25 12:28:16
+
+
+# **2 Wicky** / Hooverphonic
+
+![Foto del album: A New Stereophonic Sound Spectacular](https://i.scdn.co/image/ab67616d00001e02c907989c79699e433a18a574)
+
+**Album:** A New Stereophonic Sound Spectacular
+
+📅 2025-06-25 12:23:15
+
+
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2025-06-25 12:18:34
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-06-25 12:14:31
