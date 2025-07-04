@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Mad About You** / Hooverphonic
+# **Breakfast In America - Remastered 2010** / Supertramp
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Magnificent Tree
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 21:33:56
+📅 2025-07-03 19:47:00
 
 
-# **Main Titles** / Theodore Shapiro
+# **Breakfast In America - Remastered 2010** / Supertramp
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 21:29:00
+📅 2025-07-03 18:58:23
 
 
-# **Elevator Down** / Theodore Shapiro
+# **Oh I Wept** / Free
 
-![Foto del album: Severance: Season 2 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02156257abb4f41e346dd9e738)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Severance: Season 2 (Apple TV+ Original Series Soundtrack)
+**Album:** Fire And Water
 
-📅 2025-07-02 21:28:07
+📅 2025-07-03 15:11:19
 
 
-# **Alive** / Theodore Shapiro
+# **Oh I Wept** / Free
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Fire And Water
 
-📅 2025-07-02 19:02:27
+📅 2025-07-03 13:30:54
 
 
-# **Cobel At Lumon** / Theodore Shapiro
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2025-07-02 18:59:36
+📅 2025-07-03 13:26:27
 
 
-# **That Innie** / Theodore Shapiro
+# **i** / Kendrick Lamar
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** i
 
-📅 2025-07-02 18:58:12
+📅 2025-07-03 12:16:41
 
 
-# **The Four Tempers** / Theodore Shapiro
+# **Will Do** / TV On The Radio
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Nine Types of Light
 
-📅 2025-07-02 18:52:45
+📅 2025-07-03 12:12:49
 
 
-# **Main Titles** / Theodore Shapiro
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Land Animal
 
-📅 2025-07-02 18:50:31
+📅 2025-07-03 12:08:49
 
 
-# **When I'm Down** / Chris Cornell
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Euphoria Morning
+**Album:** El Camino
 
-📅 2025-07-02 18:49:38
+📅 2025-07-03 12:03:08
 
 
-# **Follow My Way** / Chris Cornell
+# **Firestarter** / The Prodigy
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Euphoria Morning
+**Album:** The Fat of the Land
 
-📅 2025-07-02 16:57:01
+📅 2025-07-03 11:59:27
 
 
-# **Preaching The End Of The World** / Chris Cornell
+# **Breakfast In America - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 16:52:18
+📅 2025-07-03 11:54:31
 
 
-# **Flutter Girl** / Chris Cornell
+# **Breakfast In America - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 16:47:16
+📅 2025-07-03 11:38:12
 
 
-# **Can't Change Me** / Chris Cornell
+# **Child Of Vision - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 16:42:53
+📅 2025-07-03 11:34:57
 
 
-# **Main Titles** / Theodore Shapiro
+# **Casual Conversations - Remastered 2010** / Supertramp
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 16:39:11
+📅 2025-07-03 11:27:26
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Just Another Nervous Wreck - Remastered 2010** / Supertramp
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Bueninvento
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 12:49:12
+📅 2025-07-03 11:24:29
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Lord Is It Mine - Remastered 2010** / Supertramp
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 12:45:47
+📅 2025-07-03 11:20:01
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Take The Long Way Home - Remastered 2010** / Supertramp
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Not Like Us
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 11:26:59
+📅 2025-07-03 11:15:51
 
 
-# **Follow My Way** / Chris Cornell
+# **Oh Darling - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 11:22:38
+📅 2025-07-03 11:09:05
 
 
-# **Losing My Religion** / R.E.M.
+# **Breakfast In America - Remastered 2010** / Supertramp
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 11:17:25
+📅 2025-07-03 11:05:03
 
 
-# **Sweet Euphoria** / Chris Cornell
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-07-02 10:32:32
+📅 2025-07-03 11:02:43
