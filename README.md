@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Breakfast In America - Remastered 2010** / Supertramp
+# **Mirrors** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Gangbusters Melody Club
 
-📅 2025-07-03 19:47:00
+📅 2025-07-04 18:11:14
 
 
-# **Breakfast In America - Remastered 2010** / Supertramp
+# **Black Betty** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Black Betty](https://i.scdn.co/image/ab67616d00001e028a21a7ab034a5a751340fdf8)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Black Betty
 
-📅 2025-07-03 18:58:23
+📅 2025-07-04 17:55:34
 
 
-# **Oh I Wept** / Free
+# **Miracle** / Caravan Palace
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Fire And Water
+**Album:** Chronologic
 
-📅 2025-07-03 15:11:19
+📅 2025-07-04 17:52:24
 
 
-# **Oh I Wept** / Free
+# **Aftermath** / Caravan Palace
 
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Fire And Water
+**Album:** <I°_°I>
 
-📅 2025-07-03 13:30:54
+📅 2025-07-04 17:48:47
 
 
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
+# **Comics** / Caravan Palace
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** <I°_°I>
 
-📅 2025-07-03 13:26:27
+📅 2025-07-04 17:45:40
 
 
-# **i** / Kendrick Lamar
+# **Wonderland** / Caravan Palace
 
-![Foto del album: i](https://i.scdn.co/image/ab67616d00001e023a38f8019b078f37a86faf16)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** i
+**Album:** <I°_°I>
 
-📅 2025-07-03 12:16:41
+📅 2025-07-04 17:42:07
 
 
-# **Will Do** / TV On The Radio
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Nine Types of Light
+**Album:** <I°_°I>
 
-📅 2025-07-03 12:12:49
+📅 2025-07-04 17:39:04
 
 
-# **Holy Ghost** / Bent Knee
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Land Animal
+**Album:** <I°_°I>
 
-📅 2025-07-03 12:08:49
+📅 2025-07-04 17:03:50
 
 
-# **Dead and Gone** / The Black Keys
+# **Powder Blue** / Elbow
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
 
-**Album:** El Camino
+**Album:** Asleep In The Back (Deluxe Edition)
 
-📅 2025-07-03 12:03:08
+📅 2025-07-04 17:00:02
 
 
-# **Firestarter** / The Prodigy
+# **Little Beast** / Elbow
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
 
-**Album:** The Fat of the Land
+**Album:** Asleep In The Back (Deluxe Edition)
 
-📅 2025-07-03 11:59:27
+📅 2025-07-04 13:58:47
 
 
-# **Breakfast In America - Remastered 2010** / Supertramp
+# **Red** / Elbow
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Asleep In The Back (Deluxe Edition)
 
-📅 2025-07-03 11:54:31
+📅 2025-07-04 13:54:32
 
 
-# **Breakfast In America - Remastered 2010** / Supertramp
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Full Moon Fever
 
-📅 2025-07-03 11:38:12
+📅 2025-07-04 13:49:11
 
 
-# **Child Of Vision - Remastered 2010** / Supertramp
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Full Moon Fever
 
-📅 2025-07-03 11:34:57
+📅 2025-07-04 12:54:46
 
 
-# **Casual Conversations - Remastered 2010** / Supertramp
+# **Moonshine** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Chronologic
 
-📅 2025-07-03 11:27:26
+📅 2025-07-04 12:27:12
 
 
-# **Just Another Nervous Wreck - Remastered 2010** / Supertramp
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Panic
 
-📅 2025-07-03 11:24:29
+📅 2025-07-04 12:23:17
 
 
-# **Lord Is It Mine - Remastered 2010** / Supertramp
+# **Reverse** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Reverse](https://i.scdn.co/image/ab67616d00001e020c25069f2dad5d8265b27881)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Reverse
 
-📅 2025-07-03 11:20:01
+📅 2025-07-04 12:15:43
 
 
-# **Take The Long Way Home - Remastered 2010** / Supertramp
+# **Moonshine** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Chronologic
 
-📅 2025-07-03 11:15:51
+📅 2025-07-04 12:11:40
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Panic
 
-📅 2025-07-03 11:09:05
+📅 2025-07-04 12:08:06
 
 
-# **Breakfast In America - Remastered 2010** / Supertramp
+# **Miracle** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Chronologic
 
-📅 2025-07-03 11:05:03
+📅 2025-07-04 12:04:55
 
 
-# **Goodbye Stranger - Remastered 2010** / Supertramp
+# **Aftermath** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** <I°_°I>
 
-📅 2025-07-03 11:02:43
+📅 2025-07-04 12:01:23
