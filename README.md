@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2025-07-07 00:20:07
+
+
+# **Night Cover** / Matara Kan
+
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
+
+**Album:** Night Cover
+
+📅 2025-07-07 00:15:56
+
+
+# **Burn the Witch** / Radiohead
+
+![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+
+**Album:** A Moon Shaped Pool
+
+📅 2025-07-06 23:00:26
+
+
 # **I'm Afraid Of Americans - 2021 Remaster** / David Bowie
 
 ![Foto del album: Earthling (2021 Remaster)](https://i.scdn.co/image/ab67616d00001e02c137b4f6ee58510a5166bbae)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Leaders Of The Free World
 
 📅 2025-07-06 15:04:58
-
-
-# **Army Of Me** / Björk
-
-![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025eec9c48917612650889e0b7)
-
-**Album:** Post
-
-📅 2025-07-06 14:58:36
-
-
-# **Go With The Flow** / Queens of the Stone Age
-
-![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
-
-**Album:** Songs For The Deaf
-
-📅 2025-07-06 13:28:15
-
-
-# **Where Is My Mind? - 2007 Remaster** / Pixies
-
-![Foto del album: Surfer Rosa (2007 Remaster)](https://i.scdn.co/image/ab67616d00001e028aa545a0ea869940cce358b5)
-
-**Album:** Surfer Rosa (2007 Remaster)
-
-📅 2025-07-06 13:25:08
