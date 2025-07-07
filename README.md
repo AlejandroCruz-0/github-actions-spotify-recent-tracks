@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Only Happy When It Rains - 2015 Remaster** / Garbage
+# **I'm Afraid Of Americans - 2021 Remaster** / David Bowie
 
-![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0215a5f121a2b5b459643231c3)
+![Foto del album: Earthling (2021 Remaster)](https://i.scdn.co/image/ab67616d00001e02c137b4f6ee58510a5166bbae)
 
-**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+**Album:** Earthling (2021 Remaster)
 
-📅 2025-07-05 19:49:38
+📅 2025-07-06 18:58:26
 
 
-# **Fell On Black Days** / Soundgarden
+# **promise** / Kohmi Hirose
 
-![Foto del album: Superunknown (20th Anniversary)](https://i.scdn.co/image/ab67616d00001e025124ed45a94033830b320500)
+![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
 
-**Album:** Superunknown (20th Anniversary)
+**Album:** 広瀬香美 THE BEST "Love Winters"
 
-📅 2025-07-05 19:45:40
+📅 2025-07-06 16:36:24
 
 
-# **Maligno (feat. León Larregui)** / Aterciopelados|León Larregui
+# **promise** / Kohmi Hirose
 
-![Foto del album: Reluciente, Rechinante y Aterciopelado](https://i.scdn.co/image/ab67616d00001e02da654694a14ef97dfb0d1fcc)
+![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
 
-**Album:** Reluciente, Rechinante y Aterciopelado
+**Album:** 広瀬香美 THE BEST "Love Winters"
 
-📅 2025-07-05 16:09:09
+📅 2025-07-06 16:28:40
 
 
-# **Me Van a Matar** / Julieta Venegas
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Escena Alterlatina](https://i.scdn.co/image/ab67616d00001e020ad27d904599f2af3eb42f08)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Escena Alterlatina
+**Album:** Full Moon Fever
 
-📅 2025-07-05 16:04:19
+📅 2025-07-06 16:23:58
 
 
-# **Rapto** / Gustavo Cerati
+# **Night Cover** / Matara Kan
 
-![Foto del album: Fuerza Natural](https://i.scdn.co/image/ab67616d00001e0214653b83cd7d851accdb5142)
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
 
-**Album:** Fuerza Natural
+**Album:** Night Cover
 
-📅 2025-07-05 16:00:16
+📅 2025-07-06 16:19:51
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Night Cover** / Matara Kan
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
 
-**Album:** Return To Cookie Mountain
+**Album:** Night Cover
 
-📅 2025-07-05 15:56:11
+📅 2025-07-06 16:10:49
 
 
-# **DLZ** / TV On The Radio
+# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
 
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
 
-**Album:** Dear Science
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2025-07-05 11:34:26
+📅 2025-07-06 16:07:05
 
 
-# **Duvet** / bôa
+# **Holding On** / Aloboi
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
 
-**Album:** Twilight
+**Album:** Holding On
 
-📅 2025-07-05 10:59:16
+📅 2025-07-06 16:03:36
 
 
-# **Firestarter** / The Prodigy
+# **Lovesong** / Adele
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e022118bf9b198b05a95ded6300)
 
-**Album:** The Fat of the Land
+**Album:** 21
 
-📅 2025-07-05 10:37:29
+📅 2025-07-06 15:59:32
 
 
-# **Talk Show Host** / Radiohead
+# **Animal** / MISSIO
 
-![Foto del album: Street Spirit (Fade Out)](https://i.scdn.co/image/ab67616d00001e02d13efb1f02c4032e274f380e)
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
 
-**Album:** Street Spirit (Fade Out)
+**Album:** Loner
 
-📅 2025-07-05 10:23:24
+📅 2025-07-06 15:54:01
 
 
-# **Sunburn** / Muse
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: Showbiz](https://i.scdn.co/image/ab67616d00001e0234dd1b3a44cccef2d3c8bfce)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** Showbiz
+**Album:** El Camino
 
-📅 2025-07-05 10:18:43
+📅 2025-07-06 15:37:49
 
 
-# **Hurt** / Nine Inch Nails
+# **New Sensation** / INXS
 
-![Foto del album: The Downward Spiral](https://i.scdn.co/image/ab67616d00001e02786dc008f4d6fcf34ca8fd7e)
+![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
 
-**Album:** The Downward Spiral
+**Album:** Kick (Remastered 2011)
 
-📅 2025-07-05 10:14:48
+📅 2025-07-06 15:34:08
 
 
-# **Sour Times** / Portishead
+# **Sledgehammer - Remastered** / Peter Gabriel
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
 
-**Album:** Dummy
+**Album:** So (Special Edition)
 
-📅 2025-07-05 10:08:35
+📅 2025-07-06 15:30:27
 
 
-# **Mercy in You** / Depeche Mode
+# **Old Town Road (feat. Billy Ray Cyrus) - Remix** / Lil Nas X|Billy Ray Cyrus
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: 7](https://i.scdn.co/image/ab67616d00001e026239187793c9e492e687db01)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** 7
 
-📅 2025-07-05 09:56:49
+📅 2025-07-06 15:25:13
 
 
-# **Forget Myself** / Elbow
+# **Rompecabezas** / Aterciopelados
+
+![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+
+**Album:** Gozo Poderoso
+
+📅 2025-07-06 15:22:36
+
+
+# **Let's Dance - 2018 Remaster** / David Bowie
+
+![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
+
+**Album:** Let's Dance (2018 Remaster)
+
+📅 2025-07-06 15:12:55
+
+
+# **My Very Best** / Elbow
 
 ![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
 
 **Album:** Leaders Of The Free World
 
-📅 2025-07-05 09:52:29
+📅 2025-07-06 15:04:58
 
 
-# **Red** / Elbow
+# **Army Of Me** / Björk
 
-![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
+![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e025eec9c48917612650889e0b7)
 
-**Album:** Asleep In The Back (Deluxe Edition)
+**Album:** Post
 
-📅 2025-07-05 09:47:10
-
-
-# **Mirrors** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-07-04 18:11:14
+📅 2025-07-06 14:58:36
 
 
-# **Black Betty** / Caravan Palace
+# **Go With The Flow** / Queens of the Stone Age
 
-![Foto del album: Black Betty](https://i.scdn.co/image/ab67616d00001e028a21a7ab034a5a751340fdf8)
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
 
-**Album:** Black Betty
+**Album:** Songs For The Deaf
 
-📅 2025-07-04 17:55:34
-
-
-# **Miracle** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2025-07-04 17:52:24
+📅 2025-07-06 13:28:15
 
 
-# **Aftermath** / Caravan Palace
+# **Where Is My Mind? - 2007 Remaster** / Pixies
 
-![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
+![Foto del album: Surfer Rosa (2007 Remaster)](https://i.scdn.co/image/ab67616d00001e028aa545a0ea869940cce358b5)
 
-**Album:** <I°_°I>
+**Album:** Surfer Rosa (2007 Remaster)
 
-📅 2025-07-04 17:48:47
+📅 2025-07-06 13:25:08
