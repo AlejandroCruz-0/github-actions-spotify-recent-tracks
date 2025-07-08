@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-07-08 01:28:23
+
+
+# **Labor Of Love** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-07-08 01:13:35
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-07-08 01:11:32
+
+
 # **Hold Me, Thrill Me, Kiss Me, Kill Me - From 'Batman Forever'** / U2
 
 ![Foto del album: The Best Of 1990-2000](https://i.scdn.co/image/ab67616d00001e02b333558e7d421458add756bb)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Lust For Life
 
 📅 2025-07-07 10:26:02
-
-
-# **London Calling - Remastered** / The Clash
-
-![Foto del album: London Calling (Remastered)](https://i.scdn.co/image/ab67616d00001e02cd9d8bc9ef04014b6e90e182)
-
-**Album:** London Calling (Remastered)
-
-📅 2025-07-07 10:20:35
-
-
-# **Tabu** / Gustavo Cerati
-
-![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
-
-**Album:** Bocanada
-
-📅 2025-07-07 10:17:13
-
-
-# **Let's Dance - 2018 Remaster** / David Bowie
-
-![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
-
-**Album:** Let's Dance (2018 Remaster)
-
-📅 2025-07-07 10:12:25
