@@ -13,166 +13,175 @@ Nombre: **lotario1999**
 
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Hold Me, Thrill Me, Kiss Me, Kill Me - From 'Batman Forever'** / U2
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: The Best Of 1990-2000](https://i.scdn.co/image/ab67616d00001e02b333558e7d421458add756bb)
 
-**Album:** Full Moon Fever
+**Album:** The Best Of 1990-2000
 
-📅 2025-07-07 00:20:07
+📅 2025-07-07 18:11:33
 
 
-# **Night Cover** / Matara Kan
+# **Flutter Girl** / Chris Cornell
 
-![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Night Cover
+**Album:** Euphoria Morning
 
-📅 2025-07-07 00:15:56
+📅 2025-07-07 16:42:00
 
 
-# **Burn the Witch** / Radiohead
+# **Waltz #2 (XO)** / Elliott Smith
 
-![Foto del album: A Moon Shaped Pool](https://i.scdn.co/image/ab67616d00001e0245643f5cf119cbc9d2811c22)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** A Moon Shaped Pool
+**Album:** XO
 
-📅 2025-07-06 23:00:26
+📅 2025-07-07 16:36:23
 
 
-# **I'm Afraid Of Americans - 2021 Remaster** / David Bowie
+# **Main Titles** / Theodore Shapiro
 
-![Foto del album: Earthling (2021 Remaster)](https://i.scdn.co/image/ab67616d00001e02c137b4f6ee58510a5166bbae)
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
-**Album:** Earthling (2021 Remaster)
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-06 18:58:26
+📅 2025-07-07 16:31:05
 
 
-# **promise** / Kohmi Hirose
+# **Main Titles** / Theodore Shapiro
 
-![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
-**Album:** 広瀬香美 THE BEST "Love Winters"
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-06 16:36:24
+📅 2025-07-07 16:29:35
 
 
-# **promise** / Kohmi Hirose
+# **Hole** / Bent Knee
 
-![Foto del album: 広瀬香美 THE BEST "Love Winters"](https://i.scdn.co/image/ab67616d00001e028ad66b39a6e3dd6b93ac2407)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** 広瀬香美 THE BEST "Love Winters"
+**Album:** Land Animal
 
-📅 2025-07-06 16:28:40
+📅 2025-07-07 16:28:41
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Terror Bird** / Bent Knee
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Full Moon Fever
+**Album:** Land Animal
 
-📅 2025-07-06 16:23:58
+📅 2025-07-07 11:34:48
 
 
-# **Night Cover** / Matara Kan
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Night Cover
+**Album:** The Magnificent Tree
 
-📅 2025-07-06 16:19:51
+📅 2025-07-07 11:30:32
 
 
-# **Night Cover** / Matara Kan
+# **Cobel At Lumon** / Theodore Shapiro
 
-![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
-**Album:** Night Cover
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-06 16:10:49
+📅 2025-07-07 11:25:31
 
 
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
+# **The Four Tempers** / Theodore Shapiro
 
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e025670bce8efbcd76b11eb907b)
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
-**Album:** The Shocking Miss Emerald (The Remixes)
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-06 16:07:05
+📅 2025-07-07 11:24:56
 
 
-# **Holding On** / Aloboi
+# **Main Titles** / Theodore Shapiro
 
-![Foto del album: Holding On](https://i.scdn.co/image/ab67616d00001e02b3d3513c75c8754729fc4a54)
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
-**Album:** Holding On
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-06 16:03:36
+📅 2025-07-07 11:21:31
 
 
-# **Lovesong** / Adele
+# **Flutter Girl** / Chris Cornell
 
-![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e022118bf9b198b05a95ded6300)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** 21
+**Album:** Euphoria Morning
 
-📅 2025-07-06 15:59:32
+📅 2025-07-07 11:11:50
 
 
-# **Animal** / MISSIO
+# **Can't Change Me** / Chris Cornell
 
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e02eb3a6d9c69ee04f74b4250d4)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Loner
+**Album:** Euphoria Morning
 
-📅 2025-07-06 15:54:01
+📅 2025-07-07 11:07:33
 
 
-# **Dead and Gone** / The Black Keys
+# **The Passenger** / Iggy Pop
 
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
 
-**Album:** El Camino
+**Album:** Lust For Life
 
-📅 2025-07-06 15:37:49
+📅 2025-07-07 10:55:24
 
 
-# **New Sensation** / INXS
+# **Thunderstruck** / AC/DC
 
-![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+![Foto del album: The Razors Edge](https://i.scdn.co/image/ab67616d00001e028399047ff71200928f5b6508)
 
-**Album:** Kick (Remastered 2011)
+**Album:** The Razors Edge
 
-📅 2025-07-06 15:34:08
+📅 2025-07-07 10:36:18
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Lust For Life** / Iggy Pop
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
 
-**Album:** So (Special Edition)
+**Album:** Lust For Life
 
-📅 2025-07-06 15:30:27
+📅 2025-07-07 10:31:19
 
 
-# **Old Town Road (feat. Billy Ray Cyrus) - Remix** / Lil Nas X|Billy Ray Cyrus
+# **The Passenger** / Iggy Pop
 
-![Foto del album: 7](https://i.scdn.co/image/ab67616d00001e026239187793c9e492e687db01)
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
 
-**Album:** 7
+**Album:** Lust For Life
 
-📅 2025-07-06 15:25:13
+📅 2025-07-07 10:26:02
 
 
-# **Rompecabezas** / Aterciopelados
+# **London Calling - Remastered** / The Clash
 
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+![Foto del album: London Calling (Remastered)](https://i.scdn.co/image/ab67616d00001e02cd9d8bc9ef04014b6e90e182)
 
-**Album:** Gozo Poderoso
+**Album:** London Calling (Remastered)
 
-📅 2025-07-06 15:22:36
+📅 2025-07-07 10:20:35
+
+
+# **Tabu** / Gustavo Cerati
+
+![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
+
+**Album:** Bocanada
+
+📅 2025-07-07 10:17:13
 
 
 # **Let's Dance - 2018 Remaster** / David Bowie
@@ -181,13 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Let's Dance (2018 Remaster)
 
-📅 2025-07-06 15:12:55
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2025-07-06 15:04:58
+📅 2025-07-07 10:12:25
