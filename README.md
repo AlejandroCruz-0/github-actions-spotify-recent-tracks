@@ -13,94 +13,85 @@ Nombre: **lotario1999**
 
 
 
-# **Main Titles** / Theodore Shapiro
+# **Supermassive Black Hole** / Muse
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Black Holes and Revelations
 
-📅 2025-07-08 01:28:23
-
-
-# **Labor Of Love** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-08 01:13:35
+📅 2025-07-08 19:08:31
 
 
-# **Main Titles** / Theodore Shapiro
+# **Unto the Breach** / Clutch
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Earth Rocker
 
-📅 2025-07-08 01:11:32
-
-
-# **Hold Me, Thrill Me, Kiss Me, Kill Me - From 'Batman Forever'** / U2
-
-![Foto del album: The Best Of 1990-2000](https://i.scdn.co/image/ab67616d00001e02b333558e7d421458add756bb)
-
-**Album:** The Best Of 1990-2000
-
-📅 2025-07-07 18:11:33
+📅 2025-07-08 19:04:59
 
 
-# **Flutter Girl** / Chris Cornell
+# **Hey Man, Nice Shot - Remastered Version** / Filter
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Short Bus](https://i.scdn.co/image/ab67616d00001e02528903c46e4426b95a2c6d36)
 
-**Album:** Euphoria Morning
+**Album:** Short Bus
 
-📅 2025-07-07 16:42:00
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-07 16:36:23
+📅 2025-07-08 18:03:19
 
 
-# **Main Titles** / Theodore Shapiro
+# **Midlife Crisis** / Faith No More
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Angel Dust (Deluxe Edition)
 
-📅 2025-07-07 16:31:05
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-07 16:29:35
+📅 2025-07-08 17:54:32
 
 
-# **Hole** / Bent Knee
+# **Color Me Once** / Violent Femmes
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: The Crow Original Motion Picture Soundtrack](https://i.scdn.co/image/ab67616d00001e0208d27bfc2ff1a7b11b66c65c)
 
-**Album:** Land Animal
+**Album:** The Crow Original Motion Picture Soundtrack
 
-📅 2025-07-07 16:28:41
+📅 2025-07-08 16:55:56
 
 
-# **Terror Bird** / Bent Knee
+# **Jóga** / Björk
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Jóga](https://i.scdn.co/image/ab67616d00001e021073067c1cb1f9b6f88da329)
 
-**Album:** Land Animal
+**Album:** Jóga
 
-📅 2025-07-07 11:34:48
+📅 2025-07-08 16:51:44
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2025-07-08 16:46:40
+
+
+# **Street Spirit (Fade Out)** / Radiohead
+
+![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
+
+**Album:** The Bends
+
+📅 2025-07-08 16:42:19
+
+
+# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
+
+![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
+
+**Album:** With Orchestra Live
+
+📅 2025-07-08 16:01:57
 
 
 # **Mad About You** / Hooverphonic
@@ -109,25 +100,88 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-07-07 11:30:32
+📅 2025-07-08 15:57:57
 
 
-# **Cobel At Lumon** / Theodore Shapiro
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-07-08 15:53:54
+
+
+# **Independence Day** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-08 14:30:12
+
+
+# **Pitseleh** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-08 14:27:14
+
+
+# **Baby Britain** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-08 14:23:59
+
+
+# **Waltz #2 (XO)** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-08 14:20:34
+
+
+# **Waltz #2 (XO)** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-08 12:28:13
+
+
+# **Secret Places** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-07 11:25:31
+📅 2025-07-08 12:23:26
 
 
-# **The Four Tempers** / Theodore Shapiro
+# **Done For The Night** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-07 11:24:56
+📅 2025-07-08 12:19:18
+
+
+# **Tree Of Life** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-07-08 12:16:39
 
 
 # **Main Titles** / Theodore Shapiro
@@ -136,58 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2025-07-07 11:21:31
-
-
-# **Flutter Girl** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-07-07 11:11:50
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-07-07 11:07:33
-
-
-# **The Passenger** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2025-07-07 10:55:24
-
-
-# **Thunderstruck** / AC/DC
-
-![Foto del album: The Razors Edge](https://i.scdn.co/image/ab67616d00001e028399047ff71200928f5b6508)
-
-**Album:** The Razors Edge
-
-📅 2025-07-07 10:36:18
-
-
-# **Lust For Life** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2025-07-07 10:31:19
-
-
-# **The Passenger** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2025-07-07 10:26:02
+📅 2025-07-08 12:14:00
