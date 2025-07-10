@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Hot Together** / The Pointer Sisters
+
+![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+
+**Album:** Hot Together (Expanded Edition)
+
+📅 2025-07-09 22:44:50
+
+
+# **Hot Together** / The Pointer Sisters
+
+![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+
+**Album:** Hot Together (Expanded Edition)
+
+📅 2025-07-09 22:38:53
+
+
+# **Hot Together** / The Pointer Sisters
+
+![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+
+**Album:** Hot Together (Expanded Edition)
+
+📅 2025-07-09 22:32:01
+
+
+# **Everybody Cares, Everybody Understands** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-09 22:10:33
+
+
 # **A Question Mark** / Elliott Smith
 
 ![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** XO
 
 📅 2025-07-08 14:30:12
-
-
-# **Pitseleh** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-08 14:27:14
-
-
-# **Baby Britain** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-08 14:23:59
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-08 14:20:34
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-08 12:28:13
