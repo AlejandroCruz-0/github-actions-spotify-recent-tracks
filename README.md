@@ -19,142 +19,88 @@ Nombre: **lotario1999**
 
 **Album:** Hot Together (Expanded Edition)
 
-📅 2025-07-09 22:44:50
+📅 2025-07-10 17:29:00
 
 
-# **Hot Together** / The Pointer Sisters
+# **Pineapple Suite** / Cristobal Tapia De Veer
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2025-07-09 22:38:53
+📅 2025-07-10 17:25:13
 
 
-# **Hot Together** / The Pointer Sisters
+# **Avalanches** / Caravan Palace
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** Gangbusters Melody Club
 
-📅 2025-07-09 22:32:01
+📅 2025-07-10 14:53:23
 
 
-# **Everybody Cares, Everybody Understands** / Elliott Smith
+# **Avalanches** / Caravan Palace
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** XO
+**Album:** Gangbusters Melody Club
 
-📅 2025-07-09 22:10:33
+📅 2025-07-10 14:49:05
 
 
-# **A Question Mark** / Elliott Smith
+# **I Love You** / Woodkid
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: The Golden Age](https://i.scdn.co/image/ab67616d00001e02216fa486e2c3e899cacfe6bf)
 
-**Album:** XO
+**Album:** The Golden Age
 
-📅 2025-07-09 05:46:42
+📅 2025-07-10 14:44:55
 
 
-# **Bottle Up And Explode!** / Elliott Smith
+# **This Love** / Maroon 5
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Songs About Jane: 10th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e0292f2d790c6a97b195f66d51e)
 
-**Album:** XO
+**Album:** Songs About Jane: 10th Anniversary Edition
 
-📅 2025-07-09 05:43:52
+📅 2025-07-10 14:41:04
 
 
-# **Waltz #2 (XO)** / Elliott Smith
+# **Change (In the House of Flies)** / Deftones
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: White Pony](https://i.scdn.co/image/ab67616d00001e025c53799f473fa3e1a48c00ed)
 
-**Album:** XO
+**Album:** White Pony
 
-📅 2025-07-09 05:40:30
+📅 2025-07-10 14:36:29
 
 
-# **Main Titles** / Theodore Shapiro
+# **MAD** / Caravan Palace
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Gangbusters Melody Club
 
-📅 2025-07-09 05:35:12
+📅 2025-07-10 14:31:28
 
 
-# **Supermassive Black Hole** / Muse
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** Black Holes and Revelations
+**Album:** Panic
 
-📅 2025-07-08 19:08:31
+📅 2025-07-10 13:00:36
 
 
-# **Unto the Breach** / Clutch
+# **Congregation** / Low
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Earth Rocker
+**Album:** Ones and Sixes
 
-📅 2025-07-08 19:04:59
-
-
-# **Hey Man, Nice Shot - Remastered Version** / Filter
-
-![Foto del album: Short Bus](https://i.scdn.co/image/ab67616d00001e02528903c46e4426b95a2c6d36)
-
-**Album:** Short Bus
-
-📅 2025-07-08 18:03:19
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2025-07-08 17:54:32
-
-
-# **Color Me Once** / Violent Femmes
-
-![Foto del album: The Crow Original Motion Picture Soundtrack](https://i.scdn.co/image/ab67616d00001e0208d27bfc2ff1a7b11b66c65c)
-
-**Album:** The Crow Original Motion Picture Soundtrack
-
-📅 2025-07-08 16:55:56
-
-
-# **Jóga** / Björk
-
-![Foto del album: Jóga](https://i.scdn.co/image/ab67616d00001e021073067c1cb1f9b6f88da329)
-
-**Album:** Jóga
-
-📅 2025-07-08 16:51:44
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2025-07-08 16:46:40
-
-
-# **Street Spirit (Fade Out)** / Radiohead
-
-![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
-
-**Album:** The Bends
-
-📅 2025-07-08 16:42:19
+📅 2025-07-10 12:52:02
 
 
 # **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
@@ -163,31 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** With Orchestra Live
 
-📅 2025-07-08 16:01:57
+📅 2025-07-10 12:48:10
 
 
-# **Mad About You** / Hooverphonic
+# **Good Souls** / Starsailor
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Love Is Here](https://i.scdn.co/image/ab67616d00001e02b2558d8082f26c1b2e0b7e59)
 
-**Album:** The Magnificent Tree
+**Album:** Love Is Here
 
-📅 2025-07-08 15:57:57
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-07-08 15:53:54
+📅 2025-07-10 12:43:54
 
 
-# **Independence Day** / Elliott Smith
+# **81 Special** / Caravan Palace
 
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** XO
+**Album:** Gangbusters Melody Club
 
-📅 2025-07-08 14:30:12
+📅 2025-07-10 12:39:02
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+
+**Album:** Dear Science
+
+📅 2025-07-10 12:35:04
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2025-07-10 12:31:16
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2025-07-10 12:27:35
+
+
+# **Goodbye Stranger - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2025-07-10 12:22:56
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2025-07-10 12:17:04
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2025-07-10 12:12:47
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+
+**Album:** Twilight
+
+📅 2025-07-10 11:51:56
