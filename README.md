@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **I Feel the Earth Move** / Carole King
+
+![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
+
+**Album:** Tapestry
+
+📅 2025-07-11 22:21:40
+
+
 # **Legendary** / Welshly Arms
 
 ![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
 📅 2025-07-11 11:54:10
-
-
-# **Done For The Night** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 11:50:20
