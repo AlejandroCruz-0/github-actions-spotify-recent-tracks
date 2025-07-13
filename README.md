@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **Labor Of Love** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-07-12 20:20:13
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-07-12 20:18:09
+
+
+# **Riot** / Three Days Grace
+
+![Foto del album: One-X](https://i.scdn.co/image/ab67616d00001e02e773763694ac5eb7f2aa0a37)
+
+**Album:** One-X
+
+📅 2025-07-12 20:16:56
+
+
+# **Bodies** / Drowning Pool
+
+![Foto del album: Sinner](https://i.scdn.co/image/ab67616d00001e0226d45b50f2016fed43d54320)
+
+**Album:** Sinner
+
+📅 2025-07-12 16:04:15
+
+
+# **How to Shake Hands** / Clutch
+
+![Foto del album: Book of Bad Decisions](https://i.scdn.co/image/ab67616d00001e0272f80d42e376282a395b8f10)
+
+**Album:** Book of Bad Decisions
+
+📅 2025-07-12 16:00:22
+
+
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-07-12 15:56:32
+
+
+# **Sucker for the Witch** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-07-12 15:11:03
+
+
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-07-12 15:07:37
+
+
+# **Independence Day** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-12 15:00:12
+
+
+# **Pitseleh** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-12 14:57:08
+
+
+# **Baby Britain** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-12 14:53:45
+
+
+# **Waltz #2 (XO)** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-12 14:50:32
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-07-12 14:46:18
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-07-12 11:37:11
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-07-12 11:33:15
+
+
 # **I Feel the Earth Move** / Carole King
 
 ![Foto del album: Tapestry](https://i.scdn.co/image/ab67616d00001e0223350feac07f56d8b96f33d5)
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** Back In Black
 
 📅 2025-07-11 14:31:29
-
-
-# **Duvet** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-07-11 14:22:26
-
-
-# **Mad About You - Live at Koningin Elisabethzaal 2012** / Hooverphonic
-
-![Foto del album: With Orchestra Live](https://i.scdn.co/image/ab67616d00001e02a2ba541bf05e093437e60598)
-
-**Album:** With Orchestra Live
-
-📅 2025-07-11 14:16:47
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-07-11 14:12:57
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-07-11 14:09:37
-
-
-# **Labor Of Love** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:54:40
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:52:36
-
-
-# **Alive** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:15:49
-
-
-# **Cobel At Lumon** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:12:58
-
-
-# **That Innie** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:11:34
-
-
-# **The Four Tempers** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:06:08
-
-
-# **Safely Situated** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:03:55
-
-
-# **Batter Up** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 12:02:30
-
-
-# **After Hours** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 11:59:22
-
-
-# **Interdepartmental** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 11:55:29
-
-
-# **Secret Places** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-07-11 11:54:10
