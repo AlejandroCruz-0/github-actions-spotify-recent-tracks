@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **How to Shake Hands** / Clutch
+# **81 Special** / Caravan Palace
 
-![Foto del album: Book of Bad Decisions](https://i.scdn.co/image/ab67616d00001e0272f80d42e376282a395b8f10)
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
-**Album:** Book of Bad Decisions
+**Album:** Gangbusters Melody Club
 
-📅 2025-07-13 19:11:55
+📅 2025-07-14 17:53:19
 
 
-# **Your Love Is Incarceration** / Clutch
+# **Like a Stone** / Audioslave
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
 
-**Album:** Psychic Warfare
+**Album:** Audioslave
 
-📅 2025-07-13 17:19:16
+📅 2025-07-14 17:17:24
 
 
-# **Sucker for the Witch** / Clutch
+# **Wolf Like Me** / TV On The Radio
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
 
-**Album:** Psychic Warfare
+**Album:** Return To Cookie Mountain
 
-📅 2025-07-13 17:15:21
+📅 2025-07-14 17:12:30
 
 
-# **Your Love Is Incarceration** / Clutch
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Psychic Warfare
+**Album:** Land Animal
 
-📅 2025-07-13 17:12:01
+📅 2025-07-14 17:05:13
 
 
-# **Maneater** / Daryl Hall & John Oates
+# **Dead and Gone** / The Black Keys
 
-![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
 
-**Album:** H2O
+**Album:** El Camino
 
-📅 2025-07-13 17:07:44
+📅 2025-07-14 16:59:39
 
 
-# **Lumière - Promenade dans Lumière** / Lorien Testard
+# **Firestarter** / The Prodigy
 
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e0212c7bf72ac60b9fb362c182a)
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
 
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+**Album:** The Fat of the Land
 
-📅 2025-07-13 17:02:49
+📅 2025-07-14 16:55:58
 
 
-# **Lumière - Lumière à l’Aube** / Lorien Testard
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e0212c7bf72ac60b9fb362c182a)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-07-13 16:59:25
+📅 2025-07-14 16:35:15
 
 
-# **Lumière** / Lorien Testard|Alice Duport-Percier
+# **Your Woman** / White Town
 
-![Foto del album: Clair Obscur: Expedition 33 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e0212c7bf72ac60b9fb362c182a)
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
 
-**Album:** Clair Obscur: Expedition 33 (Original Soundtrack)
+**Album:** Women in Technology
 
-📅 2025-07-13 16:55:33
+📅 2025-07-14 16:30:40
 
 
-# **INVISIBLE** / Duran Duran
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: FUTURE PAST](https://i.scdn.co/image/ab67616d00001e026a5be5601ccc727d0dbb9c1f)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** FUTURE PAST
+**Album:** Bueninvento
 
-📅 2025-07-13 16:50:37
+📅 2025-07-14 14:58:51
 
 
-# **Hot Together** / The Pointer Sisters
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2025-07-13 16:47:25
+📅 2025-07-14 14:55:25
 
 
-# **The Passenger** / Iggy Pop
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** Lust For Life
+**Album:** Thirteenth Step
 
-📅 2025-07-13 14:57:07
+📅 2025-07-14 14:50:44
 
 
-# **Hot Together** / The Pointer Sisters
+# **Scoring** / bôa
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** Twilight
 
-📅 2025-07-13 14:52:10
+📅 2025-07-14 14:46:37
 
 
-# **Hot Together** / The Pointer Sisters
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** Euphoria Morning
 
-📅 2025-07-13 13:03:54
+📅 2025-07-14 13:07:26
 
 
-# **Self Control** / Laura Branigan
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Self Control](https://i.scdn.co/image/ab67616d00001e021310670cbb82f06474372cfd)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Self Control
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-07-13 11:38:05
+📅 2025-07-14 13:01:41
 
 
-# **Crystal Skies (Sped Up)** / VXLLAIN|iGRES|ENXK
+# **Glory Box** / Portishead
 
-![Foto del album: Crystal Skies](https://i.scdn.co/image/ab67616d00001e028fd9e6283256f898d786f69d)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Crystal Skies
+**Album:** Dummy
 
-📅 2025-07-13 11:33:58
+📅 2025-07-14 12:55:23
 
 
-# **Scarface (Push It To The Limit)** / Paul Engemann
+# **Moonchild** / Chris Cornell
 
-![Foto del album: Scarface (Expanded Motion Picture Soundtrack)](https://i.scdn.co/image/ab67616d00001e0297475ef2470f186d30235fe3)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Scarface (Expanded Motion Picture Soundtrack)
+**Album:** Euphoria Morning
 
-📅 2025-07-13 11:31:24
+📅 2025-07-14 12:50:14
 
 
-# **Paradise** / Sade
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: The Best of Sade](https://i.scdn.co/image/ab67616d00001e025e25e034e25258b356774c79)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Best of Sade
+**Album:** Euphoria Morning
 
-📅 2025-07-13 11:28:26
+📅 2025-07-14 12:46:12
 
 
-# **Hot Together** / The Pointer Sisters
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** Euphoria Morning
 
-📅 2025-07-13 11:24:47
+📅 2025-07-14 12:40:55
 
 
-# **Special (2018 Remaster)** / Garbage
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** The Magnificent Tree
 
-📅 2025-07-13 11:20:38
+📅 2025-07-14 12:37:09
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Not Like Us
+**Album:** The Magnificent Tree
 
-📅 2025-07-12 23:12:46
+📅 2025-07-14 12:33:27
