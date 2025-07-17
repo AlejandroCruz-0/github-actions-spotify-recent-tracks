@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Independence Day** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-16 11:53:11
+
+
+# **Pitseleh** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-16 10:10:39
+
+
+# **Baby Britain** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-16 10:07:16
+
+
+# **Waltz #2 (XO)** / Elliott Smith
+
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
+
+**Album:** XO
+
+📅 2025-07-16 10:04:03
+
+
 # **Main Titles** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Gangbusters Melody Club
 
 📅 2025-07-14 17:53:19
-
-
-# **Like a Stone** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2025-07-14 17:17:24
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
-
-**Album:** Return To Cookie Mountain
-
-📅 2025-07-14 17:12:30
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-07-14 17:05:13
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2025-07-14 16:59:39
