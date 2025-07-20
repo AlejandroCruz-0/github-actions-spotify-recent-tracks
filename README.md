@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **High and Dry** / Radiohead
+
+![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
+
+**Album:** The Bends
+
+📅 2025-07-19 22:46:05
+
+
+# **In the Meantime** / Spacehog
+
+![Foto del album: Resident Alien](https://i.scdn.co/image/ab67616d00001e029511e3a2fc113eae0dd111dd)
+
+**Album:** Resident Alien
+
+📅 2025-07-19 22:41:47
+
+
+# **Machinehead - Remastered** / Bush
+
+![Foto del album: Sixteen Stone (Remastered)](https://i.scdn.co/image/ab67616d00001e021581237e4d580feafaed6bc0)
+
+**Album:** Sixteen Stone (Remastered)
+
+📅 2025-07-19 22:36:47
+
+
+# **Mrs. Robinson - 2022 Remastered Edition** / The Lemonheads
+
+![Foto del album: It's a Shame About Ray (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0245251c9ca2c4296acf0e8980)
+
+**Album:** It's a Shame About Ray (Expanded Edition)
+
+📅 2025-07-19 22:32:31
+
+
+# **Say It Ain't So - Original Mix** / Weezer
+
+![Foto del album: Weezer](https://i.scdn.co/image/ab67616d00001e02345536847e60f622ee0eae96)
+
+**Album:** Weezer
+
+📅 2025-07-19 22:28:46
+
+
+# **Only Happy When It Rains - 2015 Remaster** / Garbage
+
+![Foto del album: Garbage (20th Anniversary Super Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0215a5f121a2b5b459643231c3)
+
+**Album:** Garbage (20th Anniversary Super Deluxe Edition)
+
+📅 2025-07-19 22:24:26
+
+
+# **Fell On Black Days** / Soundgarden
+
+![Foto del album: Superunknown (20th Anniversary)](https://i.scdn.co/image/ab67616d00001e025124ed45a94033830b320500)
+
+**Album:** Superunknown (20th Anniversary)
+
+📅 2025-07-19 22:20:29
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2025-07-19 22:14:39
+
+
+# **Breakfast In America - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2025-07-19 22:10:37
+
+
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2025-07-19 22:05:27
+
+
 # **Glory Box** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** XO
 
 📅 2025-07-19 16:29:45
-
-
-# **Baby Britain** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-19 16:26:22
-
-
-# **Waltz #2 (XO)** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-19 16:23:39
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 16:18:09
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 16:13:00
-
-
-# **Breakfast In America - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 16:08:58
-
-
-# **Just Another Nervous Wreck - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 16:05:09
-
-
-# **Lord Is It Mine - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 16:00:44
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 15:56:36
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 15:51:25
-
-
-# **Breakfast In America - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-07-19 15:47:22
