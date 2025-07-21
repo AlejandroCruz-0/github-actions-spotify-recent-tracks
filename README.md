@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Sliver** / Nirvana
+
+![Foto del album: Incesticide](https://i.scdn.co/image/ab67616d00001e02e1f5fcef5fb5f70aa0a717fc)
+
+**Album:** Incesticide
+
+📅 2025-07-20 18:52:15
+
+
+# **DLZ** / TV On The Radio
+
+![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e0213bfc2f5f0debc84f100b9ef)
+
+**Album:** Dear Science
+
+📅 2025-07-20 18:42:27
+
+
+# **The First Hunter** / SIE Sound Team
+
+![Foto del album: Bloodborne Original Soundtrack](https://i.scdn.co/image/ab67616d00001e022472601180911ff89445cbc8)
+
+**Album:** Bloodborne Original Soundtrack
+
+📅 2025-07-20 18:31:40
+
+
+# **Awakening** / Knut Avenstroup Haugen|The Chamber Orchestra Of London
+
+![Foto del album: Dune: Awakening (Original Video Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02a655b715e7810426eb15080b)
+
+**Album:** Dune: Awakening (Original Video Game Soundtrack)
+
+📅 2025-07-20 18:25:23
+
+
+# **Elden Ring** / Tsukasa Saitoh
+
+![Foto del album: ELDEN RING ORIGINAL SOUND TRACK](https://i.scdn.co/image/ab67616d00001e024cf5f1a605482e2aa10b5740)
+
+**Album:** ELDEN RING ORIGINAL SOUND TRACK
+
+📅 2025-07-20 18:23:48
+
+
+# **Powder Blue** / Elbow
+
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
+
+**Album:** Asleep In The Back (Deluxe Edition)
+
+📅 2025-07-20 18:22:09
+
+
+# **Little Beast** / Elbow
+
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
+
+**Album:** Asleep In The Back (Deluxe Edition)
+
+📅 2025-07-20 18:17:17
+
+
+# **Red** / Elbow
+
+![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
+
+**Album:** Asleep In The Back (Deluxe Edition)
+
+📅 2025-07-20 18:13:02
+
+
 # **High and Dry** / Radiohead
 
 ![Foto del album: The Bends](https://i.scdn.co/image/ab67616d00001e029293c743fa542094336c5e12)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-07-19 17:04:48
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-07-19 16:57:10
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-07-19 16:52:42
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-07-19 16:48:07
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-07-19 16:44:22
-
-
-# **Red** / Elbow
-
-![Foto del album: Asleep In The Back (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e028817451d816850417318fdf4)
-
-**Album:** Asleep In The Back (Deluxe Edition)
-
-📅 2025-07-19 16:43:52
-
-
-# **Bled White** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-19 16:36:12
-
-
-# **Independence Day** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-19 16:32:50
-
-
-# **Pitseleh** / Elliott Smith
-
-![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
-
-**Album:** XO
-
-📅 2025-07-19 16:29:45
