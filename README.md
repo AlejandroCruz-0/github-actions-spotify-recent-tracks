@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Pitseleh** / Elliott Smith
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** XO
 
-📅 2025-07-30 18:20:19
+📅 2025-07-31 19:35:39
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Baby Britain** / Elliott Smith
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** XO
 
-📅 2025-07-30 17:19:32
+📅 2025-07-31 19:32:17
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Waltz #2 (XO)** / Elliott Smith
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: XO](https://i.scdn.co/image/ab67616d00001e02cdf1be0ff556d169eade4368)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** XO
 
-📅 2025-07-30 15:31:52
+📅 2025-07-31 19:29:03
 
 
-# **Wolf Like Me** / TV On The Radio
+# **Judas** / Depeche Mode
 
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e029a9c25a9f9f7adb419694a4b)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Return To Cookie Mountain
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-07-30 15:28:17
+📅 2025-07-31 19:24:25
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Wonderland** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** <I°_°I>
 
-📅 2025-07-30 12:00:32
+📅 2025-07-31 18:39:20
 
 
-# **A Face In The Crowd** / Tom Petty
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
 
-**Album:** Full Moon Fever
+**Album:** Land Animal
 
-📅 2025-07-30 11:55:49
+📅 2025-07-31 15:16:04
 
 
-# **Love Is A Long Road** / Tom Petty
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Full Moon Fever
+**Album:** Bueninvento
 
-📅 2025-07-30 11:27:49
+📅 2025-07-31 15:10:30
 
 
-# **Main Titles** / Theodore Shapiro
+# **Fever** / The Black Keys
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Turn Blue](https://i.scdn.co/image/ab67616d00001e021af8fb0d8859055d35d2290f)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Turn Blue
 
-📅 2025-07-30 10:51:48
+📅 2025-07-31 15:07:04
 
 
-# **Labor Of Love** / Theodore Shapiro
+# **Two Weeks** / FKA twigs
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** LP1
 
-📅 2025-07-30 10:50:36
+📅 2025-07-31 15:02:58
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Deeper Underground - Full Version** / Jamiroquai
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Synkronized](https://i.scdn.co/image/ab67616d00001e024ccb64f022a53d3e8ec84a20)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Synkronized
 
-📅 2025-07-30 10:32:57
+📅 2025-07-31 14:58:50
 
 
-# **Breakfast In America - Remastered 2010** / Supertramp
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** <I°_°I>
 
-📅 2025-07-30 10:28:52
+📅 2025-07-31 14:44:14
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Sweet Euphoria** / Chris Cornell
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Euphoria Morning
 
-📅 2025-07-30 09:40:32
+📅 2025-07-31 14:40:27
 
 
-# **Your Love Is Incarceration** / Clutch
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Psychic Warfare
+**Album:** Bueninvento
 
-📅 2025-07-29 19:23:16
+📅 2025-07-31 13:35:29
 
 
-# **Hells Bells** / AC/DC
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Back In Black
+**Album:** Euphoria Morning
 
-📅 2025-07-29 19:19:49
+📅 2025-07-31 13:19:43
 
 
-# **It's a Long Way to the Top (If You Wanna Rock 'N' Roll)** / AC/DC
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: High Voltage](https://i.scdn.co/image/ab67616d00001e02286a0837ff3424065a735e0a)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** High Voltage
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-07-29 19:14:08
+📅 2025-07-31 13:14:37
 
 
-# **Back In Black** / AC/DC
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Back In Black
+**Album:** The Magnificent Tree
 
-📅 2025-07-29 19:09:06
+📅 2025-07-31 13:10:07
 
 
-# **T.N.T.** / AC/DC
+# **Glory Box** / Portishead
 
-![Foto del album: High Voltage](https://i.scdn.co/image/ab67616d00001e02286a0837ff3424065a735e0a)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** High Voltage
+**Album:** Dummy
 
-📅 2025-07-29 19:00:22
+📅 2025-07-31 13:06:11
 
 
-# **You Shook Me All Night Long** / AC/DC
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e020b51f8d91f3a21e8426361ae)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Back In Black
+**Album:** The Magnificent Tree
 
-📅 2025-07-29 18:56:47
+📅 2025-07-31 13:00:59
 
 
-# **Highway to Hell** / AC/DC
+# **Glory Box** / Portishead
 
-![Foto del album: Highway to Hell](https://i.scdn.co/image/ab67616d00001e0251c02a77d09dfcd53c8676d0)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Highway to Hell
+**Album:** Dummy
 
-📅 2025-07-29 18:53:16
+📅 2025-07-31 12:56:42
 
 
-# **Thunderstruck** / AC/DC
+# **Moonchild** / Chris Cornell
 
-![Foto del album: The Razors Edge](https://i.scdn.co/image/ab67616d00001e028399047ff71200928f5b6508)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Razors Edge
+**Album:** Euphoria Morning
 
-📅 2025-07-29 18:45:49
+📅 2025-07-31 12:51:31
