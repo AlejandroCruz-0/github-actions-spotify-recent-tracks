@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Unshaken** / D'Angelo
+
+![Foto del album: The Music of Red Dead Redemption 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02f337a21d945f44e802a1eb1d)
+
+**Album:** The Music of Red Dead Redemption 2 (Original Soundtrack)
+
+📅 2025-08-03 00:37:47
+
+
 # **Hot Together** / The Pointer Sisters
 
 ![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Thirteenth Step
 
 📅 2025-08-01 15:11:28
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-08-01 11:14:09
