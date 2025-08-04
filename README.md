@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Hold Me, Thrill Me, Kiss Me, Kill Me - From 'Batman Forever'** / U2
+
+![Foto del album: The Best Of 1990-2000](https://i.scdn.co/image/ab67616d00001e02b333558e7d421458add756bb)
+
+**Album:** The Best Of 1990-2000
+
+📅 2025-08-03 22:14:55
+
+
+# **Evidence - 2016 Remaster** / Faith No More
+
+![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+
+**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+
+📅 2025-08-03 22:10:10
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2025-08-03 22:05:16
+
+
 # **On the Level** / Leonard Cohen
 
 ![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Music of Red Dead Redemption 2 (Original Soundtrack)
 
 📅 2025-08-03 12:09:08
-
-
-# **Unshaken** / D'Angelo
-
-![Foto del album: The Music of Red Dead Redemption 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02f337a21d945f44e802a1eb1d)
-
-**Album:** The Music of Red Dead Redemption 2 (Original Soundtrack)
-
-📅 2025-08-03 00:37:47
-
-
-# **Hot Together** / The Pointer Sisters
-
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
-
-**Album:** Hot Together (Expanded Edition)
-
-📅 2025-08-02 20:57:57
-
-
-# **Hot Together** / The Pointer Sisters
-
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
-
-**Album:** Hot Together (Expanded Edition)
-
-📅 2025-08-02 20:40:43
