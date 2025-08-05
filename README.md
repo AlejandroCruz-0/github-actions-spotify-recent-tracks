@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **What's Happening Brother** / Marvin Gaye
+
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
+
+**Album:** What's Going On
+
+📅 2025-08-05 00:58:52
+
+
+# **What's Going On** / Marvin Gaye
+
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
+
+**Album:** What's Going On
+
+📅 2025-08-05 00:56:38
+
+
+# **Superfly** / Curtis Mayfield
+
+![Foto del album: Superfly (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02532e0956a0f5ae7418c63ceb)
+
+**Album:** Superfly (Original Soundtrack)
+
+📅 2025-08-05 00:49:32
+
+
+# **Who Is He (And What Is He to You)?** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-08-05 00:45:38
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-08-05 00:42:23
+
+
+# **Take Me to the River** / Al Green
+
+![Foto del album: Al Green Explores Your Mind](https://i.scdn.co/image/ab67616d00001e02bea5c345ec616678c372ac2f)
+
+**Album:** Al Green Explores Your Mind
+
+📅 2025-08-05 00:40:18
+
+
+# **Let's Stay Together** / Al Green
+
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
+
+**Album:** Let's Stay Together
+
+📅 2025-08-05 00:31:24
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-05 00:26:11
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2025-08-05 00:23:15
+
+
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Time For Dreaming
 
 📅 2025-08-04 16:22:45
-
-
-# **If You Want Me to Stay** / Sly & The Family Stone
-
-![Foto del album: Fresh](https://i.scdn.co/image/ab67616d00001e020b1804895a3ce499c4212bca)
-
-**Album:** Fresh
-
-📅 2025-08-04 14:04:32
-
-
-# **Down By The River** / Buddy Miles
-
-![Foto del album: Them Changes](https://i.scdn.co/image/ab67616d00001e02e56fa33678b78030ef42aace)
-
-**Album:** Them Changes
-
-📅 2025-08-04 14:01:32
-
-
-# **Who Knows** / Marion Black
-
-![Foto del album: Who Knows b/w Go On Fool](https://i.scdn.co/image/ab67616d00001e02a4cb2b3467966468c4159e68)
-
-**Album:** Who Knows b/w Go On Fool
-
-📅 2025-08-04 13:55:11
-
-
-# **My Lover's Prayer** / Otis Redding
-
-![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
-
-**Album:** The Very Best of Otis Redding
-
-📅 2025-08-04 13:52:59
-
-
-# **Let's Stay Together** / Al Green
-
-![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
-
-**Album:** Let's Stay Together
-
-📅 2025-08-04 13:49:40
-
-
-# **Let's Stay Together** / Al Green
-
-![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
-
-**Album:** Let's Stay Together
-
-📅 2025-08-04 13:45:33
-
-
-# **California Dreamin'** / Eddie Hazel
-
-![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
-
-**Album:** Game, Dames And Guitar Thangs
-
-📅 2025-08-04 13:42:13
-
-
-# **Chains And Things** / B.B. King
-
-![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
-
-**Album:** Indianola Mississippi Seeds
-
-📅 2025-08-04 13:35:55
-
-
-# **The Same Love That Made Me Laugh** / Bill Withers
-
-![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
-
-**Album:** 'Justments
-
-📅 2025-08-04 13:31:01
