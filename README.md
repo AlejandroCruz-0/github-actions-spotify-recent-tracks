@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Hold Me, Thrill Me, Kiss Me, Kill Me - From 'Batman Forever'** / U2
+# **Will Do** / TV On The Radio
 
-![Foto del album: The Best Of 1990-2000](https://i.scdn.co/image/ab67616d00001e02b333558e7d421458add756bb)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** The Best Of 1990-2000
+**Album:** Nine Types of Light
 
-📅 2025-08-03 22:14:55
+📅 2025-08-04 17:37:58
 
 
-# **Evidence - 2016 Remaster** / Faith No More
+# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
 
-![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e0227d9305b8da23553e8f3e319)
 
-**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
 
-📅 2025-08-03 22:10:10
+📅 2025-08-04 17:34:12
 
 
-# **Midlife Crisis** / Faith No More
+# **I Feel You** / Depeche Mode
 
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Angel Dust (Deluxe Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-08-03 22:05:16
+📅 2025-08-04 17:32:09
 
 
-# **On the Level** / Leonard Cohen
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e028fc3f01275cae3d8ecb1c26b)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** You Want It Darker
+**Album:** The Magnificent Tree
 
-📅 2025-08-03 20:22:52
+📅 2025-08-04 17:27:34
 
 
-# **Closing Time** / Leonard Cohen
+# **Mad About You** / Hooverphonic
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** The Future
+**Album:** The Magnificent Tree
 
-📅 2025-08-03 20:19:24
+📅 2025-08-04 17:20:20
 
 
-# **Bird on the Wire** / Leonard Cohen
+# **Ain't No Sunshine** / Bill Withers
 
-![Foto del album: Songs From A Room](https://i.scdn.co/image/ab67616d00001e02f6d9829249efe7ddd08f1b00)
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
 
-**Album:** Songs From A Room
+**Album:** Just As I Am
 
-📅 2025-08-03 19:44:23
+📅 2025-08-04 17:16:37
 
 
-# **Closing Time** / Leonard Cohen
+# **Ain't No Sunshine** / Bill Withers
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02c590964fc4f433f500ebf0b6)
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
 
-**Album:** The Future
+**Album:** Just As I Am
 
-📅 2025-08-03 19:40:56
+📅 2025-08-04 17:00:51
 
 
-# **Maneater** / Daryl Hall & John Oates
+# **The Same Love That Made Me Laugh** / Bill Withers
 
-![Foto del album: H2O](https://i.scdn.co/image/ab67616d00001e02cfe4163cbb6d12f3ec15898e)
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
 
-**Album:** H2O
+**Album:** 'Justments
 
-📅 2025-08-03 19:34:02
+📅 2025-08-04 16:58:46
 
 
-# **Arkham City Main Theme** / Nick Arundel
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
 
-![Foto del album: Batman: Arkham City (Original Video Game Score)](https://i.scdn.co/image/ab67616d00001e02947f89646e236798bae3aa1b)
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
 
-**Album:** Batman: Arkham City (Original Video Game Score)
+**Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2025-08-03 18:01:37
+📅 2025-08-04 16:55:32
 
 
-# **Cleric Beast** / SIE Sound Team
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
-![Foto del album: Bloodborne Original Soundtrack](https://i.scdn.co/image/ab67616d00001e022472601180911ff89445cbc8)
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
 
-**Album:** Bloodborne Original Soundtrack
+**Album:** No Time For Dreaming
 
-📅 2025-08-03 17:58:49
+📅 2025-08-04 16:51:38
 
 
-# **Harvest Dawn** / Jeremy Soule
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
-![Foto del album: The Elder Scrolls IV: Oblivion: Original Game Soundtrack](https://i.scdn.co/image/ab67616d00001e02db65cfec2e8e37303140c881)
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
 
-**Album:** The Elder Scrolls IV: Oblivion: Original Game Soundtrack
+**Album:** No Time For Dreaming
 
-📅 2025-08-03 17:56:14
+📅 2025-08-04 16:22:45
 
 
-# **Elden Ring** / Tsukasa Saitoh
+# **If You Want Me to Stay** / Sly & The Family Stone
 
-![Foto del album: ELDEN RING ORIGINAL SOUND TRACK](https://i.scdn.co/image/ab67616d00001e024cf5f1a605482e2aa10b5740)
+![Foto del album: Fresh](https://i.scdn.co/image/ab67616d00001e020b1804895a3ce499c4212bca)
 
-**Album:** ELDEN RING ORIGINAL SOUND TRACK
+**Album:** Fresh
 
-📅 2025-08-03 17:52:52
+📅 2025-08-04 14:04:32
 
 
-# **Main Title** / Inon Zur
+# **Down By The River** / Buddy Miles
 
-![Foto del album: Fallout 3: Original Game Soundtrack](https://i.scdn.co/image/ab67616d00001e02d6232ff09c367d19f9e083bd)
+![Foto del album: Them Changes](https://i.scdn.co/image/ab67616d00001e02e56fa33678b78030ef42aace)
 
-**Album:** Fallout 3: Original Game Soundtrack
+**Album:** Them Changes
 
-📅 2025-08-03 17:51:12
+📅 2025-08-04 14:01:32
 
 
-# **Fallout 4 Main Theme** / Inon Zur
+# **Who Knows** / Marion Black
 
-![Foto del album: Fallout 4 (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02050fea0d19777c55cf3453c2)
+![Foto del album: Who Knows b/w Go On Fool](https://i.scdn.co/image/ab67616d00001e02a4cb2b3467966468c4159e68)
 
-**Album:** Fallout 4 (Original Game Soundtrack)
+**Album:** Who Knows b/w Go On Fool
 
-📅 2025-08-03 17:49:07
+📅 2025-08-04 13:55:11
 
 
-# **The Passenger** / Iggy Pop
+# **My Lover's Prayer** / Otis Redding
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
 
-**Album:** Lust For Life
+**Album:** The Very Best of Otis Redding
 
-📅 2025-08-03 17:45:54
+📅 2025-08-04 13:52:59
 
 
-# **Self Control** / Laura Branigan
+# **Let's Stay Together** / Al Green
 
-![Foto del album: Self Control](https://i.scdn.co/image/ab67616d00001e021310670cbb82f06474372cfd)
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
 
-**Album:** Self Control
+**Album:** Let's Stay Together
 
-📅 2025-08-03 17:40:27
+📅 2025-08-04 13:49:40
 
 
-# **Hot Together** / The Pointer Sisters
+# **Let's Stay Together** / Al Green
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** Let's Stay Together
 
-📅 2025-08-03 17:36:21
+📅 2025-08-04 13:45:33
 
 
-# **Hot Together** / The Pointer Sisters
+# **California Dreamin'** / Eddie Hazel
 
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
 
-**Album:** Hot Together (Expanded Edition)
+**Album:** Game, Dames And Guitar Thangs
 
-📅 2025-08-03 12:56:59
+📅 2025-08-04 13:42:13
 
 
-# **Moonlight** / Daniel Lanois|Daryl Johnson|Joseph Maize|Darryl Hatcher|Rhiannon Giddens
+# **Chains And Things** / B.B. King
 
-![Foto del album: The Music of Red Dead Redemption 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02f337a21d945f44e802a1eb1d)
+![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
 
-**Album:** The Music of Red Dead Redemption 2 (Original Soundtrack)
+**Album:** Indianola Mississippi Seeds
 
-📅 2025-08-03 12:12:44
+📅 2025-08-04 13:35:55
 
 
-# **Unshaken** / D'Angelo
+# **The Same Love That Made Me Laugh** / Bill Withers
 
-![Foto del album: The Music of Red Dead Redemption 2 (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02f337a21d945f44e802a1eb1d)
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
 
-**Album:** The Music of Red Dead Redemption 2 (Original Soundtrack)
+**Album:** 'Justments
 
-📅 2025-08-03 12:09:08
+📅 2025-08-04 13:31:01
