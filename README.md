@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-08-06 08:24:00
+
+
+# **Let's Stay Together** / Al Green
+
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
+
+**Album:** Let's Stay Together
+
+📅 2025-08-06 08:21:53
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-06 08:18:21
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-06 08:15:00
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-05 23:46:41
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-05 23:43:46
+
+
 # **The Same Love That Made Me Laugh** / Bill Withers
 
 ![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Time For Dreaming
 
 📅 2025-08-05 14:14:00
-
-
-# **How Long Do I Have to Wait for You?** / Sharon Jones & The Dap-Kings
-
-![Foto del album: Naturally](https://i.scdn.co/image/ab67616d00001e02df3758942cfbd400814b09b2)
-
-**Album:** Naturally
-
-📅 2025-08-05 14:11:05
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-05 13:30:37
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-05 13:06:40
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-05 12:59:43
-
-
-# **Love and Happiness** / Al Green
-
-![Foto del album: I'm Still in Love with You](https://i.scdn.co/image/ab67616d00001e025bba82fc0d047f6f23177767)
-
-**Album:** I'm Still in Love with You
-
-📅 2025-08-05 12:47:16
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-05 12:41:57
