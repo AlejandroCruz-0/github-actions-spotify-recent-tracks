@@ -19,7 +19,97 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-07 18:09:01
+📅 2025-08-08 20:43:20
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 20:39:30
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 15:37:49
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 15:34:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 15:30:06
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-08-08 15:10:23
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 13:32:56
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 13:29:02
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-08-08 13:24:29
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-08-08 13:21:23
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-08-08 12:59:01
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -28,34 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-07 16:32:17
-
-
-# **Chains And Things** / B.B. King
-
-![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
-
-**Album:** Indianola Mississippi Seeds
-
-📅 2025-08-07 16:23:38
-
-
-# **The Same Love That Made Me Laugh** / Bill Withers
-
-![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
-
-**Album:** 'Justments
-
-📅 2025-08-07 16:18:44
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2025-08-07 16:15:19
+📅 2025-08-08 12:14:57
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -64,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-07 16:11:24
+📅 2025-08-08 12:06:38
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -73,25 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-07 16:08:13
-
-
-# **The Same Love That Made Me Laugh** / Bill Withers
-
-![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
-
-**Album:** 'Justments
-
-📅 2025-08-07 13:02:31
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2025-08-07 12:59:06
+📅 2025-08-08 11:48:49
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -100,94 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-07 12:55:11
+📅 2025-08-08 11:45:18
 
 
-# **California Dreamin'** / Eddie Hazel
+# **God Is Love** / Marvin Gaye
 
-![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
 
-**Album:** Game, Dames And Guitar Thangs
+**Album:** What's Going On
 
-📅 2025-08-07 12:42:29
-
-
-# **Chains And Things** / B.B. King
-
-![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
-
-**Album:** Indianola Mississippi Seeds
-
-📅 2025-08-07 12:36:12
+📅 2025-08-08 11:34:10
 
 
-# **The Same Love That Made Me Laugh** / Bill Withers
+# **Save The Children** / Marvin Gaye
 
-![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
 
-**Album:** 'Justments
+**Album:** What's Going On
 
-📅 2025-08-07 12:31:18
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2025-08-07 12:27:52
+📅 2025-08-08 11:31:46
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **Flyin' High (In The Friendly Sky)** / Marvin Gaye
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
 
-**Album:** No Time For Dreaming
+**Album:** What's Going On
 
-📅 2025-08-07 12:23:58
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-07 11:57:20
+📅 2025-08-08 11:27:44
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **What's Happening Brother** / Marvin Gaye
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
 
-**Album:** No Time For Dreaming
+**Album:** What's Going On
 
-📅 2025-08-07 11:37:41
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-07 10:56:26
+📅 2025-08-08 11:23:54
 
 
-# **Ain't No Sunshine** / Bill Withers
+# **What's Going On** / Marvin Gaye
 
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
 
-**Album:** Just As I Am
+**Album:** What's Going On
 
-📅 2025-08-07 10:43:52
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-07 10:38:03
+📅 2025-08-08 11:21:39
