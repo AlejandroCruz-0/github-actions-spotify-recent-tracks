@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-08-08 23:27:17
+
+
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
 ![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** What's Going On
 
 📅 2025-08-08 11:23:54
-
-
-# **What's Going On** / Marvin Gaye
-
-![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
-
-**Album:** What's Going On
-
-📅 2025-08-08 11:21:39
