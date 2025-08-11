@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **California Dreamin'** / Eddie Hazel
+
+![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
+
+**Album:** Game, Dames And Guitar Thangs
+
+📅 2025-08-10 17:27:13
+
+
+# **Chains And Things** / B.B. King
+
+![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
+
+**Album:** Indianola Mississippi Seeds
+
+📅 2025-08-10 12:35:45
+
+
+# **The Same Love That Made Me Laugh** / Bill Withers
+
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
+
+**Album:** 'Justments
+
+📅 2025-08-10 12:30:51
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-08-10 12:27:26
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-10 12:23:31
+
+
+# **The Same Love That Made Me Laugh** / Bill Withers
+
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
+
+**Album:** 'Justments
+
+📅 2025-08-10 11:04:32
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-08-10 11:01:07
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-10 10:57:12
+
+
+# **Weak And Powerless** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-08-10 10:54:20
+
+
 # **Goodbye Stranger - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-08-09 15:44:33
-
-
-# **Kimono Hallway** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-08-09 14:18:25
-
-
-# **Labor Of Love** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-08-09 14:13:59
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-08-09 14:11:55
-
-
-# **Trouble, Heartaches & Sadness** / Ann Peebles
-
-![Foto del album: Straight from the Heart](https://i.scdn.co/image/ab67616d00001e029c15ef25797313383647c7f3)
-
-**Album:** Straight from the Heart
-
-📅 2025-08-09 14:08:48
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-09 14:06:06
-
-
-# **I Got The... - 2006 Remaster** / Labi Siffre
-
-![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
-
-**Album:** Remember My Song
-
-📅 2025-08-09 14:00:35
-
-
-# **I Won't Let You Down** / Curtis Harding
-
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
-
-**Album:** If Words Were Flowers
-
-📅 2025-08-09 13:53:46
-
-
-# **Ain't No Sunshine** / Bill Withers
-
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
-
-**Album:** Just As I Am
-
-📅 2025-08-09 13:46:02
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-09 13:43:48
