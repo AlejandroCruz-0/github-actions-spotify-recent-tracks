@@ -13,13 +13,85 @@ Nombre: **lotario1999**
 
 
 
-# **California Dreamin'** / Eddie Hazel
+# **The Same Love That Made Me Laugh** / Bill Withers
 
-![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
 
-**Album:** Game, Dames And Guitar Thangs
+**Album:** 'Justments
 
-📅 2025-08-10 17:27:13
+📅 2025-08-11 16:56:36
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-08-11 16:53:10
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-11 16:49:17
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-11 16:29:08
+
+
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-08-11 16:22:55
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-08-11 16:18:38
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-11 16:15:55
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-08-11 11:41:19
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-11 11:37:24
 
 
 # **Chains And Things** / B.B. King
@@ -28,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Indianola Mississippi Seeds
 
-📅 2025-08-10 12:35:45
+📅 2025-08-11 11:28:01
 
 
 # **The Same Love That Made Me Laugh** / Bill Withers
@@ -37,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** 'Justments
 
-📅 2025-08-10 12:30:51
+📅 2025-08-11 11:23:05
 
 
 # **You Don't Know What Love Is - Remastered** / Fenton Robinson
@@ -46,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2025-08-10 12:27:26
+📅 2025-08-11 11:19:40
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -55,7 +127,43 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-10 12:23:31
+📅 2025-08-11 11:15:45
+
+
+# **Who Is He (And What Is He to You)?** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-08-11 10:37:45
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-08-11 10:34:58
+
+
+# **The Fade Out Line** / Phoebe Killdeer|The Short Straws
+
+![Foto del album: Innerquake](https://i.scdn.co/image/ab67616d00001e0216bebb434d18530581d9848e)
+
+**Album:** Innerquake
+
+📅 2025-08-11 08:49:50
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-11 08:47:35
 
 
 # **The Same Love That Made Me Laugh** / Bill Withers
@@ -64,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** 'Justments
 
-📅 2025-08-10 11:04:32
+📅 2025-08-11 08:40:05
 
 
 # **You Don't Know What Love Is - Remastered** / Fenton Robinson
@@ -73,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2025-08-10 11:01:07
+📅 2025-08-11 08:36:39
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -82,112 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-10 10:57:12
-
-
-# **Weak And Powerless** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-08-10 10:54:20
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-08-09 18:25:27
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-08-09 16:50:09
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-08-09 16:46:14
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2025-08-09 16:31:45
-
-
-# **Judas** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-08-09 16:28:34
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-08-09 16:18:32
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2025-08-09 16:12:57
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2025-08-09 16:06:56
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2025-08-09 16:02:29
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-08-09 15:48:29
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-08-09 15:44:33
+📅 2025-08-11 08:32:45
