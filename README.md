@@ -13,6 +13,132 @@ Nombre: **lotario1999**
 
 
 
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-15 20:18:09
+
+
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-08-15 20:12:27
+
+
+# **Trouble Man** / Marvin Gaye
+
+![Foto del album: Trouble Man: 40th Anniversary Expanded Edition](https://i.scdn.co/image/ab67616d00001e0229d5a3fc83eae5bb37881c79)
+
+**Album:** Trouble Man: 40th Anniversary Expanded Edition
+
+📅 2025-08-15 19:40:00
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-15 18:54:05
+
+
+# **Inner City Blues (Make Me Wanna Holler)** / Marvin Gaye
+
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
+
+**Album:** What's Going On
+
+📅 2025-08-15 18:48:25
+
+
+# **Superfly** / Curtis Mayfield
+
+![Foto del album: Superfly (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02532e0956a0f5ae7418c63ceb)
+
+**Album:** Superfly (Original Soundtrack)
+
+📅 2025-08-15 16:20:41
+
+
+# **Who Is He (And What Is He to You)?** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-08-15 16:16:47
+
+
+# **I'm Gonna Tear Your Playhouse Down** / Ann Peebles
+
+![Foto del album: I Can't Stand the Rain](https://i.scdn.co/image/ab67616d00001e02943b4cc92b7af0f22190eaef)
+
+**Album:** I Can't Stand the Rain
+
+📅 2025-08-15 16:13:34
+
+
+# **Wang Dang Doodle** / Koko Taylor
+
+![Foto del album: Koko Taylor](https://i.scdn.co/image/ab67616d00001e0224726d9f0e2312507fbc1735)
+
+**Album:** Koko Taylor
+
+📅 2025-08-15 16:04:23
+
+
+# **Where Do We Go From Here** / Charles Bradley|Menahan Street Band
+
+![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
+
+**Album:** Victim of Love
+
+📅 2025-08-15 16:01:28
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-15 15:57:56
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-15 15:13:41
+
+
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-08-15 15:08:01
+
+
+# **What's Going On** / Marvin Gaye
+
+![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
+
+**Album:** What's Going On
+
+📅 2025-08-15 15:03:18
+
+
 # **Spoonful** / Howlin' Wolf
 
 ![Foto del album: Howlin' Wolf](https://i.scdn.co/image/ab67616d00001e0201dd571c86f5e43f8d5d27bc)
@@ -65,129 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Time For Dreaming
 
 📅 2025-08-14 20:10:08
-
-
-# **Cissy Strut** / The Meters
-
-![Foto del album: The Meters](https://i.scdn.co/image/ab67616d00001e02a93a02d8fbe0c68d22859506)
-
-**Album:** The Meters
-
-📅 2025-08-14 20:06:35
-
-
-# **How Long** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-08-14 18:05:40
-
-
-# **Boom Boom** / John Lee Hooker
-
-![Foto del album: Urban Blues (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e0287d251fb1cc58f35c6ca9bc3)
-
-**Album:** Urban Blues (Expanded Edition)
-
-📅 2025-08-14 18:01:44
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-14 17:59:03
-
-
-# **I Won't Let You Down** / Curtis Harding
-
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
-
-**Album:** If Words Were Flowers
-
-📅 2025-08-14 17:51:04
-
-
-# **Ain't No Sunshine** / Bill Withers
-
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
-
-**Album:** Just As I Am
-
-📅 2025-08-14 17:47:02
-
-
-# **Ain't No Sunshine When She's Gone** / Bobby "Blue" Bland
-
-![Foto del album: Midnight Run](https://i.scdn.co/image/ab67616d00001e0255344463ba977e9c48f8ba6d)
-
-**Album:** Midnight Run
-
-📅 2025-08-14 15:07:48
-
-
-# **The Fade Out Line** / Phoebe Killdeer|The Short Straws
-
-![Foto del album: Innerquake](https://i.scdn.co/image/ab67616d00001e0216bebb434d18530581d9848e)
-
-**Album:** Innerquake
-
-📅 2025-08-14 15:03:54
-
-
-# **Where Do We Go From Here** / Charles Bradley|Menahan Street Band
-
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
-
-**Album:** Victim of Love
-
-📅 2025-08-14 15:00:21
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-14 14:57:09
-
-
-# **Ain't No Love In The Heart Of The City - Single Version** / Bobby "Blue" Bland
-
-![Foto del album: Dreamer](https://i.scdn.co/image/ab67616d00001e02229e87b6d1da512c14164cc0)
-
-**Album:** Dreamer
-
-📅 2025-08-14 12:55:00
-
-
-# **The Fade Out Line** / Phoebe Killdeer|The Short Straws
-
-![Foto del album: Innerquake](https://i.scdn.co/image/ab67616d00001e0216bebb434d18530581d9848e)
-
-**Album:** Innerquake
-
-📅 2025-08-14 12:51:06
-
-
-# **Where Do We Go From Here** / Charles Bradley|Menahan Street Band
-
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
-
-**Album:** Victim of Love
-
-📅 2025-08-14 12:47:32
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-14 12:44:21
