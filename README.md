@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Strictly Reserved for You** / Charles Bradley|Menahan Street Band
+
+![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
+
+**Album:** Victim of Love
+
+📅 2025-08-19 01:12:23
+
+
 # **That's All I Wanted From You** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Changes
 
 📅 2025-08-18 08:31:01
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-17 22:48:29
