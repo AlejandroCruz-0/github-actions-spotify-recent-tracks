@@ -13,13 +13,58 @@ Nombre: **lotario1999**
 
 
 
-# **Strictly Reserved for You** / Charles Bradley|Menahan Street Band
+# **Let's Stay Together** / Al Green
 
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
 
-**Album:** Victim of Love
+**Album:** Let's Stay Together
 
-📅 2025-08-19 01:12:23
+📅 2025-08-19 16:01:37
+
+
+# **California Dreamin'** / Eddie Hazel
+
+![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
+
+**Album:** Game, Dames And Guitar Thangs
+
+📅 2025-08-19 15:58:18
+
+
+# **Chains And Things** / B.B. King
+
+![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
+
+**Album:** Indianola Mississippi Seeds
+
+📅 2025-08-19 15:52:00
+
+
+# **The Same Love That Made Me Laugh** / Bill Withers
+
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
+
+**Album:** 'Justments
+
+📅 2025-08-19 15:47:06
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-08-19 15:43:40
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-19 15:39:45
 
 
 # **That's All I Wanted From You** / Jalen Ngonda
@@ -28,160 +73,97 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-18 19:06:38
+📅 2025-08-19 15:36:15
 
 
-# **Changes** / Charles Bradley|The Budos Band
+# **That's All I Wanted From You** / Jalen Ngonda
 
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
-**Album:** Changes
+**Album:** Come Around and Love Me
 
-📅 2025-08-18 19:04:00
-
-
-# **I Got The... - 2006 Remaster** / Labi Siffre
-
-![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
-
-**Album:** Remember My Song
-
-📅 2025-08-18 18:58:16
+📅 2025-08-19 15:33:37
 
 
-# **I Won't Let You Down** / Curtis Harding
+# **That's All I Wanted From You** / Jalen Ngonda
 
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
-**Album:** If Words Were Flowers
+**Album:** Come Around and Love Me
 
-📅 2025-08-18 18:51:41
+📅 2025-08-19 14:58:43
 
 
-# **What's Happening Brother** / Marvin Gaye
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-19 14:55:26
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-19 14:04:30
+
+
+# **What About It?** / Eddie Hazel
+
+![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
+
+**Album:** Game, Dames And Guitar Thangs
+
+📅 2025-08-19 13:35:11
+
+
+# **Stay Away** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-08-19 13:31:25
+
+
+# **What's Going On** / Marvin Gaye
 
 ![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
 
 **Album:** What's Going On
 
-📅 2025-08-18 18:26:33
+📅 2025-08-19 13:28:14
 
 
-# **Just Like You Used To** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-18 18:23:50
-
-
-# **Where Do We Go From Here** / Charles Bradley|Menahan Street Band
-
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
-
-**Album:** Victim of Love
-
-📅 2025-08-18 18:20:39
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-18 18:17:27
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-18 15:17:37
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-08-18 15:11:47
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-08-18 14:22:40
-
-
-# **Ain't No Sunshine** / Bill Withers
-
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
-
-**Album:** Just As I Am
-
-📅 2025-08-18 14:18:57
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-18 14:16:51
-
-
-# **I Won't Let You Down** / Curtis Harding
-
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
-
-**Album:** If Words Were Flowers
-
-📅 2025-08-18 14:11:00
-
-
-# **If You Don't Want My Love** / Jalen Ngonda
+# **That's All I Wanted From You** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-18 12:09:44
+📅 2025-08-19 13:24:19
 
 
-# **Where Do We Go From Here** / Charles Bradley|Menahan Street Band
+# **Somebody Loan Me A Dime - Remastered** / Fenton Robinson
 
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
 
-**Album:** Victim of Love
+**Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2025-08-18 12:07:25
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-18 12:04:05
+📅 2025-08-19 13:21:44
 
 
-# **Changes** / Charles Bradley|The Budos Band
+# **That's All I Wanted From You** / Jalen Ngonda
 
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
-**Album:** Changes
+**Album:** Come Around and Love Me
 
-📅 2025-08-18 08:59:22
+📅 2025-08-19 12:14:01
 
 
 # **Changes** / Charles Bradley|The Budos Band
@@ -190,4 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Changes
 
-📅 2025-08-18 08:31:01
+📅 2025-08-19 12:11:25
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-19 11:41:27
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-19 11:38:54
