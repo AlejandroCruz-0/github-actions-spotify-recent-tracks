@@ -13,22 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-20 16:28:02
-
-
 # **Changes** / Charles Bradley|The Budos Band
 
 ![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
 
 **Album:** Changes
 
-📅 2025-08-20 16:25:26
+📅 2025-08-21 19:21:39
 
 
 # **That's All I Wanted From You** / Jalen Ngonda
@@ -37,52 +28,25 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-20 16:18:50
+📅 2025-08-21 19:15:31
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
+# **Money Is the Name of the Game** / Buster Benton
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Blues & Trouble (Blues Reference 1983-1985)](https://i.scdn.co/image/ab67616d00001e02201c743e2028200ce98d78a0)
 
-**Album:** Come Around and Love Me
+**Album:** Blues & Trouble (Blues Reference 1983-1985)
 
-📅 2025-08-20 15:56:24
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-20 15:40:01
+📅 2025-08-21 19:13:05
 
 
-# **Across 110th Street** / Bobby Womack
+# **Inspiration Information** / Shuggie Otis
 
-![Foto del album: Midnight Mover: The Bobby Womack Story](https://i.scdn.co/image/ab67616d00001e02a70b89929f67316f0fa4426b)
+![Foto del album: INSPIRATION INFORMATION](https://i.scdn.co/image/ab67616d00001e02786dd6a3cfcdd09a5e8eafc8)
 
-**Album:** Midnight Mover: The Bobby Womack Story
+**Album:** INSPIRATION INFORMATION
 
-📅 2025-08-20 14:48:07
-
-
-# **Use Me** / Bill Withers
-
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
-
-**Album:** Still Bill
-
-📅 2025-08-20 14:44:16
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-20 14:40:57
+📅 2025-08-21 19:05:09
 
 
 # **Let's Straighten It Out** / O.V. Wright
@@ -91,34 +55,16 @@ Nombre: **lotario1999**
 
 **Album:** The Bottom Line
 
-📅 2025-08-20 14:37:49
+📅 2025-08-21 19:00:57
 
 
-# **Spooky** / Dusty Springfield
+# **Across 110th Street** / Bobby Womack
 
-![Foto del album: Dusty... Definitely (Expanded Edtion)](https://i.scdn.co/image/ab67616d00001e023e4dc299094d31ee68fdfe78)
+![Foto del album: Midnight Mover: The Bobby Womack Story](https://i.scdn.co/image/ab67616d00001e02a70b89929f67316f0fa4426b)
 
-**Album:** Dusty... Definitely (Expanded Edtion)
+**Album:** Midnight Mover: The Bobby Womack Story
 
-📅 2025-08-20 14:24:56
-
-
-# **What About It?** / Eddie Hazel
-
-![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
-
-**Album:** Game, Dames And Guitar Thangs
-
-📅 2025-08-20 14:22:11
-
-
-# **If You Don't Want My Love** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-20 14:18:25
+📅 2025-08-21 18:57:33
 
 
 # **Use Me** / Bill Withers
@@ -127,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** Still Bill
 
-📅 2025-08-20 14:15:58
+📅 2025-08-21 18:53:13
 
 
 # **That's All I Wanted From You** / Jalen Ngonda
@@ -136,7 +82,70 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-20 14:12:09
+📅 2025-08-21 18:49:24
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-21 18:46:38
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-08-21 15:29:44
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2025-08-21 15:13:58
+
+
+# **Breakfast In America - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2025-08-21 15:09:57
+
+
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-08-21 15:07:17
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-21 14:59:56
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-21 14:57:30
 
 
 # **Use Me** / Bill Withers
@@ -145,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Still Bill
 
-📅 2025-08-20 13:02:45
+📅 2025-08-21 14:51:36
 
 
 # **That's All I Wanted From You** / Jalen Ngonda
@@ -154,25 +163,16 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-20 12:58:55
+📅 2025-08-21 14:06:58
 
 
-# **Righteously** / Anna Ash
+# **Changes** / Charles Bradley|The Budos Band
 
-![Foto del album: Righteously](https://i.scdn.co/image/ab67616d00001e0200e8153f33d40b508e6a29bd)
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
 
-**Album:** Righteously
+**Album:** Changes
 
-📅 2025-08-20 11:14:39
-
-
-# **Sweet Thang** / Shuggie Otis
-
-![Foto del album: Freedom Flight](https://i.scdn.co/image/ab67616d00001e0290497cd6cc6338bbe57fc953)
-
-**Album:** Freedom Flight
-
-📅 2025-08-20 11:11:20
+📅 2025-08-21 14:05:54
 
 
 # **Use Me** / Bill Withers
@@ -181,7 +181,7 @@ Nombre: **lotario1999**
 
 **Album:** Still Bill
 
-📅 2025-08-20 11:07:07
+📅 2025-08-21 12:40:06
 
 
 # **That's All I Wanted From You** / Jalen Ngonda
@@ -190,4 +190,4 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-20 11:03:19
+📅 2025-08-21 10:42:32
