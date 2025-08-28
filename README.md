@@ -19,7 +19,7 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-08-27 08:21:22
+📅 2025-08-27 18:48:47
 
 
 # **Changes** / Charles Bradley|The Budos Band
@@ -28,7 +28,25 @@ Nombre: **lotario1999**
 
 **Album:** Changes
 
-📅 2025-08-27 08:18:48
+📅 2025-08-27 18:46:18
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-27 15:09:27
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-27 15:06:50
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -37,151 +55,79 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2025-08-27 08:12:07
+📅 2025-08-27 13:38:32
 
 
-# **Just Like You Used To** / Jalen Ngonda
+# **The Same Love That Made Me Laugh** / Bill Withers
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
 
-**Album:** Come Around and Love Me
+**Album:** 'Justments
 
-📅 2025-08-27 08:08:46
+📅 2025-08-27 13:26:08
 
 
-# **Use Me** / Bill Withers
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
 
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
 
-**Album:** Still Bill
+**Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2025-08-26 15:15:11
+📅 2025-08-27 13:22:49
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
 
-**Album:** Come Around and Love Me
+**Album:** No Time For Dreaming
 
-📅 2025-08-26 15:11:22
+📅 2025-08-27 13:18:48
 
 
-# **Changes** / Charles Bradley|The Budos Band
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
 
-**Album:** Changes
+**Album:** No Time For Dreaming
 
-📅 2025-08-26 15:08:49
+📅 2025-08-27 11:50:46
 
 
-# **I Got The... - 2006 Remaster** / Labi Siffre
+# **Special (2018 Remaster)** / Garbage
 
-![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
 
-**Album:** Remember My Song
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2025-08-26 15:03:02
+📅 2025-08-27 10:52:24
 
 
-# **I Won't Let You Down** / Curtis Harding
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** If Words Were Flowers
+**Album:** Not Like Us
 
-📅 2025-08-26 14:56:26
+📅 2025-08-27 10:48:33
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Come Around and Love Me
+**Album:** Euphoria Morning
 
-📅 2025-08-26 14:51:01
+📅 2025-08-27 10:43:55
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Come Around and Love Me
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-08-26 14:45:30
-
-
-# **If You Don't Want My Love** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-26 12:05:35
-
-
-# **Use Me** / Bill Withers
-
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
-
-**Album:** Still Bill
-
-📅 2025-08-26 12:03:07
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-26 11:59:25
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-26 11:56:44
-
-
-# **Strictly Reserved for You** / Charles Bradley|Menahan Street Band
-
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
-
-**Album:** Victim of Love
-
-📅 2025-08-26 10:09:29
-
-
-# **Use Me** / Bill Withers
-
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
-
-**Album:** Still Bill
-
-📅 2025-08-26 10:05:45
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-26 10:01:57
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-08-26 09:59:23
+📅 2025-08-27 10:38:45
 
 
 # **Mad About You** / Hooverphonic
@@ -190,4 +136,58 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2025-08-26 08:31:49
+📅 2025-08-27 10:34:21
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-08-27 10:18:36
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-27 10:13:55
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-27 10:11:16
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-27 08:47:27
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-27 08:44:50
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-27 08:27:59
