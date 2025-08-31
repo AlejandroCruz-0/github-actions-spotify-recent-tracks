@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-08-31 01:15:01
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-31 01:12:24
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-08-31 01:07:05
+
+
 # **Moonchild** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Come Around and Love Me
 
 📅 2025-08-28 09:19:25
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-08-28 09:16:47
-
-
-# **I Got The... - 2006 Remaster** / Labi Siffre
-
-![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
-
-**Album:** Remember My Song
-
-📅 2025-08-28 09:11:04
-
-
-# **I Won't Let You Down** / Curtis Harding
-
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
-
-**Album:** If Words Were Flowers
-
-📅 2025-08-28 09:04:28
