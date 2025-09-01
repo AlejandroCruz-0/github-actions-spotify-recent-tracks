@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-08-31 19:04:20
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-08-31 18:59:32
+
+
+# **Use Me** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-08-31 18:54:15
+
+
 # **That's All I Wanted From You** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Changes
 
 📅 2025-08-28 11:38:52
-
-
-# **Strictly Reserved for You** / Charles Bradley|Menahan Street Band
-
-![Foto del album: Victim of Love](https://i.scdn.co/image/ab67616d00001e0264558c100755ffd78cb4f9d0)
-
-**Album:** Victim of Love
-
-📅 2025-08-28 11:33:46
-
-
-# **My Lover's Prayer** / Otis Redding
-
-![Foto del album: Complete & Unbelievable: The Otis Redding Dictionary of Soul](https://i.scdn.co/image/ab67616d00001e02ffffe932598090498459b77c)
-
-**Album:** Complete & Unbelievable: The Otis Redding Dictionary of Soul
-
-📅 2025-08-28 10:19:43
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-08-28 09:19:25
