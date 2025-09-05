@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-09-04 09:02:53
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-09-04 08:58:57
+
+
 # **Love Is A Long Road** / Tom Petty
 
 ![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** I'm Still in Love with You
 
 📅 2025-09-02 11:22:09
-
-
-# **Inner City Blues (Make Me Wanna Holler)** / Marvin Gaye
-
-![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
-
-**Album:** What's Going On
-
-📅 2025-09-02 11:17:02
-
-
-# **Superfly** / Curtis Mayfield
-
-![Foto del album: Superfly (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02532e0956a0f5ae7418c63ceb)
-
-**Album:** Superfly (Original Soundtrack)
-
-📅 2025-09-02 11:11:33
