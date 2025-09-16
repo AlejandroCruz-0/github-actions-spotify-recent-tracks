@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Labor Of Love** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-09-15 11:09:30
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-09-15 11:07:39
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-09-15 11:05:40
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-09-15 11:02:11
+
+
+# **Use Me** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-09-15 10:59:47
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-09-15 10:55:59
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-09-15 10:53:24
+
+
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+
+**Album:** In Utero (30th Anniversary Super Deluxe)
+
+📅 2025-09-15 09:27:05
+
+
 # **The Outsider** / A Perfect Circle
 
 ![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-09-15 08:35:11
-
-
-# **What's Happening Brother** / Marvin Gaye
-
-![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
-
-**Album:** What's Going On
-
-📅 2025-09-14 14:02:12
-
-
-# **What's Going On** / Marvin Gaye
-
-![Foto del album: What's Going On](https://i.scdn.co/image/ab67616d00001e02b36949bee43217351961ffbc)
-
-**Album:** What's Going On
-
-📅 2025-09-14 13:59:29
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-09-14 13:56:02
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-09-12 16:22:49
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-09-12 16:18:30
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-09-11 08:15:55
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-09-10 14:04:59
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-09-10 13:57:56
