@@ -13,76 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-09-16 10:51:09
-
-
-# **Kimono Hallway** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-09-16 10:47:49
-
-
-# **Labor Of Love** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-09-15 11:09:30
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-09-15 11:07:39
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-09-15 11:05:40
-
-
-# **Ain't No Sunshine** / Bill Withers
-
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
-
-**Album:** Just As I Am
-
-📅 2025-09-15 11:02:11
-
-
-# **Use Me** / Bill Withers
-
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
-
-**Album:** Still Bill
-
-📅 2025-09-15 10:59:47
-
-
 # **That's All I Wanted From You** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
 **Album:** Come Around and Love Me
 
-📅 2025-09-15 10:55:59
+📅 2025-09-17 12:56:41
 
 
 # **Changes** / Charles Bradley|The Budos Band
@@ -91,103 +28,166 @@ Nombre: **lotario1999**
 
 **Album:** Changes
 
-📅 2025-09-15 10:53:24
+📅 2025-09-17 12:54:05
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Spooky** / Dusty Springfield
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Dusty... Definitely (Expanded Edtion)](https://i.scdn.co/image/ab67616d00001e023e4dc299094d31ee68fdfe78)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Dusty... Definitely (Expanded Edtion)
 
-📅 2025-09-15 09:27:05
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-09-15 09:22:18
+📅 2025-09-17 12:48:23
 
 
-# **Scoring** / bôa
+# **I Got The...** / Labi Siffre
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
+![Foto del album: The Music Of Labi Siffre](https://i.scdn.co/image/ab67616d00001e029637079a54633d378fe7d05f)
 
-**Album:** Twilight
+**Album:** The Music Of Labi Siffre
 
-📅 2025-09-15 09:18:11
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-09-15 09:14:20
+📅 2025-09-17 12:33:34
 
 
-# **Not Like Us** / Kendrick Lamar
+# **Welcome To My World** / Curtis Harding
 
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+![Foto del album: Face Your Fear](https://i.scdn.co/image/ab67616d00001e021bd6d2d52810efdfee21b608)
 
-**Album:** Not Like Us
+**Album:** Face Your Fear
 
-📅 2025-09-15 09:10:39
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-09-15 09:06:06
+📅 2025-09-17 12:27:08
 
 
-# **Losing My Religion** / R.E.M.
+# **Just Like You Used To** / Jalen Ngonda
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Come Around and Love Me
 
-📅 2025-09-15 09:00:55
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-09-15 08:56:25
+📅 2025-09-17 12:23:32
 
 
-# **Glory Box** / Portishead
+# **Use Me** / Bill Withers
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
 
-**Album:** Dummy
+**Album:** Still Bill
 
-📅 2025-09-15 08:52:32
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-09-15 08:47:20
+📅 2025-09-17 12:20:22
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **That's All I Wanted From You** / Jalen Ngonda
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
 
-**Album:** Euphoria Morning
+**Album:** Come Around and Love Me
 
-📅 2025-09-15 08:43:18
+📅 2025-09-17 12:16:32
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-09-17 12:13:54
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-09-17 11:34:52
+
+
+# **Use Me** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-09-17 11:28:28
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-09-17 11:24:36
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-09-17 11:21:59
+
+
+# **I Got The... - 2006 Remaster** / Labi Siffre
+
+![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
+
+**Album:** Remember My Song
+
+📅 2025-09-17 11:16:15
+
+
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-09-17 11:09:40
+
+
+# **Use Me** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-09-17 11:04:37
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-09-17 11:00:57
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-09-17 10:58:16
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-09-17 10:46:55
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-09-17 10:39:59
