@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **The Boss** / James Brown|The J.B.'s
+
+![Foto del album: Black Caesar](https://i.scdn.co/image/ab67616d00001e02905dcbbd9ea2f5af04446251)
+
+**Album:** Black Caesar
+
+📅 2025-09-18 23:37:18
+
+
+# **Pusherman** / Curtis Mayfield
+
+![Foto del album: Superfly: Deluxe 25th Anniversary Edition](https://i.scdn.co/image/ab67616d00001e02177fea3fc7f8075fdb40f167)
+
+**Album:** Superfly: Deluxe 25th Anniversary Edition
+
+📅 2025-09-18 23:34:03
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-09-18 23:28:23
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-09-18 23:25:46
+
+
+# **The Power** / Curtis Harding
+
+![Foto del album: Departures & Arrivals: Adventures of Captain Curt](https://i.scdn.co/image/ab67616d00001e021703f553c6c870bd01eb0988)
+
+**Album:** Departures & Arrivals: Adventures of Captain Curt
+
+📅 2025-09-18 23:19:10
+
+
 # **If You Don't Want My Love** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Still Bill
 
 📅 2025-09-17 12:20:22
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-09-17 12:16:32
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-09-17 12:13:54
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-09-17 11:34:52
-
-
-# **Use Me** / Bill Withers
-
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
-
-**Album:** Still Bill
-
-📅 2025-09-17 11:28:28
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-09-17 11:24:36
