@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-09-20 20:51:12
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-09-20 11:13:55
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-09-20 11:09:40
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-09-20 11:07:00
+
+
+# **Hercules** / Aaron Neville
+
+![Foto del album: Tell It Like It Is](https://i.scdn.co/image/ab67616d00001e02b68d188e8198616e4669d72e)
+
+**Album:** Tell It Like It Is
+
+📅 2025-09-20 11:01:11
+
+
 # **The Boss** / James Brown|The J.B.'s
 
 ![Foto del album: Black Caesar](https://i.scdn.co/image/ab67616d00001e02905dcbbd9ea2f5af04446251)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Changes
 
 📅 2025-09-17 12:54:05
-
-
-# **Spooky** / Dusty Springfield
-
-![Foto del album: Dusty... Definitely (Expanded Edtion)](https://i.scdn.co/image/ab67616d00001e023e4dc299094d31ee68fdfe78)
-
-**Album:** Dusty... Definitely (Expanded Edtion)
-
-📅 2025-09-17 12:48:23
-
-
-# **I Got The...** / Labi Siffre
-
-![Foto del album: The Music Of Labi Siffre](https://i.scdn.co/image/ab67616d00001e029637079a54633d378fe7d05f)
-
-**Album:** The Music Of Labi Siffre
-
-📅 2025-09-17 12:33:34
-
-
-# **Welcome To My World** / Curtis Harding
-
-![Foto del album: Face Your Fear](https://i.scdn.co/image/ab67616d00001e021bd6d2d52810efdfee21b608)
-
-**Album:** Face Your Fear
-
-📅 2025-09-17 12:27:08
-
-
-# **Just Like You Used To** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-09-17 12:23:32
-
-
-# **Use Me** / Bill Withers
-
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
-
-**Album:** Still Bill
-
-📅 2025-09-17 12:20:22
