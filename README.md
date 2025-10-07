@@ -13,139 +13,49 @@ Nombre: **lotario1999**
 
 
 
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-10-05 13:11:47
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-10-05 13:07:53
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-05 13:03:26
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-10-05 12:58:32
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-10-05 12:52:14
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-05 12:45:48
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-05 10:39:52
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-04 12:43:40
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-10-04 12:39:54
-
-
-# **Little L** / Jamiroquai
-
-![Foto del album: A Funk Odyssey](https://i.scdn.co/image/ab67616d00001e02909ebb0c355f14d0ee7f9974)
-
-**Album:** A Funk Odyssey
-
-📅 2025-10-04 12:12:43
-
-
-# **Nothing Can Come Between Us** / Sade
+# **Paradise** / Sade
 
 ![Foto del album: The Best of Sade](https://i.scdn.co/image/ab67616d00001e025e25e034e25258b356774c79)
 
 **Album:** The Best of Sade
 
-📅 2025-10-04 12:07:48
+📅 2025-10-06 20:40:14
 
 
-# **Something About Us** / Daft Punk
+# **Hot Together** / The Pointer Sisters
 
-![Foto del album: Discovery](https://i.scdn.co/image/ab67616d00001e022c25dad9f8fd54652f7ba5df)
+![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
 
-**Album:** Discovery
+**Album:** Hot Together (Expanded Edition)
 
-📅 2025-10-04 12:03:52
-
-
-# **People Get Up And Drive Your Funky Soul** / James Brown
-
-![Foto del album: The Singles: Vol. 9 1973-1975](https://i.scdn.co/image/ab67616d00001e02e1c89cf9c284f9caf15a4454)
-
-**Album:** The Singles: Vol. 9 1973-1975
-
-📅 2025-10-04 11:59:59
+📅 2025-10-06 20:36:36
 
 
-# **If You Don't Want My Love** / Jalen Ngonda
+# **Hot Together** / The Pointer Sisters
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
 
-**Album:** Come Around and Love Me
+**Album:** Hot Together (Expanded Edition)
 
-📅 2025-10-04 11:56:17
+📅 2025-10-06 20:27:11
 
 
-# **Seven Days in Sunny June** / Jamiroquai
+# **Your Love Is Incarceration** / Clutch
 
-![Foto del album: Dynamite](https://i.scdn.co/image/ab67616d00001e02951fbcfd4b08a3a19f158ab5)
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
 
-**Album:** Dynamite
+**Album:** Psychic Warfare
 
-📅 2025-10-04 11:54:15
+📅 2025-10-06 20:04:49
+
+
+# **Wolf Like Me** / TV On The Radio
+
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e02217de86bedd48dfaf5a05167)
+
+**Album:** Return To Cookie Mountain
+
+📅 2025-10-06 20:01:31
 
 
 # **Virtual Insanity** / Jamiroquai
@@ -154,40 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** Pop Music: The Modern Era 1976-1999
 
-📅 2025-10-04 11:49:54
+📅 2025-10-06 19:56:36
 
 
-# **Holy Ghost** / Bent Knee
+# **Far From Any Road** / The Handsome Family
 
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
+![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
 
-**Album:** Land Animal
+**Album:** Singing Bones
 
-📅 2025-10-04 11:46:09
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2025-10-03 12:30:58
+📅 2025-10-06 19:48:29
 
 
-# **Firestarter** / The Prodigy
+# **Long Cool Woman (In a Black Dress) - 1999 Remaster** / The Hollies
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: Distant Light (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02c9fcb582633f59eaa501c4c9)
 
-**Album:** The Fat of the Land
+**Album:** Distant Light (Expanded Edition)
 
-📅 2025-10-03 12:27:17
+📅 2025-10-06 19:45:42
 
 
-# **Cochise** / Audioslave
+# **Nightclubbing** / Iggy Pop
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: The Idiot](https://i.scdn.co/image/ab67616d00001e022023cfc4febdbe8213a41f8a)
 
-**Album:** Audioslave
+**Album:** The Idiot
 
-📅 2025-10-03 12:22:38
+📅 2025-10-06 19:42:23
+
+
+# **The Passenger** / Iggy Pop
+
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+
+**Album:** Lust For Life
+
+📅 2025-10-06 19:38:06
+
+
+# **The Passenger** / Iggy Pop
+
+![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+
+**Album:** Lust For Life
+
+📅 2025-10-06 19:29:18
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-10-06 19:17:34
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-06 19:12:44
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-06 19:08:23
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-06 19:03:55
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-10-06 19:00:10
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-06 18:49:03
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-06 18:45:02
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-06 18:40:34
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-10-06 18:36:49
