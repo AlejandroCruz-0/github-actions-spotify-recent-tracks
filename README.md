@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **You Think I Don't Know (But I Know)** / Charles Bradley|Menahan Street Band|the Gospel Queens|The Sha La Das
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-07 16:25:47
+
+
+# **Crazy for Your Love** / Charles Bradley|Menahan Street Band|The Sha La Das
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-07 16:22:20
+
+
+# **Things We Do for Love** / Charles Bradley|Menahan Street Band|The Sha La Das
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-07 16:18:01
+
+
+# **Ain't It a Sin** / Charles Bradley|Bullets
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-07 16:14:33
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-07 16:10:44
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-07 16:05:03
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-10-07 10:56:03
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-10-07 10:52:17
+
+
+# **Ain't It a Sin** / Charles Bradley|Bullets
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-07 10:49:00
+
+
 # **Changes** / Charles Bradley|The Budos Band
 
 ![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hot Together (Expanded Edition)
 
 📅 2025-10-06 20:27:11
-
-
-# **Your Love Is Incarceration** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2025-10-06 20:04:49
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e02217de86bedd48dfaf5a05167)
-
-**Album:** Return To Cookie Mountain
-
-📅 2025-10-06 20:01:31
-
-
-# **Virtual Insanity** / Jamiroquai
-
-![Foto del album: Pop Music: The Modern Era 1976-1999](https://i.scdn.co/image/ab67616d00001e028e17f9583f2c3cb003a5b8f2)
-
-**Album:** Pop Music: The Modern Era 1976-1999
-
-📅 2025-10-06 19:56:36
-
-
-# **Far From Any Road** / The Handsome Family
-
-![Foto del album: Singing Bones](https://i.scdn.co/image/ab67616d00001e0243bf72818b91c6803029dbbe)
-
-**Album:** Singing Bones
-
-📅 2025-10-06 19:48:29
-
-
-# **Long Cool Woman (In a Black Dress) - 1999 Remaster** / The Hollies
-
-![Foto del album: Distant Light (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02c9fcb582633f59eaa501c4c9)
-
-**Album:** Distant Light (Expanded Edition)
-
-📅 2025-10-06 19:45:42
-
-
-# **Nightclubbing** / Iggy Pop
-
-![Foto del album: The Idiot](https://i.scdn.co/image/ab67616d00001e022023cfc4febdbe8213a41f8a)
-
-**Album:** The Idiot
-
-📅 2025-10-06 19:42:23
-
-
-# **The Passenger** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2025-10-06 19:38:06
-
-
-# **The Passenger** / Iggy Pop
-
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
-
-**Album:** Lust For Life
-
-📅 2025-10-06 19:29:18
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-10-06 19:17:34
