@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-10-08 09:04:31
+
+
+# **Change for the World** / Charles Bradley|Menahan Street Band|the Gospel Queens
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-08 09:01:25
+
+
 # **You Think I Don't Know (But I Know)** / Charles Bradley|Menahan Street Band|the Gospel Queens|The Sha La Das
 
 ![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Best of Sade
 
 📅 2025-10-06 20:40:14
-
-
-# **Hot Together** / The Pointer Sisters
-
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
-
-**Album:** Hot Together (Expanded Edition)
-
-📅 2025-10-06 20:36:36
-
-
-# **Hot Together** / The Pointer Sisters
-
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
-
-**Album:** Hot Together (Expanded Edition)
-
-📅 2025-10-06 20:27:11
