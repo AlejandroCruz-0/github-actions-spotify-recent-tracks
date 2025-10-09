@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Use Me** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-10-08 15:57:07
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-10-08 15:53:19
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-08 15:50:42
+
+
+# **Use Me** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-10-08 15:07:17
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-10-08 11:14:51
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-08 11:12:14
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-10-08 09:45:24
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-10-08 09:41:26
+
+
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
 ![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Changes
 
 📅 2025-10-07 09:09:47
-
-
-# **Tokens** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-07 08:46:44
-
-
-# **Note To Self** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-07 08:44:57
-
-
-# **Hall Of Eagans** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-07 08:42:56
-
-
-# **Kimono Hallway** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-07 08:40:34
-
-
-# **Labor Of Love** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-07 08:36:07
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-07 08:35:16
-
-
-# **Let Me Go** / Latimore
-
-![Foto del album: It Ain't Where You Been](https://i.scdn.co/image/ab67616d00001e02fe26b0b5a2b8cde9dc2204ee)
-
-**Album:** It Ain't Where You Been
-
-📅 2025-10-07 08:34:55
-
-
-# **Paradise** / Sade
-
-![Foto del album: The Best of Sade](https://i.scdn.co/image/ab67616d00001e025e25e034e25258b356774c79)
-
-**Album:** The Best of Sade
-
-📅 2025-10-06 20:40:14
