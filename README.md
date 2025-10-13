@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **I Won't Let You Down** / Curtis Harding
+
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+
+**Album:** If Words Were Flowers
+
+📅 2025-10-12 12:52:23
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-10-12 12:48:18
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-10-12 12:29:47
+
+
 # **No Time for Dreaming** / Charles Bradley|Menahan Street Band
 
 ![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-10-09 11:29:41
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-10-09 09:52:34
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-09 09:47:25
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-09 09:43:19
