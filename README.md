@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Freakonomics** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-15 09:18:02
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-15 09:14:43
+
+
+# **Freakonomics** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-15 09:08:58
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-15 09:08:33
+
+
 # **That's All I Wanted From You** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-10-13 10:36:20
-
-
-# **I Got The... - 2006 Remaster** / Labi Siffre
-
-![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
-
-**Album:** Remember My Song
-
-📅 2025-10-13 10:32:34
-
-
-# **I Won't Let You Down** / Curtis Harding
-
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
-
-**Album:** If Words Were Flowers
-
-📅 2025-10-12 12:52:23
-
-
-# **Ain't No Sunshine** / Bill Withers
-
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
-
-**Album:** Just As I Am
-
-📅 2025-10-12 12:48:18
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-10-12 12:29:47
