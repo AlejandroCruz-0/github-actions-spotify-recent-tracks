@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Who Is He (And What Is He to You)?** / Bill Withers
+
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0298e08f603553915a041b6937)
+
+**Album:** Still Bill
+
+📅 2025-10-17 11:33:53
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02e1e350d06ffebd2e19e047ce)
+
+**Album:** Just As I Am
+
+📅 2025-10-17 11:30:38
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-10-17 11:21:37
+
+
 # **Hall Of Eagans** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2025-10-15 13:31:41
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-10-15 13:27:16
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-10-15 13:24:40
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-10-15 12:14:54
