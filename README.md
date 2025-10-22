@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2025-10-22 08:01:32
+
+
 # **Aglo Ha Cambiado** / Clutch
 
 ![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Let's Stay Together
 
 📅 2025-10-20 09:13:27
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-10-20 09:08:43
