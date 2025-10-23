@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-22 18:08:33
+
+
+# **Ain't It a Sin** / Charles Bradley|Bullets
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-22 18:03:27
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-10-22 15:49:43
+
+
+# **Freakonomics** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-22 15:44:01
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-10-22 12:52:36
+
+
+# **The Same Love That Made Me Laugh** / Bill Withers
+
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
+
+**Album:** 'Justments
+
+📅 2025-10-22 12:47:46
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-10-22 09:41:35
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-10-22 09:37:15
+
+
 # **Electric Worry** / Clutch
 
 ![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-10-21 10:09:31
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-10-21 10:04:24
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-10-21 09:59:56
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-10-21 09:56:11
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-10-20 12:25:26
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-10-20 12:21:36
-
-
-# **That's All I Wanted From You** / Jalen Ngonda
-
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
-
-**Album:** Come Around and Love Me
-
-📅 2025-10-20 09:24:05
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-10-20 09:20:40
-
-
-# **Let's Stay Together** / Al Green
-
-![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
-
-**Album:** Let's Stay Together
-
-📅 2025-10-20 09:13:27
