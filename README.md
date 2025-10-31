@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-10-30 22:27:13
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-10-30 22:23:19
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-10-30 22:19:55
+
+
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
 ![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Strange Cousins From the West
 
 📅 2025-10-29 10:38:33
-
-
-# **Minotaur** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-10-29 10:15:18
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-10-29 10:10:30
-
-
-# **Let Me Go** / Latimore
-
-![Foto del album: It Ain't Where You Been](https://i.scdn.co/image/ab67616d00001e02fe26b0b5a2b8cde9dc2204ee)
-
-**Album:** It Ain't Where You Been
-
-📅 2025-10-29 10:04:58
