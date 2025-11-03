@@ -13,13 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **The Outsider** / A Perfect Circle
+# **Sería Feliz** / Julieta Venegas
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
 
-**Album:** Thirteenth Step
+**Album:** Bueninvento
 
-📅 2025-11-01 13:12:22
+📅 2025-11-02 19:13:16
 
 
 # **Scoring** / bôa
@@ -28,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Twilight
 
-📅 2025-11-01 13:07:56
+📅 2025-11-02 19:11:56
 
 
 # **Special (2018 Remaster)** / Garbage
@@ -37,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2025-11-01 13:04:03
+📅 2025-11-02 19:08:05
 
 
 # **Not Like Us** / Kendrick Lamar
@@ -46,34 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Not Like Us
 
-📅 2025-11-01 13:00:20
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-01 12:55:45
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-11-01 12:49:45
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-11-01 12:28:47
+📅 2025-11-02 19:04:22
 
 
 # **Losing My Religion** / R.E.M.
@@ -82,52 +55,97 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-11-01 12:24:56
+📅 2025-11-02 17:28:50
 
 
-# **Mad About You** / Hooverphonic
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2025-11-02 15:58:35
+
+
+# **Fortunate Son - The Weathermaker Vault Series** / Clutch
+
+![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
+
+**Album:** The Weathermaker Vault Series, Vol. I
+
+📅 2025-11-02 15:55:30
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-02 15:53:06
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-02 15:49:24
+
+
+# **Fortunate Son - The Weathermaker Vault Series** / Clutch
+
+![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
+
+**Album:** The Weathermaker Vault Series, Vol. I
+
+📅 2025-11-02 15:25:49
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-02 15:23:25
+
+
+# **Pink Fluffy Dinosaurs** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2025-10-31 22:39:36
+📅 2025-11-02 15:19:37
 
 
-# **Labor Of Love** / Theodore Shapiro
+# **Oh I Wept** / Free
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** Fire And Water
 
-📅 2025-10-31 22:33:56
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-10-31 12:21:21
+📅 2025-11-02 12:38:52
 
 
-# **If You Don't Want My Love** / Jalen Ngonda
+# **Will Do** / TV On The Radio
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
 
-**Album:** Come Around and Love Me
+**Album:** Nine Types of Light
 
-📅 2025-10-31 12:20:26
+📅 2025-11-02 12:34:24
 
 
-# **Ain't Gonna Give It Up** / Charles Bradley|Menahan Street Band|Saun & Starr
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Changes
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-10-31 09:42:08
+📅 2025-11-02 12:30:35
 
 
 # **Use Me** / Bill Withers
@@ -136,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Still Bill
 
-📅 2025-10-31 09:38:07
+📅 2025-11-02 12:25:28
 
 
 # **That's All I Wanted From You** / Jalen Ngonda
@@ -145,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Come Around and Love Me
 
-📅 2025-10-31 09:34:18
+📅 2025-11-02 12:21:16
 
 
 # **Changes** / Charles Bradley|The Budos Band
@@ -154,40 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Changes
 
-📅 2025-10-31 09:31:41
+📅 2025-11-02 12:18:09
 
 
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+# **I Got The... - 2006 Remaster** / Labi Siffre
 
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+![Foto del album: Remember My Song](https://i.scdn.co/image/ab67616d00001e02604d736ae6a7ef91ff0f2564)
 
-**Album:** Somebody Loan Me A Dime (Remastered)
+**Album:** Remember My Song
 
-📅 2025-10-30 22:27:13
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-10-30 22:23:19
+📅 2025-11-02 12:12:25
 
 
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+# **I Won't Let You Down** / Curtis Harding
 
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
 
-**Album:** Somebody Loan Me A Dime (Remastered)
+**Album:** If Words Were Flowers
 
-📅 2025-10-30 22:19:55
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-10-30 15:39:01
+📅 2025-11-02 12:05:54
