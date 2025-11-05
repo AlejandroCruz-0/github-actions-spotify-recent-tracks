@@ -13,175 +13,67 @@ Nombre: **lotario1999**
 
 
 
-# **I Feel You** / Depeche Mode
+# **Far Fields** / Christopher Larkin
 
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** Songs of Faith and Devotion (Deluxe)
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 21:09:41
+📅 2025-11-04 21:22:24
 
 
-# **Your Woman** / White Town
+# **Lace** / Christopher Larkin
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** Women in Technology
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 21:05:04
+📅 2025-11-04 15:15:07
 
 
-# **Cochise** / Audioslave
+# **Deep Docks** / Christopher Larkin
 
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** Audioslave
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 21:00:43
+📅 2025-11-04 15:12:22
 
 
-# **Mad About You** / Hooverphonic
+# **Repose** / Christopher Larkin
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** The Magnificent Tree
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 20:57:03
+📅 2025-11-04 15:09:16
 
 
-# **Out Of Sight** / Hooverphonic
+# **Bell Beast** / Christopher Larkin
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** The Magnificent Tree
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 20:52:54
+📅 2025-11-04 15:08:12
 
 
-# **Mad About You** / Hooverphonic
+# **The Marrow** / Christopher Larkin
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** The Magnificent Tree
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 13:06:49
+📅 2025-11-04 15:06:24
 
 
-# **Special (2018 Remaster)** / Garbage
+# **Bone Bottom** / Christopher Larkin
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2025-11-03 09:52:50
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-11-03 09:49:06
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-03 09:44:32
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-11-03 09:39:24
-
-
-# **Sería Feliz** / Julieta Venegas
-
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
-
-**Album:** Bueninvento
-
-📅 2025-11-03 09:23:14
-
-
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
-
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
-
-**Album:** In Utero (30th Anniversary Super Deluxe)
-
-📅 2025-11-03 09:19:48
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-11-03 09:15:07
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e02948506eef3b3350b2385ef51)
-
-**Album:** Twilight
-
-📅 2025-11-03 09:11:00
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-11-03 09:07:10
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-11-03 09:03:25
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-03 08:58:51
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-11-03 08:53:44
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-11-03 08:49:16
+📅 2025-11-04 15:02:38
 
 
 # **Moonchild** / Chris Cornell
@@ -190,4 +82,112 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2025-11-03 08:43:52
+📅 2025-11-04 14:59:37
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-04 13:11:49
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-04 13:07:22
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-11-04 13:03:38
+
+
+# **Who Knows** / Marion Black
+
+![Foto del album: Who Knows b/w Go On Fool](https://i.scdn.co/image/ab67616d00001e02a4cb2b3467966468c4159e68)
+
+**Album:** Who Knows b/w Go On Fool
+
+📅 2025-11-04 10:12:33
+
+
+# **My Lover's Prayer** / Otis Redding
+
+![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
+
+**Album:** The Very Best of Otis Redding
+
+📅 2025-11-04 10:07:08
+
+
+# **Let's Stay Together** / Al Green
+
+![Foto del album: Let's Stay Together](https://i.scdn.co/image/ab67616d00001e02a1fc113a6858d0824d9aaf38)
+
+**Album:** Let's Stay Together
+
+📅 2025-11-04 10:03:57
+
+
+# **California Dreamin'** / Eddie Hazel
+
+![Foto del album: Game, Dames And Guitar Thangs](https://i.scdn.co/image/ab67616d00001e02371135e871ccf1c6ec1c5beb)
+
+**Album:** Game, Dames And Guitar Thangs
+
+📅 2025-11-04 10:00:37
+
+
+# **Chains And Things** / B.B. King
+
+![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
+
+**Album:** Indianola Mississippi Seeds
+
+📅 2025-11-04 09:53:48
+
+
+# **The Same Love That Made Me Laugh** / Bill Withers
+
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
+
+**Album:** 'Justments
+
+📅 2025-11-04 09:48:59
+
+
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2025-11-04 09:45:29
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-11-04 09:41:35
+
+
+# **When I'm Down** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-04 09:38:21
