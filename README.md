@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **On The Bound** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2025-11-09 09:08:17
+
+
 # **Spacegrass** / Clutch
 
 ![Foto del album: Clutch](https://i.scdn.co/image/ab67616d00001e02853e556975a104745111154b)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Fat of the Land
 
 📅 2025-11-05 23:34:35
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-11-05 23:13:19
