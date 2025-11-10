@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **To Your Love** / Fiona Apple
+
+![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
+
+**Album:** When The Pawn...
+
+📅 2025-11-09 19:08:34
+
+
 # **On The Bound** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** El Camino
 
 📅 2025-11-05 23:38:13
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2025-11-05 23:34:35
