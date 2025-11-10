@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-11-10 09:12:55
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2025-11-10 09:09:09
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-10 09:03:49
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-10 08:59:47
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-10 08:55:20
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-11-10 08:51:34
+
+
 # **To Your Love** / Fiona Apple
 
 ![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2025-11-06 08:21:15
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2025-11-06 08:16:35
-
-
-# **One Day - Swing Republic Remix** / Caro Emerald|Swing Republic
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e02f161e0d2bdbbbb543237272b)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2025-11-06 00:00:38
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2025-11-05 23:57:00
-
-
-# **Jeremy** / Pearl Jam
-
-![Foto del album: Ten](https://i.scdn.co/image/ab67616d00001e02d400d27cba05bb0545533864)
-
-**Album:** Ten
-
-📅 2025-11-05 23:49:30
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02b3e6b1494af0def99c9d80f0)
-
-**Album:** Land Animal
-
-📅 2025-11-05 23:44:08
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2025-11-05 23:38:13
