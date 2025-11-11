@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Ain't It a Sin** / Charles Bradley|Bullets
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-11-10 19:19:22
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-11-10 19:15:17
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-10 19:09:36
+
+
+# **Fortunate Son - The Weathermaker Vault Series** / Clutch
+
+![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
+
+**Album:** The Weathermaker Vault Series, Vol. I
+
+📅 2025-11-10 14:05:14
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-10 11:48:35
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-10 11:44:53
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-11-10 11:41:17
+
+
 # **Out Of Sight** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Out Of Time (25th Anniversary Edition)
 
 📅 2025-11-07 12:34:57
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-07 08:25:28
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-11-07 08:21:42
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-11-06 21:24:18
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-11-06 12:32:04
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-06 12:27:29
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-11-06 12:21:46
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2025-11-06 08:21:15
