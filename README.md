@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Ghost** / Clutch
+
+![Foto del album: Blast Tyrant (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02710fbaa0cc8614c930b4b60e)
+
+**Album:** Blast Tyrant (Deluxe Edition)
+
+📅 2025-11-11 08:46:22
+
+
+# **Big News I** / Clutch
+
+![Foto del album: Clutch](https://i.scdn.co/image/ab67616d00001e02853e556975a104745111154b)
+
+**Album:** Clutch
+
+📅 2025-11-11 08:41:45
+
+
+# **Profits of Doom** / Clutch
+
+![Foto del album: Blast Tyrant (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02710fbaa0cc8614c930b4b60e)
+
+**Album:** Blast Tyrant (Deluxe Edition)
+
+📅 2025-11-11 08:36:29
+
+
+# **Cypress Grove** / Clutch
+
+![Foto del album: La Curandera](https://i.scdn.co/image/ab67616d00001e02f700e3cdcac29731c2c20d24)
+
+**Album:** La Curandera
+
+📅 2025-11-11 08:33:15
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-11 08:30:28
+
+
+# **Fortunate Son - The Weathermaker Vault Series** / Clutch
+
+![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
+
+**Album:** The Weathermaker Vault Series, Vol. I
+
+📅 2025-11-11 08:27:10
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-11 08:25:22
+
+
+# **Things We Do for Love** / Charles Bradley|Menahan Street Band|The Sha La Das
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-11-11 08:21:15
+
+
 # **Ain't It a Sin** / Charles Bradley|Bullets
 
 ![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-11-10 08:55:20
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-11-10 08:51:34
-
-
-# **To Your Love** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2025-11-09 19:08:34
-
-
-# **On The Bound** / Fiona Apple
-
-![Foto del album: When The Pawn...](https://i.scdn.co/image/ab67616d00001e0270622da427271b0203d7ce79)
-
-**Album:** When The Pawn...
-
-📅 2025-11-09 09:08:17
-
-
-# **Spacegrass** / Clutch
-
-![Foto del album: Clutch](https://i.scdn.co/image/ab67616d00001e02853e556975a104745111154b)
-
-**Album:** Clutch
-
-📅 2025-11-08 10:52:00
-
-
-# **The Regulator** / Clutch
-
-![Foto del album: Summer Sound Attack](https://i.scdn.co/image/ab67616d00001e02863e0708f1061e1c6261e4c3)
-
-**Album:** Summer Sound Attack
-
-📅 2025-11-07 15:59:28
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-11-07 15:54:10
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-07 15:48:38
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-11-07 12:34:57
