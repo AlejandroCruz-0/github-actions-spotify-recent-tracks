@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **Reverse** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 15:41:36
+
+
+# **Avalanches** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 15:37:34
+
+
+# **Raccoons** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 15:33:25
+
+
+# **Reverse** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 10:32:34
+
+
+# **Avalanches** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 10:04:40
+
+
+# **Raccoons** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 10:00:34
+
+
+# **81 Special** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 09:57:03
+
+
+# **Mirrors** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 09:53:06
+
+
+# **MAD** / Caravan Palace
+
+![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+
+**Album:** Gangbusters Melody Club
+
+📅 2025-11-11 09:49:25
+
+
+# **Noble Savage** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-11 09:43:28
+
+
+# **Our Lady of Electric Light** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-11 09:40:49
+
+
+# **Doom Saloon** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-11 09:36:46
+
+
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-11-11 09:35:33
+
+
 # **Ghost** / Clutch
 
 ![Foto del album: Blast Tyrant (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02710fbaa0cc8614c930b4b60e)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Psychic Warfare
 
 📅 2025-11-11 08:25:22
-
-
-# **Things We Do for Love** / Charles Bradley|Menahan Street Band|The Sha La Das
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-11-11 08:21:15
-
-
-# **Ain't It a Sin** / Charles Bradley|Bullets
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-11-10 19:19:22
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-11-10 19:15:17
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-10 19:09:36
-
-
-# **Fortunate Son - The Weathermaker Vault Series** / Clutch
-
-![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
-
-**Album:** The Weathermaker Vault Series, Vol. I
-
-📅 2025-11-10 14:05:14
-
-
-# **X-Ray Visions** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2025-11-10 11:48:35
-
-
-# **A Quick Death in Texas** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2025-11-10 11:44:53
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-11-10 11:41:17
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-11-10 09:12:55
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2025-11-10 09:09:09
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-10 09:03:49
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-10 08:59:47
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-10 08:55:20
