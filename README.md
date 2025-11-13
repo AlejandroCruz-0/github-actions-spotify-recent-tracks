@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2025-11-13 08:13:48
+
+
 # **Chains And Things** / B.B. King
 
 ![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Through The Eyes Of Heathens
 
 📅 2025-11-12 10:48:44
-
-
-# **Zombie Barricades** / The Company Band
-
-![Foto del album: The Company Band](https://i.scdn.co/image/ab67616d00001e02efc1511b5e3dd8297b538a70)
-
-**Album:** The Company Band
-
-📅 2025-11-12 10:45:19
