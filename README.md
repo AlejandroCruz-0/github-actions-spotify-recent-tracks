@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Unto the Breach** / Clutch
+# **Chains And Things** / B.B. King
 
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+![Foto del album: Indianola Mississippi Seeds](https://i.scdn.co/image/ab67616d00001e02dac4fc8f79d08515f048ddc7)
 
-**Album:** Earth Rocker
+**Album:** Indianola Mississippi Seeds
 
-📅 2025-11-12 07:55:33
-
-
-# **Firebirds** / Clutch
-
-![Foto del album: Psychic Warfare (Deluxe)](https://i.scdn.co/image/ab67616d00001e02359a39b8ff33193585b6e676)
-
-**Album:** Psychic Warfare (Deluxe)
-
-📅 2025-11-12 07:51:59
+📅 2025-11-12 16:53:10
 
 
-# **X-Ray Visions** / Clutch
-
-![Foto del album: Psychic Warfare (Deluxe)](https://i.scdn.co/image/ab67616d00001e02359a39b8ff33193585b6e676)
-
-**Album:** Psychic Warfare (Deluxe)
-
-📅 2025-11-12 07:48:40
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2025-11-12 07:43:43
-
-
-# **Portobello** / Caravan Palace
+# **81 Special** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2025-11-12 07:38:50
+📅 2025-11-12 16:42:51
 
 
-# **Blonde Dynamite** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-11-12 00:30:08
-
-
-# **Spirits** / Caravan Palace
+# **Mirrors** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2025-11-12 00:26:17
+📅 2025-11-12 16:38:56
 
 
-# **Fool** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-11-12 00:22:25
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-12 00:18:55
-
-
-# **Sleestak Lightning** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-12 00:09:16
-
-
-# **Struck Down** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-12 00:05:29
-
-
-# **Motherless Child** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-12 00:01:06
-
-
-# **The Amazing Kreskin** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-11 23:56:50
-
-
-# **Abraham Lincoln** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-11 23:52:12
-
-
-# **Minotaur** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-11 23:46:14
-
-
-# **50,000 Unstoppable Watts** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-11 23:41:22
-
-
-# **Fool** / Caravan Palace
+# **MAD** / Caravan Palace
 
 ![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
 
 **Album:** Gangbusters Melody Club
 
-📅 2025-11-11 23:37:09
+📅 2025-11-12 16:35:27
 
 
-# **Reverse** / Caravan Palace
+# **The Same Love That Made Me Laugh** / Bill Withers
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: 'Justments](https://i.scdn.co/image/ab67616d00001e027644d295ce44f19f5866eaa9)
 
-**Album:** Gangbusters Melody Club
+**Album:** 'Justments
 
-📅 2025-11-11 15:41:36
-
-
-# **Avalanches** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2025-11-11 15:37:34
+📅 2025-11-12 15:08:37
 
 
-# **Raccoons** / Caravan Palace
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
 
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
 
-**Album:** Gangbusters Melody Club
+**Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2025-11-11 15:33:25
+📅 2025-11-12 15:05:07
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-11-12 15:01:12
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
+
+**Album:** Twilight
+
+📅 2025-11-12 11:39:44
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-11-12 11:36:08
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-11-12 11:32:08
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2025-11-12 11:25:31
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
+
+**Album:** Twilight
+
+📅 2025-11-12 11:21:24
+
+
+# **Special (2018 Remaster)** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2025-11-12 11:17:35
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2025-11-12 11:13:55
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-11-12 11:09:15
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-11-12 11:04:15
+
+
+# **Worn Teeth** / Valley of the Sun
+
+![Foto del album: Electric Talons of the Thunderhawk](https://i.scdn.co/image/ab67616d00001e023af8904e1708acdfae820634)
+
+**Album:** Electric Talons of the Thunderhawk
+
+📅 2025-11-12 10:55:35
+
+
+# **The Mob Goes Wild** / Clutch
+
+![Foto del album: Summer Sound Attack](https://i.scdn.co/image/ab67616d00001e02863e0708f1061e1c6261e4c3)
+
+**Album:** Summer Sound Attack
+
+📅 2025-11-12 10:52:18
+
+
+# **Born A Legend** / Dozer
+
+![Foto del album: Through The Eyes Of Heathens](https://i.scdn.co/image/ab67616d00001e023d30ea7439297d6cf46545f8)
+
+**Album:** Through The Eyes Of Heathens
+
+📅 2025-11-12 10:48:44
+
+
+# **Zombie Barricades** / The Company Band
+
+![Foto del album: The Company Band](https://i.scdn.co/image/ab67616d00001e02efc1511b5e3dd8297b538a70)
+
+**Album:** The Company Band
+
+📅 2025-11-12 10:45:19
