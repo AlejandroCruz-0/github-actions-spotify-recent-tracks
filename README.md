@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Small Upsetters** / Clutch
+
+![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
+
+**Album:** Robot Hive/Exodus (Bonus Track Version)
+
+📅 2025-11-14 09:03:22
+
+
 # **10001110101** / Clutch
 
 ![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** 'Justments
 
 📅 2025-11-12 15:08:37
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2025-11-12 15:05:07
