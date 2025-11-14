@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **10001110101** / Clutch
+
+![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
+
+**Album:** Robot Hive/Exodus (Bonus Track Version)
+
+📅 2025-11-13 18:30:45
+
+
+# **Let a Poor Man Be** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 18:21:20
+
+
+# **Struck Down** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 18:15:37
+
+
+# **Sleestak Lightning** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 18:11:14
+
+
+# **Freakonomics** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 18:07:04
+
+
+# **Witchdoctor** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 18:03:43
+
+
+# **50,000 Unstoppable Watts** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 17:59:31
+
+
+# **Minotaur** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-11-13 17:55:16
+
+
+# **Subtle Hustle** / Clutch
+
+![Foto del album: Blast Tyrant (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02710fbaa0cc8614c930b4b60e)
+
+**Album:** Blast Tyrant (Deluxe Edition)
+
+📅 2025-11-13 17:50:25
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-13 17:44:32
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-13 17:00:39
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-13 14:00:32
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-13 13:57:04
+
+
 # **Changes** / Charles Bradley|The Budos Band
 
 ![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Somebody Loan Me A Dime (Remastered)
 
 📅 2025-11-12 15:05:07
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-11-12 15:01:12
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
-
-**Album:** Twilight
-
-📅 2025-11-12 11:39:44
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-11-12 11:36:08
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-11-12 11:32:08
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2025-11-12 11:25:31
-
-
-# **Scoring** / bôa
-
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
-
-**Album:** Twilight
-
-📅 2025-11-12 11:21:24
-
-
-# **Special (2018 Remaster)** / Garbage
-
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
-
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
-
-📅 2025-11-12 11:17:35
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2025-11-12 11:13:55
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-11-12 11:09:15
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2025-11-12 11:04:15
-
-
-# **Worn Teeth** / Valley of the Sun
-
-![Foto del album: Electric Talons of the Thunderhawk](https://i.scdn.co/image/ab67616d00001e023af8904e1708acdfae820634)
-
-**Album:** Electric Talons of the Thunderhawk
-
-📅 2025-11-12 10:55:35
-
-
-# **The Mob Goes Wild** / Clutch
-
-![Foto del album: Summer Sound Attack](https://i.scdn.co/image/ab67616d00001e02863e0708f1061e1c6261e4c3)
-
-**Album:** Summer Sound Attack
-
-📅 2025-11-12 10:52:18
-
-
-# **Born A Legend** / Dozer
-
-![Foto del album: Through The Eyes Of Heathens](https://i.scdn.co/image/ab67616d00001e023d30ea7439297d6cf46545f8)
-
-**Album:** Through The Eyes Of Heathens
-
-📅 2025-11-12 10:48:44
