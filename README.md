@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Pure Rock Fury** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-14 22:28:18
+
+
 # **Immortal** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Robot Hive/Exodus (Bonus Track Version)
 
 📅 2025-11-13 18:30:45
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-13 18:21:20
