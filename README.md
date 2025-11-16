@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Brazenhead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-15 12:15:19
+
+
 # **Pure Rock Fury** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Robot Hive/Exodus (Bonus Track Version)
 
 📅 2025-11-14 09:03:22
-
-
-# **10001110101** / Clutch
-
-![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
-
-**Album:** Robot Hive/Exodus (Bonus Track Version)
-
-📅 2025-11-13 18:30:45
