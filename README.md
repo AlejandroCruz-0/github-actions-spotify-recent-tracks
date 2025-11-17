@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Red Horse Rainbow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:40:05
+
+
+# **Careful with That Mic...** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:34:07
+
+
+# **Pure Rock Fury** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:30:38
+
+
+# **Spacegrass - Live** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:27:14
+
+
+# **Drink to the Dead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:19:09
+
+
+# **Brazenhead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:13:11
+
+
+# **Immortal** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:06:49
+
+
+# **Sinkemlow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 10:03:08
+
+
+# **Immortal** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 09:39:34
+
+
+# **Sinkemlow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 09:36:36
+
+
+# **Open up the Border** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-16 09:32:05
+
+
 # **Brazenhead** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-11-14 12:48:14
-
-
-# **Cyborg Bette** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:42:43
-
-
-# **Book, Saddle, & Go** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:39:33
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:35:45
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:31:23
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:27:02
-
-
-# **D.C. Sound Attack!** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:23:32
-
-
-# **Mr. Freedom** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:18:54
-
-
-# **Crucial Velocity** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:16:20
-
-
-# **Earth Rocker** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:12:08
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-14 12:08:33
-
-
-# **Small Upsetters** / Clutch
-
-![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
-
-**Album:** Robot Hive/Exodus (Bonus Track Version)
-
-📅 2025-11-14 09:03:22
