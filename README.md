@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Brazenhead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-19 11:36:38
+
+
+# **Immortal** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-19 10:44:22
+
+
+# **Sinkemlow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-19 10:40:44
+
+
+# **Sinkemlow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-19 10:35:04
+
+
 # **Red Horse Rainbow** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Pure Rock Fury (US Version)
 
 📅 2025-11-17 11:56:59
-
-
-# **Pure Rock Fury** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-17 09:05:36
-
-
-# **The Great Outdoors!** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-17 08:22:19
-
-
-# **Red Horse Rainbow** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-16 10:40:05
-
-
-# **Careful with That Mic...** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-16 10:34:07
