@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Red Horse Rainbow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 09:08:32
+
+
+# **Careful with That Mic...** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 09:02:42
+
+
+# **Open up the Border** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 08:59:06
+
+
+# **Pure Rock Fury** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 08:55:21
+
+
+# **Brazenhead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 08:30:43
+
+
 # **Immortal** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Pure Rock Fury (US Version)
 
 📅 2025-11-20 13:14:45
-
-
-# **Sinkemlow** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-20 13:10:07
-
-
-# **Brazenhead** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-20 13:06:22
-
-
-# **Immortal** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-20 11:02:33
-
-
-# **Sinkemlow** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-20 10:58:57
-
-
-# **Brazenhead** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-19 11:36:38
