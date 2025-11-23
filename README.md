@@ -13,13 +13,31 @@ Nombre: **lotario1999**
 
 
 
+# **Immortal** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 19:12:02
+
+
+# **Sinkemlow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-11-22 19:08:24
+
+
 # **Red Horse Rainbow** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
 
 **Album:** Pure Rock Fury (US Version)
 
-📅 2025-11-22 09:08:32
+📅 2025-11-22 19:04:54
 
 
 # **Careful with That Mic...** / Clutch
@@ -28,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Pure Rock Fury (US Version)
 
-📅 2025-11-22 09:02:42
+📅 2025-11-22 15:37:10
 
 
 # **Open up the Border** / Clutch
@@ -37,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Pure Rock Fury (US Version)
 
-📅 2025-11-22 08:59:06
+📅 2025-11-22 15:33:42
 
 
 # **Pure Rock Fury** / Clutch
@@ -46,148 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** Pure Rock Fury (US Version)
 
-📅 2025-11-22 08:55:21
+📅 2025-11-22 15:29:58
 
 
-# **Brazenhead** / Clutch
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-11-22 08:30:43
+📅 2025-11-22 15:27:01
 
 
-# **Immortal** / Clutch
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Full Moon Fever
 
-📅 2025-11-21 15:28:08
+📅 2025-11-22 13:49:40
 
 
-# **Sinkemlow** / Clutch
+# **Scoring** / bôa
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Twilight
 
-📅 2025-11-21 15:25:02
+📅 2025-11-22 12:09:03
 
 
-# **Sinkemlow** / Clutch
+# **Special - 2018 Remaster** / Garbage
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2025-11-21 15:20:31
+📅 2025-11-22 12:05:08
 
 
-# **Army of Bono - 2025 Remaster** / Clutch
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Blast Tyrant (2025 Remaster)](https://i.scdn.co/image/ab67616d00001e02f0ae4c0af08797ec244b34bb)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Blast Tyrant (2025 Remaster)
+**Album:** Not Like Us
 
-📅 2025-11-21 15:17:01
+📅 2025-11-22 12:01:21
 
 
-# **X-Ray Visions** / Clutch
+# **Scoring** / bôa
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
 
-**Album:** Psychic Warfare
+**Album:** Twilight
 
-📅 2025-11-21 10:28:32
+📅 2025-11-22 11:51:30
 
 
-# **A Quick Death in Texas** / Clutch
+# **Special - 2018 Remaster** / Garbage
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
 
-**Album:** Psychic Warfare
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
 
-📅 2025-11-21 10:24:49
+📅 2025-11-22 11:47:38
 
 
-# **Pure Rock Fury** / Clutch
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Not Like Us
 
-📅 2025-11-21 10:17:17
+📅 2025-11-22 11:43:54
 
 
-# **Immortal** / Clutch
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Euphoria Morning
 
-📅 2025-11-21 10:12:52
+📅 2025-11-22 11:39:19
 
 
-# **Sinkemlow** / Clutch
+# **Losing My Religion** / R.E.M.
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2025-11-21 10:09:16
+📅 2025-11-22 11:34:12
 
 
-# **Careful with That Mic...** / Clutch
+# **Out Of Sight** / Hooverphonic
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** The Magnificent Tree
 
-📅 2025-11-21 10:05:23
+📅 2025-11-22 11:30:20
 
 
-# **Pure Rock Fury** / Clutch
+# **Glory Box** / Portishead
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Dummy
 
-📅 2025-11-20 21:49:08
+📅 2025-11-22 11:26:02
 
 
-# **Immortal** / Clutch
+# **Moonchild** / Chris Cornell
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Euphoria Morning
 
-📅 2025-11-20 21:45:24
+📅 2025-11-22 11:20:42
 
 
-# **Sinkemlow** / Clutch
+# **Pillow Of Your Bones** / Chris Cornell
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Euphoria Morning
 
-📅 2025-11-20 21:41:48
-
-
-# **American Sleep** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-20 21:38:27
-
-
-# **Immortal** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2025-11-20 13:14:45
+📅 2025-11-22 11:16:35
