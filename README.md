@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Sinkemlow** / Clutch
+# **Condemnation** / Depeche Mode
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-11-25 09:01:37
+📅 2025-11-25 17:15:56
 
 
-# **Follow My Way** / Chris Cornell
+# **Congregation** / Low
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** Euphoria Morning
+**Album:** Ones and Sixes
 
-📅 2025-11-24 15:40:55
+📅 2025-11-25 17:12:26
 
 
-# **Losing My Religion** / R.E.M.
+# **Condemnation** / Depeche Mode
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Songs of Faith and Devotion (Deluxe)
 
-📅 2025-11-24 09:58:50
+📅 2025-11-25 16:02:58
 
 
-# **Out Of Sight** / Hooverphonic
+# **Congregation** / Low
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
 
-**Album:** The Magnificent Tree
+**Album:** Ones and Sixes
 
-📅 2025-11-24 09:54:21
+📅 2025-11-25 15:59:27
 
 
-# **Glory Box** / Portishead
+# **Canned Heat - Remastered 2006** / Jamiroquai
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
 
-**Album:** Dummy
+**Album:** Driving Songs
 
-📅 2025-11-24 09:50:28
+📅 2025-11-25 15:55:36
 
 
-# **Moonchild** / Chris Cornell
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2025-11-24 09:45:16
+📅 2025-11-25 15:42:38
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Moonshine** / Caravan Palace
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Euphoria Morning
+**Album:** Chronologic
 
-📅 2025-11-24 09:41:55
+📅 2025-11-25 15:36:50
 
 
-# **Disappearing One** / Chris Cornell
+# **About You** / Caravan Palace|Charles X
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
 
-**Album:** Euphoria Morning
+**Album:** Chronologic
 
-📅 2025-11-24 09:36:35
+📅 2025-11-25 14:39:37
 
 
-# **Mad About You** / Hooverphonic
+# **Rock It for Me** / Caravan Palace
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
 
-**Album:** The Magnificent Tree
+**Album:** Panic
 
-📅 2025-11-24 09:32:49
+📅 2025-11-25 14:35:21
 
 
-# **Immortal** / Clutch
+# **Lone Digger** / Caravan Palace
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: <I°_°I>](https://i.scdn.co/image/ab67616d00001e02eb494c6471de2df7ac69acd9)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** <I°_°I>
 
-📅 2025-11-24 09:29:09
+📅 2025-11-25 14:31:50
 
 
-# **Sinkemlow** / Clutch
+# **The Face** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-23 13:20:04
+📅 2025-11-25 13:18:10
 
 
-# **Immortal** / Clutch
+# **Gone Cold** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-23 13:15:22
+📅 2025-11-25 13:13:47
 
 
-# **Sinkemlow** / Clutch
+# **Unto the Breach** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-23 13:11:44
+📅 2025-11-25 13:09:26
 
 
-# **Brazenhead** / Clutch
+# **D.C. Sound Attack!** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-23 09:38:31
+📅 2025-11-25 11:16:10
 
 
-# **Immortal** / Clutch
+# **Mr. Freedom** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-22 19:12:02
+📅 2025-11-25 11:11:41
 
 
-# **Sinkemlow** / Clutch
+# **Crucial Velocity** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-22 19:08:24
+📅 2025-11-25 11:08:48
 
 
-# **Red Horse Rainbow** / Clutch
+# **Earth Rocker** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-11-22 19:04:54
+📅 2025-11-25 11:04:47
 
 
-# **Careful with That Mic...** / Clutch
+# **Sleestak Lightning** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Strange Cousins From the West
 
-📅 2025-11-22 15:37:10
+📅 2025-11-25 10:42:55
 
 
-# **Open up the Border** / Clutch
+# **Struck Down** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Strange Cousins From the West
 
-📅 2025-11-22 15:33:42
+📅 2025-11-25 10:39:07
 
 
-# **Pure Rock Fury** / Clutch
+# **50,000 Unstoppable Watts** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Strange Cousins From the West
 
-📅 2025-11-22 15:29:58
+📅 2025-11-25 10:34:44
