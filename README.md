@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **The Face** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-27 08:36:17
+
+
 # **Run with Me - Kara** / Philip Sheppard
 
 ![Foto del album: Detroit: Become Human (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e020bc7c8faf417b7b230a3e98d)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-11-25 11:04:47
-
-
-# **Sleestak Lightning** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-25 10:42:55
