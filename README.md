@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Run with Me - Kara** / Philip Sheppard
+
+![Foto del album: Detroit: Become Human (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e020bc7c8faf417b7b230a3e98d)
+
+**Album:** Detroit: Become Human (Original Soundtrack)
+
+📅 2025-11-26 12:21:41
+
+
+# **3 Libras** / A Perfect Circle
+
+![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
+
+**Album:** Mer De Noms
+
+📅 2025-11-26 10:11:32
+
+
 # **Condemnation** / Depeche Mode
 
 ![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Strange Cousins From the West
 
 📅 2025-11-25 10:42:55
-
-
-# **Struck Down** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-25 10:39:07
-
-
-# **50,000 Unstoppable Watts** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-11-25 10:34:44
