@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **D.C. Sound Attack!** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-29 10:25:33
+
+
+# **The Face** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-29 10:04:42
+
+
 # **Gone Cold** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Chronologic
 
 📅 2025-11-25 15:36:50
-
-
-# **About You** / Caravan Palace|Charles X
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2025-11-25 14:39:37
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2025-11-25 14:35:21
