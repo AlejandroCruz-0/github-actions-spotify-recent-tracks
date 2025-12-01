@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-11-30 16:11:19
+
+
 # **D.C. Sound Attack!** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2025-11-25 15:42:38
-
-
-# **Moonshine** / Caravan Palace
-
-![Foto del album: Chronologic](https://i.scdn.co/image/ab67616d00001e028c9cd259d43ab3c5e6af8a8a)
-
-**Album:** Chronologic
-
-📅 2025-11-25 15:36:50
