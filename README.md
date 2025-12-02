@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Doom Saloon** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-01 20:09:32
+
+
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-01 20:08:19
+
+
+# **Sucker for the Witch** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-01 20:05:05
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-01 20:01:43
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-01 19:57:46
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-01 19:54:45
+
+
+# **Crucial Velocity** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-12-01 19:51:01
+
+
+# **Earth Rocker** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-12-01 17:18:55
+
+
 # **Unto the Breach** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2025-11-27 08:36:17
-
-
-# **Run with Me - Kara** / Philip Sheppard
-
-![Foto del album: Detroit: Become Human (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e020bc7c8faf417b7b230a3e98d)
-
-**Album:** Detroit: Become Human (Original Soundtrack)
-
-📅 2025-11-26 12:21:41
-
-
-# **3 Libras** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2025-11-26 10:11:32
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-11-25 17:15:56
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2025-11-25 17:12:26
-
-
-# **Condemnation** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2025-11-25 16:02:58
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e02af105fb7defe734231228f27)
-
-**Album:** Ones and Sixes
-
-📅 2025-11-25 15:59:27
-
-
-# **Canned Heat - Remastered 2006** / Jamiroquai
-
-![Foto del album: Driving Songs](https://i.scdn.co/image/ab67616d00001e0243a58a3269fa18d1e4f8b5ca)
-
-**Album:** Driving Songs
-
-📅 2025-11-25 15:55:36
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2025-11-25 15:42:38
