@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Our Lady of Electric Light** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-02 08:13:32
+
+
 # **Doom Saloon** / Clutch
 
 ![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Chronologic
 
 📅 2025-11-27 09:56:04
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-27 08:36:17
