@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-12-04 11:10:21
+
+
+# **D.C. Sound Attack!** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-12-04 11:06:50
+
+
+# **I Got Mine** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2025-12-04 11:02:37
+
+
 # **DLZ** / TV On The Radio
 
 ![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e024aff13d05a977d87c434b8b4)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Psychic Warfare
 
 📅 2025-12-01 19:54:45
-
-
-# **Crucial Velocity** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-01 19:51:01
-
-
-# **Earth Rocker** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-01 17:18:55
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-11-30 16:11:19
