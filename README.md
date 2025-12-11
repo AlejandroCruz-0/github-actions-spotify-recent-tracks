@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **Your Love Is Incarceration** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2025-12-10 13:27:34
+
+
+# **The Telephone Song** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-12-10 13:13:19
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+
+**Album:** No Time For Dreaming
+
+📅 2025-12-10 13:09:31
+
+
+# **Sweet Euphoria** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-12-10 13:06:36
+
+
+# **The Four Tempers** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2025-12-10 12:25:30
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2025-12-10 12:23:17
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-12-10 12:19:36
+
+
+# **Spacegrass - Live** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-12-10 11:06:01
+
+
+# **Drink to the Dead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-12-10 09:58:40
+
+
+# **Brazenhead** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-12-10 09:52:36
+
+
+# **Immortal** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-12-10 09:46:10
+
+
+# **Sinkemlow** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
+📅 2025-12-10 09:42:32
+
+
+# **The Bottle** / Hermano
+
+![Foto del album: Only a Suggestion](https://i.scdn.co/image/ab67616d00001e0265eb427a97c123892c7db778)
+
+**Album:** Only a Suggestion
+
+📅 2025-12-10 09:39:05
+
+
 # **Sucker for the Witch** / Clutch
 
 ![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Changes
 
 📅 2025-12-09 10:01:49
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
-
-**Album:** No Time For Dreaming
-
-📅 2025-12-09 08:02:31
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-12-09 07:59:06
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-12-09 07:55:29
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-09 01:06:47
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-04 11:10:21
-
-
-# **D.C. Sound Attack!** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-04 11:06:50
-
-
-# **I Got Mine** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2025-12-04 11:02:37
-
-
-# **DLZ** / TV On The Radio
-
-![Foto del album: Dear Science](https://i.scdn.co/image/ab67616d00001e024aff13d05a977d87c434b8b4)
-
-**Album:** Dear Science
-
-📅 2025-12-03 09:40:56
-
-
-# **Crucial Velocity** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-03 09:37:28
-
-
-# **Earth Rocker** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-02 17:04:47
-
-
-# **D.C. Sound Attack!** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-02 16:53:19
-
-
-# **Oh, Isabella** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-02 16:49:07
-
-
-# **Cyborg Bette** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-02 11:05:15
