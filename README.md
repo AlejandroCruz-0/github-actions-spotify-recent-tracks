@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2025-12-13 09:21:23
+
+
 # **Immortal** / Clutch
 
 ![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Robot Hive/Exodus (Bonus Track Version)
 
 📅 2025-12-10 08:37:36
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2025-12-10 08:32:33
