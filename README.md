@@ -19,6 +19,15 @@ Nombre: **lotario1999**
 
 **Album:** Pure Rock Fury (US Version)
 
+📅 2025-12-12 20:47:15
+
+
+# **Immortal** / Clutch
+
+![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+
+**Album:** Pure Rock Fury (US Version)
+
 📅 2025-12-11 10:27:53
 
 
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Changes
 
 📅 2025-12-10 08:32:33
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-12-09 10:16:31
