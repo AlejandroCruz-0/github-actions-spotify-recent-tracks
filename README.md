@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Mr. Freedom** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2025-12-15 19:40:35
+
+
 # **Crucial Velocity** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** If Words Were Flowers
 
 📅 2025-12-13 15:17:46
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2025-12-13 15:13:41
