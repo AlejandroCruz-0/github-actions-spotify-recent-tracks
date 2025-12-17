@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **50,000 Unstoppable Watts** / Clutch
+
+![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
+
+**Album:** Strange Cousins From the West
+
+📅 2025-12-16 18:31:26
+
+
 # **Mr. Freedom** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Audioslave
 
 📅 2025-12-13 15:21:32
-
-
-# **I Won't Let You Down** / Curtis Harding
-
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
-
-**Album:** If Words Were Flowers
-
-📅 2025-12-13 15:17:46
