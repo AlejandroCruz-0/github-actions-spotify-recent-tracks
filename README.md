@@ -96,7 +96,7 @@ Nombre: **lotario1999**
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e023769d00da0d624d865a258e6)
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
 
 **Album:** No Time For Dreaming
 
