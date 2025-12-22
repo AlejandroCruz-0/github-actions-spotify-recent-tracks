@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2025-12-21 09:38:14
+
+
 # **Not Like Us** / Kendrick Lamar
 
 ![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Strange Cousins From the West
 
 📅 2025-12-14 10:39:00
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-12-14 10:35:39
