@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2025-12-22 07:56:12
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2025-12-22 07:52:46
+
+
 # **That's All I Wanted From You** / Jalen Ngonda
 
 ![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2025-12-14 13:27:27
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-12-14 13:23:42
-
-
-# **Freakonomics** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2025-12-14 10:39:00
