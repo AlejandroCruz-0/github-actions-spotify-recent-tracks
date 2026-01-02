@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2026-01-01 12:35:38
+
+
 # **Fortunate Son - The Weathermaker Vault Series** / Clutch
 
 ![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
 📅 2025-12-23 21:56:38
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-12-23 08:42:46
