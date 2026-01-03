@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Firebirds** / Clutch
+# **One Hand On the Buffalo** / The Heavy Eyes
+
+![Foto del album: Maera](https://i.scdn.co/image/ab67616d00001e02a24252b1d53f0fe8478b7695)
+
+**Album:** Maera
+
+📅 2026-01-02 18:01:44
+
+
+# **Rising** / Dozer
+
+![Foto del album: Call it Conspiracy](https://i.scdn.co/image/ab67616d00001e0284c196ffbd08964c1e8b4815)
+
+**Album:** Call it Conspiracy
+
+📅 2026-01-02 17:58:13
+
+
+# **Who Else But Us?** / The Company Band
+
+![Foto del album: The Company Band](https://i.scdn.co/image/ab67616d00001e02efc1511b5e3dd8297b538a70)
+
+**Album:** The Company Band
+
+📅 2026-01-02 17:54:36
+
+
+# **The Bottle** / Hermano
+
+![Foto del album: Only a Suggestion](https://i.scdn.co/image/ab67616d00001e0265eb427a97c123892c7db778)
+
+**Album:** Only a Suggestion
+
+📅 2026-01-02 17:51:02
+
+
+# **Burning Beard** / Clutch
+
+![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
+
+**Album:** Robot Hive/Exodus (Bonus Track Version)
+
+📅 2026-01-02 17:46:19
+
+
+# **Last Living Dinosaur** / Kadavar
+
+![Foto del album: Berlin](https://i.scdn.co/image/ab67616d00001e020283c29c0b3f9c3c099c610d)
+
+**Album:** Berlin
+
+📅 2026-01-02 17:42:18
+
+
+# **Hearts Aflame** / Valley of the Sun
+
+![Foto del album: The Sayings of the Seers](https://i.scdn.co/image/ab67616d00001e02fcaea7c8f043763511b3ece7)
+
+**Album:** The Sayings of the Seers
+
+📅 2026-01-02 17:38:13
+
+
+# **Three** / Karma To Burn
+
+![Foto del album: Wild Wonderful Purgatory](https://i.scdn.co/image/ab67616d00001e021ac56274eda47c550efa512a)
+
+**Album:** Wild Wonderful Purgatory
+
+📅 2026-01-02 17:32:15
+
+
+# **All's Well In Milton Keynes** / The Company Band
+
+![Foto del album: The Company Band](https://i.scdn.co/image/ab67616d00001e02efc1511b5e3dd8297b538a70)
+
+**Album:** The Company Band
+
+📅 2026-01-02 17:28:17
+
+
+# **Senor Moreno's Plan** / Hermano
+
+![Foto del album: Only a Suggestion](https://i.scdn.co/image/ab67616d00001e0265eb427a97c123892c7db778)
+
+**Album:** Only a Suggestion
+
+📅 2026-01-02 17:23:23
+
+
+# **Sucker for the Witch** / Clutch
 
 ![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
 
 **Album:** Psychic Warfare
 
-📅 2026-01-01 12:35:38
+📅 2026-01-02 17:19:20
 
 
-# **Fortunate Son - The Weathermaker Vault Series** / Clutch
+# **The Wolf Man Kindly Requests...** / Clutch
 
-![Foto del album: The Weathermaker Vault Series, Vol. I](https://i.scdn.co/image/ab67616d00001e02cbcd2a42417318f03c56d056)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** The Weathermaker Vault Series, Vol. I
+**Album:** Earth Rocker
 
-📅 2025-12-31 10:09:11
+📅 2026-01-02 17:15:58
 
 
-# **X-Ray Visions** / Clutch
+# **Oh, Isabella** / Clutch
 
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Psychic Warfare
+**Album:** Earth Rocker
 
-📅 2025-12-31 10:06:48
+📅 2026-01-02 17:10:55
 
 
-# **Sinkemlow** / Clutch
+# **Cyborg Bette** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-12-31 10:02:26
+📅 2026-01-02 17:05:38
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
+# **Book, Saddle, & Go** / Clutch
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Come Around and Love Me
+**Album:** Earth Rocker
 
-📅 2025-12-29 23:10:34
+📅 2026-01-02 17:02:27
 
 
-# **Changes** / Charles Bradley|The Budos Band
+# **The Face** / Clutch
 
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Changes
+**Album:** Earth Rocker
 
-📅 2025-12-29 09:58:29
+📅 2026-01-02 16:58:40
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **Gone Cold** / Clutch
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** No Time For Dreaming
+**Album:** Earth Rocker
 
-📅 2025-12-29 09:52:27
+📅 2026-01-02 16:54:18
 
 
-# **Pure Rock Fury** / Clutch
+# **Unto the Breach** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-12-29 09:48:29
+📅 2026-01-02 16:49:56
 
 
-# **Sinkemlow** / Clutch
+# **D.C. Sound Attack!** / Clutch
 
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Pure Rock Fury (US Version)
+**Album:** Earth Rocker
 
-📅 2025-12-29 09:31:44
+📅 2026-01-02 16:46:25
 
 
-# **Losing My Religion** / R.E.M.
+# **Mr. Freedom** / Clutch
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Earth Rocker
 
-📅 2025-12-28 23:52:45
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2025-12-28 21:04:15
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-12-28 21:00:52
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2025-12-28 20:57:06
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2025-12-28 20:53:48
-
-
-# **Judith** / A Perfect Circle
-
-![Foto del album: Mer De Noms](https://i.scdn.co/image/ab67616d00001e022d73b494efcb99356f8c7b28)
-
-**Album:** Mer De Noms
-
-📅 2025-12-26 15:58:29
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e024d94e1251b7e8c5e247de39c)
-
-**Album:** Audioslave
-
-📅 2025-12-26 15:54:21
-
-
-# **X-Ray Visions** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2025-12-26 15:50:39
-
-
-# **Ashes to Ashes - 2016 Remaster** / Faith No More
-
-![Foto del album: Album of the Year (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02464b3661ebe755ff3117c7e8)
-
-**Album:** Album of the Year (2016 Remaster; Deluxe Edition)
-
-📅 2025-12-26 15:46:57
-
-
-# **Midlife Crisis** / Faith No More
-
-![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
-
-**Album:** Angel Dust (Deluxe Edition)
-
-📅 2025-12-26 15:43:19
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2025-12-23 21:56:38
+📅 2026-01-02 16:41:47
