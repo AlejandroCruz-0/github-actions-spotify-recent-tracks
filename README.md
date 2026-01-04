@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Book, Saddle, & Go** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-03 19:52:48
+
+
+# **The Face** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-03 14:13:56
+
+
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-03 14:09:34
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-03 14:05:16
+
+
+# **Riding the Dunes** / Valley of the Sun
+
+![Foto del album: The Sayings of the Seers](https://i.scdn.co/image/ab67616d00001e02fcaea7c8f043763511b3ece7)
+
+**Album:** The Sayings of the Seers
+
+📅 2026-01-03 14:02:07
+
+
 # **One Hand On the Buffalo** / The Heavy Eyes
 
 ![Foto del album: Maera](https://i.scdn.co/image/ab67616d00001e02a24252b1d53f0fe8478b7695)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2026-01-02 17:02:27
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 16:58:40
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 16:54:18
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 16:49:56
-
-
-# **D.C. Sound Attack!** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 16:46:25
-
-
-# **Mr. Freedom** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 16:41:47
