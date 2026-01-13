@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Gone Cold** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-12 12:05:10
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-12 11:10:37
+
+
 # **i was shaking ahh song (join .gg/xERDRrffFt)** / flagged|Ironmouse
 
 ![Foto del album: i was shaking ahh song (join .gg/xERDRrffFt)](https://i.scdn.co/image/ab67616d00001e02b442fc8d5db8a7bfd0935a53)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2026-01-02 17:15:58
-
-
-# **Oh, Isabella** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 17:10:55
-
-
-# **Cyborg Bette** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 17:05:38
