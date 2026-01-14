@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+
+![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+
+**Album:** Somebody Loan Me A Dime (Remastered)
+
+📅 2026-01-13 14:12:44
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-13 12:33:37
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2026-01-13 12:29:35
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2026-01-13 12:28:15
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-13 12:22:29
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-01-13 11:28:02
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-01-13 11:24:07
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-13 11:20:31
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-01-13 11:15:36
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-13 11:12:14
+
+
 # **Gone Cold** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Call it Conspiracy
 
 📅 2026-01-02 17:58:13
-
-
-# **Who Else But Us?** / The Company Band
-
-![Foto del album: The Company Band](https://i.scdn.co/image/ab67616d00001e02efc1511b5e3dd8297b538a70)
-
-**Album:** The Company Band
-
-📅 2026-01-02 17:54:36
-
-
-# **The Bottle** / Hermano
-
-![Foto del album: Only a Suggestion](https://i.scdn.co/image/ab67616d00001e0265eb427a97c123892c7db778)
-
-**Album:** Only a Suggestion
-
-📅 2026-01-02 17:51:02
-
-
-# **Burning Beard** / Clutch
-
-![Foto del album: Robot Hive/Exodus (Bonus Track Version)](https://i.scdn.co/image/ab67616d00001e02d90c1615b56490532e230294)
-
-**Album:** Robot Hive/Exodus (Bonus Track Version)
-
-📅 2026-01-02 17:46:19
-
-
-# **Last Living Dinosaur** / Kadavar
-
-![Foto del album: Berlin](https://i.scdn.co/image/ab67616d00001e020283c29c0b3f9c3c099c610d)
-
-**Album:** Berlin
-
-📅 2026-01-02 17:42:18
-
-
-# **Hearts Aflame** / Valley of the Sun
-
-![Foto del album: The Sayings of the Seers](https://i.scdn.co/image/ab67616d00001e02fcaea7c8f043763511b3ece7)
-
-**Album:** The Sayings of the Seers
-
-📅 2026-01-02 17:38:13
-
-
-# **Three** / Karma To Burn
-
-![Foto del album: Wild Wonderful Purgatory](https://i.scdn.co/image/ab67616d00001e021ac56274eda47c550efa512a)
-
-**Album:** Wild Wonderful Purgatory
-
-📅 2026-01-02 17:32:15
-
-
-# **All's Well In Milton Keynes** / The Company Band
-
-![Foto del album: The Company Band](https://i.scdn.co/image/ab67616d00001e02efc1511b5e3dd8297b538a70)
-
-**Album:** The Company Band
-
-📅 2026-01-02 17:28:17
-
-
-# **Senor Moreno's Plan** / Hermano
-
-![Foto del album: Only a Suggestion](https://i.scdn.co/image/ab67616d00001e0265eb427a97c123892c7db778)
-
-**Album:** Only a Suggestion
-
-📅 2026-01-02 17:23:23
-
-
-# **Sucker for the Witch** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2026-01-02 17:19:20
-
-
-# **The Wolf Man Kindly Requests...** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-02 17:15:58
