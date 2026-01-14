@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-01-14 08:58:18
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-14 08:54:57
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-01-14 08:51:11
+
+
 # **You Don't Know What Love Is - Remastered** / Fenton Robinson
 
 ![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2026-01-03 14:05:16
-
-
-# **Riding the Dunes** / Valley of the Sun
-
-![Foto del album: The Sayings of the Seers](https://i.scdn.co/image/ab67616d00001e02fcaea7c8f043763511b3ece7)
-
-**Album:** The Sayings of the Seers
-
-📅 2026-01-03 14:02:07
-
-
-# **One Hand On the Buffalo** / The Heavy Eyes
-
-![Foto del album: Maera](https://i.scdn.co/image/ab67616d00001e02a24252b1d53f0fe8478b7695)
-
-**Album:** Maera
-
-📅 2026-01-02 18:01:44
-
-
-# **Rising** / Dozer
-
-![Foto del album: Call it Conspiracy](https://i.scdn.co/image/ab67616d00001e0284c196ffbd08964c1e8b4815)
-
-**Album:** Call it Conspiracy
-
-📅 2026-01-02 17:58:13
