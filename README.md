@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-14 15:39:15
+
+
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
 ![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2026-01-03 14:09:34
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-03 14:05:16
