@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Bone Bottom** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-01-16 08:59:33
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-01-16 08:55:41
+
+
+# **Sing It Back - Boris Musical Mix - Edit** / Moloko|Boris Dlugosch|Michael Lange
+
+![Foto del album: Sing It Back](https://i.scdn.co/image/ab67616d00001e02d4f00c1ac90480a02fa6b73f)
+
+**Album:** Sing It Back
+
+📅 2026-01-16 08:52:47
+
+
+# **Cosmic Girl - Remastered 2013** / Jamiroquai
+
+![Foto del album: Travelling Without Moving (Remastered)](https://i.scdn.co/image/ab67616d00001e026407aa9a5e5215cf554ad5d1)
+
+**Album:** Travelling Without Moving (Remastered)
+
+📅 2026-01-16 08:48:53
+
+
+# **Virtual Insanity** / Jamiroquai
+
+![Foto del album: Pop Music: The Modern Era 1976-1999](https://i.scdn.co/image/ab67616d00001e028e17f9583f2c3cb003a5b8f2)
+
+**Album:** Pop Music: The Modern Era 1976-1999
+
+📅 2026-01-16 08:43:54
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2026-01-16 08:39:35
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-01-16 01:51:05
+
+
 # **Glory Box** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2026-01-13 11:24:07
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-01-13 11:20:31
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-01-13 11:15:36
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-01-13 11:12:14
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-12 12:05:10
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-12 11:10:37
-
-
-# **i was shaking ahh song (join .gg/xERDRrffFt)** / flagged|Ironmouse
-
-![Foto del album: i was shaking ahh song (join .gg/xERDRrffFt)](https://i.scdn.co/image/ab67616d00001e02b442fc8d5db8a7bfd0935a53)
-
-**Album:** i was shaking ahh song (join .gg/xERDRrffFt)
-
-📅 2026-01-08 14:17:38
-
-
-# **Book, Saddle, & Go** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-01-03 19:52:48
