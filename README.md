@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **The Marrow** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-01-16 18:51:29
+
+
 # **Bone Bottom** / Christopher Larkin
 
 ![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-01-13 11:28:02
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-01-13 11:24:07
