@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **The Face** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-18 22:10:27
+
+
 # **Gone Cold** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Somebody Loan Me A Dime (Remastered)
 
 📅 2026-01-13 14:12:44
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-01-13 12:33:37
