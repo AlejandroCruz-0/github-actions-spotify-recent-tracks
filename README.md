@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Book, Saddle, & Go** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-01-21 07:35:29
+
+
 # **The Face** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2026-01-14 08:51:11
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2026-01-13 14:12:44
