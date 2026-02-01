@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-01-31 18:05:27
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-01-31 18:02:43
+
+
 # **Glory Box** / Portishead
 
 ![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Somebody Loan Me A Dime (Remastered)
 
 📅 2026-01-26 12:55:26
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-01-26 12:51:32
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2026-01-26 12:47:31
