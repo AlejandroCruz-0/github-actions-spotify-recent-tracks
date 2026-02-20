@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-02-20 08:35:04
+
+
 # **Your Woman** / White Town
 
 ![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Earth Rocker
 
 📅 2026-02-16 22:32:35
-
-
-# **Pure Rock Fury** / Clutch
-
-![Foto del album: Pure Rock Fury (US Version)](https://i.scdn.co/image/ab67616d00001e02186c8e896ab9bad5a804e863)
-
-**Album:** Pure Rock Fury (US Version)
-
-📅 2026-02-16 22:29:09
