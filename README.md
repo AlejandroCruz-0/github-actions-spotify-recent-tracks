@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2026-02-21 08:35:23
+
+
+# **Black Waters** / Makthaverskan
+
+![Foto del album: Black Waters](https://i.scdn.co/image/ab67616d00001e02a342c2cd3af78896e1ba1cf7)
+
+**Album:** Black Waters
+
+📅 2026-02-21 08:29:39
+
+
 # **Unto the Breach** / Clutch
 
 ![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** No Time For Dreaming
 
 📅 2026-02-16 23:14:24
-
-
-# **Gone Cold** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-02-16 23:14:14
-
-
-# **Unto the Breach** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-02-16 22:32:35
