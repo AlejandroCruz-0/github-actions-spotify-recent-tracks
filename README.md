@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-02-27 16:10:24
+
+
 # **Main Titles** / Theodore Shapiro
 
 ![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-02-23 17:37:25
-
-
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
-
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e025d5c9f79fe1c08cd09f3f695)
-
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
-
-📅 2026-02-23 09:18:44
