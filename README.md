@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-07 17:28:54
+
+
 # **Jolie Coquine** / Caravan Palace
 
 ![Foto del album: Caravan Palace](https://i.scdn.co/image/ab67616d00001e026710bf28e258dd43f533fd51)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-03-05 11:40:48
-
-
-# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2026-03-05 11:35:33
