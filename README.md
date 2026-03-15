@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Evidence - 2016 Remaster** / Faith No More
+
+![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
+
+**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
+
+📅 2026-03-14 17:56:47
+
+
+# **Midlife Crisis** / Faith No More
+
+![Foto del album: Angel Dust (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e0236842671366bfeb3d7c5f19e)
+
+**Album:** Angel Dust (Deluxe Edition)
+
+📅 2026-03-14 17:51:54
+
+
+# **Do You See Me Now (Music from the Original TV Series)** / CHINCHILLA|Isobel Waller-Bridge
+
+![Foto del album: Do You See Me Now (Music from the Original TV Series)](https://i.scdn.co/image/ab67616d00001e02c2b87a8d404035c025ad66bb)
+
+**Album:** Do You See Me Now (Music from the Original TV Series)
+
+📅 2026-03-14 17:47:10
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-14 16:22:20
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-14 12:32:47
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2026-03-14 12:29:09
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-14 10:19:27
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-14 10:15:26
+
+
 # **Losing My Religion** / R.E.M.
 
 ![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-03-11 00:21:36
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-03-11 00:17:34
-
-
-# **Hot Together** / The Pointer Sisters
-
-![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
-
-**Album:** Hot Together (Expanded Edition)
-
-📅 2026-03-10 22:48:31
-
-
-# **Breakfast In America - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-10 22:44:20
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-10 22:41:14
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2026-03-10 17:30:39
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2026-03-10 09:37:36
-
-
-# **Can't Change Me** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-03-10 09:33:40
-
-
-# **Firestarter** / The Prodigy
-
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
-
-**Album:** The Fat of the Land
-
-📅 2026-03-10 09:30:17
