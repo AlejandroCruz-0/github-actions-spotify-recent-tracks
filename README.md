@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
+📅 2026-03-17 20:46:48
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-17 20:42:47
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
 📅 2026-03-16 22:38:34
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-03-15 08:51:11
-
-
-# **Killing In The Name** / Rage Against The Machine
-
-![Foto del album: Rage Against The Machine - XX (20th Anniversary Special Edition)](https://i.scdn.co/image/ab67616d00001e0254ab617bc2d4974ab6ffbece)
-
-**Album:** Rage Against The Machine - XX (20th Anniversary Special Edition)
-
-📅 2026-03-15 08:47:12
-
-
-# **Evidence - 2016 Remaster** / Faith No More
-
-![Foto del album: King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02946c16fc82f444d332a7ebdb)
-
-**Album:** King for a Day, Fool for a Lifetime (2016 Remaster; Deluxe Edition)
-
-📅 2026-03-14 17:56:47
