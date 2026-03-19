@@ -19,7 +19,25 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-17 20:46:48
+📅 2026-03-18 21:43:41
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-03-18 21:39:40
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-03-18 21:36:18
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -28,7 +46,34 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-17 20:42:47
+📅 2026-03-18 18:37:08
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-03-18 18:33:32
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-03-18 12:17:02
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-03-18 12:13:16
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -37,16 +82,43 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-16 22:38:34
+📅 2026-03-18 12:09:06
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Child Of Vision - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-16 21:32:59
+📅 2026-03-18 12:05:03
+
+
+# **Casual Conversations - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-18 10:48:21
+
+
+# **Just Another Nervous Wreck - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-18 10:45:22
+
+
+# **Lord Is It Mine - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-18 10:40:56
 
 
 # **Take The Long Way Home - Remastered 2010** / Supertramp
@@ -55,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-16 16:56:04
+📅 2026-03-18 10:36:46
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -64,16 +136,16 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-16 16:49:34
+📅 2026-03-18 10:31:37
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Breakfast In America - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-16 16:45:21
+📅 2026-03-18 10:26:06
 
 
 # **Goodbye Stranger - Remastered 2010** / Supertramp
@@ -82,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-15 23:11:51
+📅 2026-03-18 10:23:27
 
 
 # **The Logical Song - Remastered 2010** / Supertramp
@@ -91,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-15 18:13:54
+📅 2026-03-18 10:17:36
 
 
 # **Gone Hollywood - Remastered 2010** / Supertramp
@@ -100,88 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-15 18:09:43
-
-
-# **Fool** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 18:04:23
-
-
-# **Reverse** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 18:00:54
-
-
-# **Avalanches** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 17:57:08
-
-
-# **Raccoons** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 17:52:42
-
-
-# **81 Special** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 17:49:14
-
-
-# **Mirrors** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 17:45:18
-
-
-# **MAD** / Caravan Palace
-
-![Foto del album: Gangbusters Melody Club](https://i.scdn.co/image/ab67616d00001e028449fc89a3d7c849e05e3147)
-
-**Album:** Gangbusters Melody Club
-
-📅 2026-03-15 17:41:38
-
-
-# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2026-03-15 17:38:41
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e0249b23e24c3e785a5d443823c)
-
-**Album:** Ones and Sixes
-
-📅 2026-03-15 08:56:51
+📅 2026-03-18 10:13:25
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -190,4 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-15 08:51:11
+📅 2026-03-18 10:07:46
+
+
+# **Lord Is It Mine - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-18 10:04:08
