@@ -19,6 +19,24 @@ Nombre: **lotario1999**
 
 **Album:** Back In Black
 
+📅 2026-03-21 22:49:44
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-21 22:43:49
+
+
+# **Hells Bells** / AC/DC
+
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
+
+**Album:** Back In Black
+
 📅 2026-03-21 18:49:19
 
 
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** You Want It Darker
 
 📅 2026-03-21 09:46:33
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-21 09:40:49
-
-
-# **Not Like Us** / Kendrick Lamar
-
-![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
-
-**Album:** Not Like Us
-
-📅 2026-03-21 09:36:42
