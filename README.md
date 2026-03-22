@@ -13,94 +13,76 @@ Nombre: **lotario1999**
 
 
 
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
+# **Hells Bells** / AC/DC
 
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02b46697654c47720bf3424322)
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
 
-**Album:** Somebody Loan Me A Dime (Remastered)
+**Album:** Back In Black
 
-📅 2026-03-21 09:05:31
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-03-21 09:02:07
+📅 2026-03-21 18:49:19
 
 
-# **Main Titles** / Theodore Shapiro
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e02f161e0d2bdbbbb543237272b)
 
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2026-03-21 08:57:29
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2026-03-21 08:56:07
+📅 2026-03-21 12:25:41
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **Time Deer** / Bent Knee
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
 
-**Album:** No Time For Dreaming
+**Album:** Land Animal
 
-📅 2026-03-21 08:50:25
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-03-21 08:47:05
+📅 2026-03-21 12:21:49
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Wolf Like Me** / TV On The Radio
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e02217de86bedd48dfaf5a05167)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Return To Cookie Mountain
 
-📅 2026-03-21 08:43:12
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-21 01:48:40
+📅 2026-03-21 12:17:09
 
 
-# **The Passenger** / Iggy Pop
+# **Lace** / Christopher Larkin
 
-![Foto del album: Lust For Life](https://i.scdn.co/image/ab67616d00001e024aa5f679427e35409a06f225)
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
 
-**Album:** Lust For Life
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2026-03-20 22:09:59
+📅 2026-03-21 12:12:33
 
 
-# **Take The Long Way Home - Remastered 2010** / Supertramp
+# **Criminal** / Fiona Apple
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Tidal
 
-📅 2026-03-20 22:05:08
+📅 2026-03-21 12:04:46
+
+
+# **Hot Together** / The Pointer Sisters
+
+![Foto del album: Hot Together (Expanded Edition)](https://i.scdn.co/image/ab67616d00001e02592124b134716cc5896c6422)
+
+**Album:** Hot Together (Expanded Edition)
+
+📅 2026-03-21 11:59:17
+
+
+# **Cochise** / Audioslave
+
+![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
+
+**Album:** Audioslave
+
+📅 2026-03-21 11:54:17
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -109,7 +91,88 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-20 17:30:35
+📅 2026-03-21 11:50:43
+
+
+# **Always** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 11:46:25
+
+
+# **Light as the Breeze** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 10:32:17
+
+
+# **Democracy** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 10:25:07
+
+
+# **Anthem** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 10:17:45
+
+
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 10:11:36
+
+
+# **Be for Real** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 10:05:35
+
+
+# **Waiting for the Miracle** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 10:01:04
+
+
+# **The Future** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-21 09:53:21
+
+
+# **You Want It Darker** / Leonard Cohen
+
+![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e02e2372944b7227d7a3f76da6a)
+
+**Album:** You Want It Darker
+
+📅 2026-03-21 09:46:33
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -118,76 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-20 16:08:24
+📅 2026-03-21 09:40:49
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Not Like Us
 
-📅 2026-03-20 05:15:24
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-19 23:01:01
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-03-19 19:58:44
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-19 19:54:40
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-19 18:21:01
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-19 11:29:41
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-18 21:43:41
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-03-18 21:39:40
+📅 2026-03-21 09:36:42
