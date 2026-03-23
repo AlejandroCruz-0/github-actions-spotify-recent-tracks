@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Far Fields** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-03-22 19:02:47
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-22 19:02:11
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-03-22 18:52:25
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-03-22 18:49:39
+
+
+# **Disappear** / Mazzy Star
+
+![Foto del album: Among My Swan](https://i.scdn.co/image/ab67616d00001e0240f8e560e743f9b5d382c0af)
+
+**Album:** Among My Swan
+
+📅 2026-03-22 15:53:19
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-22 14:18:00
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-22 14:13:58
+
+
+# **Deeply** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
+
+**Album:** Twilight
+
+📅 2026-03-22 12:04:41
+
+
 # **Hells Bells** / AC/DC
 
 ![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Future
 
 📅 2026-03-21 11:46:25
-
-
-# **Light as the Breeze** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 10:32:17
-
-
-# **Democracy** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 10:25:07
-
-
-# **Anthem** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 10:17:45
-
-
-# **Closing Time** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 10:11:36
-
-
-# **Be for Real** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 10:05:35
-
-
-# **Waiting for the Miracle** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 10:01:04
-
-
-# **The Future** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 09:53:21
-
-
-# **You Want It Darker** / Leonard Cohen
-
-![Foto del album: You Want It Darker](https://i.scdn.co/image/ab67616d00001e02e2372944b7227d7a3f76da6a)
-
-**Album:** You Want It Darker
-
-📅 2026-03-21 09:46:33
