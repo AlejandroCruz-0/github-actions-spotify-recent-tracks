@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Closing Time** / Leonard Cohen
+
+![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+
+**Album:** The Future
+
+📅 2026-03-23 09:02:07
+
+
 # **Far Fields** / Christopher Larkin
 
 ![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-03-21 11:50:43
-
-
-# **Always** / Leonard Cohen
-
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
-
-**Album:** The Future
-
-📅 2026-03-21 11:46:25
