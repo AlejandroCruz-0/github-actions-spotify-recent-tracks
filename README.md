@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-03-25 09:35:33
+
+
 # **My Lover's Prayer** / Otis Redding
 
 ![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Twilight
 
 📅 2026-03-22 12:04:41
-
-
-# **Hells Bells** / AC/DC
-
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
-
-**Album:** Back In Black
-
-📅 2026-03-21 22:49:44
