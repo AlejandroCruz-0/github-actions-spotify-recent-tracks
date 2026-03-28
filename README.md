@@ -19,34 +19,133 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-03-26 11:21:49
+📅 2026-03-27 21:12:27
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Show Me (feat. Monica Martin)** / James Blake|Monica Martin
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Friends That Break Your Heart](https://i.scdn.co/image/ab67616d00001e0238d030048ec770b15633dbc1)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Friends That Break Your Heart
 
-📅 2026-03-25 10:36:45
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-25 09:35:33
+📅 2026-03-27 21:08:27
 
 
-# **My Lover's Prayer** / Otis Redding
+# **Just A Little Higher** / James Blake
 
-![Foto del album: The Very Best of Otis Redding](https://i.scdn.co/image/ab67616d00001e029000f111ee8160c05734ee5b)
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
 
-**Album:** The Very Best of Otis Redding
+**Album:** Trying Times
 
-📅 2026-03-24 18:16:48
+📅 2026-03-27 21:08:14
+
+
+# **Feel It Again** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:47:56
+
+
+# **Through The High Wire** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:45:46
+
+
+# **Rest Of Your Life** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:42:06
+
+
+# **Obsession** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:37:21
+
+
+# **Doesn't Just Happen** / James Blake|Dave
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:35:41
+
+
+# **Days Go By** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:32:23
+
+
+# **Didn’t Come To Argue** / James Blake|Monica Martin
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:28:55
+
+
+# **Make Something Up** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:24:08
+
+
+# **Trying Times** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:19:32
+
+
+# **I Had a Dream She Took My Hand** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:14:59
+
+
+# **Death of Love** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:11:18
+
+
+# **Walk Out Music** / James Blake
+
+![Foto del album: Trying Times](https://i.scdn.co/image/ab67616d00001e02884dd01508605dca727d8993)
+
+**Album:** Trying Times
+
+📅 2026-03-27 13:07:52
 
 
 # **Lace** / Christopher Larkin
@@ -55,52 +154,16 @@ Nombre: **lotario1999**
 
 **Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2026-03-24 15:53:59
+📅 2026-03-27 13:03:56
 
 
-# **Aloha! (Main Title Theme) - from “The White Lotus: Season 1”** / Cristobal Tapia De Veer
+# **Terror Bird** / Bent Knee
 
-![Foto del album: The White Lotus (Soundtrack from the HBO® Original Limited Series)](https://i.scdn.co/image/ab67616d00001e02ea2d2aea1b959f5128ff0c51)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
 
-**Album:** The White Lotus (Soundtrack from the HBO® Original Limited Series)
+**Album:** Land Animal
 
-📅 2026-03-24 15:51:00
-
-
-# **When I'm Down** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-03-24 15:49:42
-
-
-# **Let a Poor Man Be** / Clutch
-
-![Foto del album: Strange Cousins From the West](https://i.scdn.co/image/ab67616d00001e024da5b293819d65ad3993b09a)
-
-**Album:** Strange Cousins From the West
-
-📅 2026-03-24 15:45:22
-
-
-# **Rock It for Me** / Caravan Palace
-
-![Foto del album: Panic](https://i.scdn.co/image/ab67616d00001e02d4189ca2964e92b5e5e545ed)
-
-**Album:** Panic
-
-📅 2026-03-24 15:37:38
-
-
-# **Supermassive Black Hole** / Muse
-
-![Foto del album: Black Holes and Revelations](https://i.scdn.co/image/ab67616d00001e0228933b808bfb4cbbd0385400)
-
-**Album:** Black Holes and Revelations
-
-📅 2026-03-24 15:34:26
+📅 2026-03-27 13:00:53
 
 
 # **Hot Together** / The Pointer Sisters
@@ -109,85 +172,22 @@ Nombre: **lotario1999**
 
 **Album:** Hot Together (Expanded Edition)
 
-📅 2026-03-24 15:30:53
+📅 2026-03-27 12:56:43
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Land Animal
 
-📅 2026-03-24 15:25:25
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-24 15:21:13
+📅 2026-03-27 12:51:58
 
 
-# **Closing Time** / Leonard Cohen
+# **Not Like Us** / Kendrick Lamar
 
-![Foto del album: The Future](https://i.scdn.co/image/ab67616d00001e02da5964a913e8034b6f63b869)
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
 
-**Album:** The Future
+**Album:** Not Like Us
 
-📅 2026-03-23 09:02:07
-
-
-# **Far Fields** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-03-22 19:02:47
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-22 19:02:11
-
-
-# **Lace** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-03-22 18:52:25
-
-
-# **Lace** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-03-22 18:49:39
-
-
-# **Disappear** / Mazzy Star
-
-![Foto del album: Among My Swan](https://i.scdn.co/image/ab67616d00001e0240f8e560e743f9b5d382c0af)
-
-**Album:** Among My Swan
-
-📅 2026-03-22 15:53:19
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-03-22 14:18:00
+📅 2026-03-27 12:46:07
