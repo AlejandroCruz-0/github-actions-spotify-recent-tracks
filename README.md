@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-02 09:35:48
+
+
+# **Tabu** / Gustavo Cerati
+
+![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
+
+**Album:** Bocanada
+
+📅 2026-04-02 09:31:41
+
+
 # **Let's Dance - 2018 Remaster** / David Bowie
 
 ![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Ones and Sixes
 
 📅 2026-03-30 10:43:51
-
-
-# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e02f161e0d2bdbbbb543237272b)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2026-03-30 10:40:05
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2026-03-30 10:32:45
