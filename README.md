@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Let's Dance - 2018 Remaster** / David Bowie
+
+![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
+
+**Album:** Let's Dance (2018 Remaster)
+
+📅 2026-04-01 21:50:18
+
+
+# **New Sensation** / INXS
+
+![Foto del album: Kick (Remastered 2011)](https://i.scdn.co/image/ab67616d00001e02dac4efc0ebdfd9d92f127129)
+
+**Album:** Kick (Remastered 2011)
+
+📅 2026-04-01 21:42:19
+
+
+# **Sledgehammer - Remastered** / Peter Gabriel
+
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+
+**Album:** So (Special Edition)
+
+📅 2026-04-01 13:46:29
+
+
+# **My Very Best** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2026-04-01 13:41:15
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-01 13:35:47
+
+
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** From Beale Street to Oblivion
 
 📅 2026-03-30 10:32:45
-
-
-# **Hole** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-03-30 10:24:18
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2026-03-30 10:20:57
-
-
-# **Alive** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2026-03-30 10:16:49
-
-
-# **Wolf Like Me** / TV On The Radio
-
-![Foto del album: Return To Cookie Mountain](https://i.scdn.co/image/ab67616d00001e02217de86bedd48dfaf5a05167)
-
-**Album:** Return To Cookie Mountain
-
-📅 2026-03-30 10:13:55
-
-
-# **Lace** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-03-30 10:09:04
