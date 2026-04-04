@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2026-04-03 10:11:54
+
+
 # **Burning Down the House - Live** / Talking Heads
 
 ![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nine Types of Light
 
 📅 2026-03-30 11:11:20
-
-
-# **Hells Bells** / AC/DC
-
-![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
-
-**Album:** Back In Black
-
-📅 2026-03-30 11:07:34
