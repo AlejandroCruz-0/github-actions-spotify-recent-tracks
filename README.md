@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **The Choir** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-08 18:07:41
+
+
+# **Fourth Chorus** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-08 18:05:44
+
+
+# **Far Fields** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-08 18:04:10
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-08 18:01:29
+
+
 # **Sealed Away** / Kane Parsons
 
 ![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Tidal
 
 📅 2026-04-03 10:11:54
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2026-04-02 17:39:56
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-02 17:34:30
-
-
-# **Night Cover** / Matara Kan
-
-![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
-
-**Album:** Night Cover
-
-📅 2026-04-02 17:30:30
-
-
-# **Pack Up The Louie - Caravan Palace Remix** / Caro Emerald|Caravan Palace
-
-![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e02f161e0d2bdbbbb543237272b)
-
-**Album:** The Shocking Miss Emerald (The Remixes)
-
-📅 2026-04-02 13:13:10
