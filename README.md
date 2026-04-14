@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2026-04-13 14:43:28
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2026-04-13 13:42:49
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-13 09:38:39
+
+
+# **Amarillo** / Gorillaz
+
+![Foto del album: The Fall](https://i.scdn.co/image/ab67616d00001e02bfcb1c9ce002a2c2cd5e9f34)
+
+**Album:** The Fall
+
+📅 2026-04-13 09:32:58
+
+
 # **Will Do** / TV On The Radio
 
 ![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-04-11 12:03:58
-
-
-# **Pipes** / Kane Parsons
-
-![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
-
-**Album:** Backrooms (Original Score), Vol. 1
-
-📅 2026-04-11 11:59:57
-
-
-# **Government Funding** / Kane Parsons
-
-![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
-
-**Album:** Backrooms (Original Score), Vol. 1
-
-📅 2026-04-11 09:26:27
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-11 09:21:54
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-11 09:18:16
