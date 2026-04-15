@@ -13,6 +13,150 @@ Nombre: **lotario1999**
 
 
 
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2026-04-14 17:29:10
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-14 17:24:42
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-04-14 17:20:36
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-04-14 16:59:47
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-04-14 16:56:25
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-04-14 16:52:39
+
+
+# **Goodbye Stranger - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-14 16:48:35
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-14 16:47:15
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 16:41:49
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 16:38:27
+
+
+# **Hunter's Trail** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 16:35:44
+
+
+# **Sister Splinter** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 12:55:04
+
+
+# **Shellwood** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 12:53:55
+
+
+# **Widow** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 12:51:25
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-14 12:47:38
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-14 12:44:31
+
+
 # **Two Weeks** / FKA twigs
 
 ![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
@@ -47,147 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Fall
 
 📅 2026-04-13 09:32:58
-
-
-# **Will Do** / TV On The Radio
-
-![Foto del album: Nine Types of Light](https://i.scdn.co/image/ab67616d00001e02236e058ccdf0522208cc8397)
-
-**Album:** Nine Types of Light
-
-📅 2026-04-13 08:59:24
-
-
-# **Criminal** / Fiona Apple
-
-![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
-
-**Album:** Tidal
-
-📅 2026-04-12 12:08:25
-
-
-# **Burning Down the House - Live** / Talking Heads
-
-![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
-
-**Album:** Stop Making Sense (Live)
-
-📅 2026-04-12 12:02:43
-
-
-# **The Face** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-04-12 11:37:22
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-12 11:33:00
-
-
-# **Devastated Fortress** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2026-04-12 11:29:22
-
-
-# **Rival Candidates** / グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2026-04-11 21:22:57
-
-
-# **Traversing the Wastes** / 本良敬典（長現山妙常寺）|Maiko Katagiri|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2026-04-11 21:20:38
-
-
-# **Warriors in Arms** / 本良敬典（長現山妙常寺）|グローリー・コーラス・トウキョウ|アトラスサウンドチーム|ATLUS GAME MUSIC
-
-![Foto del album: Metaphor: ReFantazio Special Soundtrack](https://i.scdn.co/image/ab67616d00001e02327b476e88bcb2d0d3bf2739)
-
-**Album:** Metaphor: ReFantazio Special Soundtrack
-
-📅 2026-04-11 21:17:25
-
-
-# **Time Deer** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-04-11 21:14:40
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-04-11 21:10:11
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-04-11 21:05:57
-
-
-# **Hole** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-04-11 12:27:22
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-04-11 12:24:01
-
-
-# **Bell Beast** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-11 12:19:47
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-11 12:03:58
