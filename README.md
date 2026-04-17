@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-16 23:28:36
+
+
+# **Breakfast In America - Live At Wembley/1979** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-16 23:24:36
+
+
 # **Goodbye Stranger - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hollow Knight: Silksong (Original Soundtrack)
 
 📅 2026-04-14 16:35:44
-
-
-# **Sister Splinter** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-14 12:55:04
-
-
-# **Shellwood** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-14 12:53:55
