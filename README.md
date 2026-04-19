@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **You're Done (Daisy Bell)** / Kane Parsons
+
+![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
+
+**Album:** Backrooms (Original Score), Vol. 1
+
+📅 2026-04-18 21:48:55
+
+
+# **Pipes** / Kane Parsons
+
+![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
+
+**Album:** Backrooms (Original Score), Vol. 1
+
+📅 2026-04-18 21:46:23
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-18 21:43:20
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-18 11:52:41
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-18 11:49:01
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-18 08:55:22
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-04-18 08:51:16
+
+
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-04-14 17:24:42
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-04-14 17:20:36
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-04-14 16:59:47
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-04-14 16:56:25
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-04-14 16:52:39
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-14 16:48:35
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-14 16:47:15
-
-
-# **Lace** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-14 16:41:49
