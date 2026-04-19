@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Glacier** / Kane Parsons
+
+![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
+
+**Album:** Backrooms (Original Score), Vol. 1
+
+📅 2026-04-18 21:52:27
+
+
 # **You're Done (Daisy Bell)** / Kane Parsons
 
 ![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Out Of Time (25th Anniversary Edition)
 
 📅 2026-04-14 17:29:10
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-14 17:24:42
