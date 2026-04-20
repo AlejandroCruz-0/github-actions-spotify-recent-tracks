@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Main Theme** / LouisF
+
+![Foto del album: Balatro (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b153ba98e093ff8841fc5d73)
+
+**Album:** Balatro (Original Game Soundtrack)
+
+📅 2026-04-19 21:54:22
+
+
 # **Terror Bird** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hollow Knight: Silksong (Original Soundtrack)
 
 📅 2026-04-15 19:07:32
-
-
-# **Lace** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-15 15:18:11
