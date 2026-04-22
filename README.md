@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Hunter's Trail** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-21 23:20:23
+
+
+# **Sister Splinter** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-21 23:18:58
+
+
+# **Shellwood** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-21 23:17:49
+
+
+# **Widow** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-04-21 23:15:19
+
+
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Backrooms (Original Score), Vol. 1
 
 📅 2026-04-20 09:41:31
-
-
-# **The Complex** / Kane Parsons
-
-![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
-
-**Album:** Backrooms (Original Score), Vol. 1
-
-📅 2026-04-20 09:36:08
-
-
-# **Auditory Guidepost** / Kane Parsons
-
-![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
-
-**Album:** Backrooms (Original Score), Vol. 1
-
-📅 2026-04-20 09:29:07
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-20 09:25:07
-
-
-# **Main Theme** / LouisF
-
-![Foto del album: Balatro (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b153ba98e093ff8841fc5d73)
-
-**Album:** Balatro (Original Game Soundtrack)
-
-📅 2026-04-19 21:54:22
