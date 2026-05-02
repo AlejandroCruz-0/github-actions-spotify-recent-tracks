@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Shop Theme** / LouisF
+
+![Foto del album: Balatro (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b153ba98e093ff8841fc5d73)
+
+**Album:** Balatro (Original Game Soundtrack)
+
+📅 2026-05-01 11:58:34
+
+
 # **Main Theme** / LouisF
 
 ![Foto del album: Balatro (Original Game Soundtrack)](https://i.scdn.co/image/ab67616d00001e02b153ba98e093ff8841fc5d73)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Hollow Knight: Silksong (Original Soundtrack)
 
 📅 2026-04-25 23:07:52
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-25 22:09:33
