@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Breakfast In America - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-02 22:57:49
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-02 22:54:16
+
+
+# **Oh, Isabella** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-05-02 22:49:42
+
+
+# **Cyborg Bette** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-05-02 22:44:24
+
+
+# **Book, Saddle, & Go** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-05-02 22:41:10
+
+
+# **The Face** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-05-02 22:37:26
+
+
+# **Unto the Breach** / Clutch
+
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
+
+**Album:** Earth Rocker
+
+📅 2026-05-02 22:33:03
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-02 22:29:26
+
+
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -119,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-04-27 10:11:46
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-27 10:07:53
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-04-26 15:03:39
-
-
-# **Widow** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-25 23:22:14
-
-
-# **Bellhart** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-25 23:20:07
-
-
-# **Incisive Battle** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-25 23:17:32
-
-
-# **Greymoor** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-25 23:16:12
-
-
-# **Fourth Chorus** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-25 23:12:06
-
-
-# **Far Fields** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-04-25 23:10:34
