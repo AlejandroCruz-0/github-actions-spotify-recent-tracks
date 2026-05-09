@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Love Is A Long Road** / Tom Petty
+
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
+
+**Album:** Full Moon Fever
+
+📅 2026-05-08 13:28:40
+
+
 # **Night Cover** / Matara Kan
 
 ![Foto del album: Night Cover](https://i.scdn.co/image/ab67616d00001e0256697e7c5eeb9c5b547e3f49)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Metaphor: ReFantazio Special Soundtrack
 
 📅 2026-05-06 00:33:38
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02871f2d23c14c9497fb7b5c84)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2026-05-06 00:30:38
