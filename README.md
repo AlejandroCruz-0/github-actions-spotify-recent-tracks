@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2026-05-11 10:23:22
+
+
+# **Coffee & TV** / Blur
+
+![Foto del album: 13](https://i.scdn.co/image/ab67616d00001e0294983882a5effd77742a9f52)
+
+**Album:** 13
+
+📅 2026-05-11 10:17:56
+
+
 # **Time is Running Out** / Muse
 
 ![Foto del album: Absolution](https://i.scdn.co/image/ab67616d00001e0248cf14e1e805e59e001b10ea)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Breakfast In America (Deluxe Edition)
 
 📅 2026-05-09 13:53:10
-
-
-# **Greymoor** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-05-09 13:49:11
-
-
-# **Fourth Chorus** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-05-09 10:44:02
