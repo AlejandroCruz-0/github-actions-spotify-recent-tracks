@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-11 22:30:21
+
+
 # **In the Aeroplane Over the Sea** / Neutral Milk Hotel
 
 ![Foto del album: In the Aeroplane Over the Sea](https://i.scdn.co/image/ab67616d00001e02bc1e41eed3ddbdfff6f2d74b)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Led Zeppelin III (Remaster)
 
 📅 2026-05-10 20:30:56
-
-
-# **Electric Worry** / Clutch
-
-![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
-
-**Album:** From Beale Street to Oblivion
-
-📅 2026-05-10 20:28:28
