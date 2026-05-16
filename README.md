@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Child Of Vision - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-15 11:42:31
+
+
 # **Casual Conversations - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2026-05-12 18:41:24
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-05-12 18:37:40
