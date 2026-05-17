@@ -13,181 +13,181 @@ Nombre: **lotario1999**
 
 
 
-# **Child Of Vision - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-15 11:42:31
-
-
-# **Casual Conversations - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-14 18:28:37
-
-
-# **Just Another Nervous Wreck - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-14 18:25:38
-
-
-# **Lord Is It Mine - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-14 18:21:13
-
-
-# **Take The Long Way Home - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-14 18:17:02
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-14 18:11:54
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-05-14 18:08:17
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-05-14 18:07:53
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-05-14 11:40:17
-
-
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
 **Album:** The Magnificent Tree
 
-📅 2026-05-14 11:36:31
+📅 2026-05-16 20:03:07
 
 
-# **Changes** / Charles Bradley|The Budos Band
+# **Holy Ghost** / Bent Knee
 
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
 
-**Album:** Changes
+**Album:** Land Animal
 
-📅 2026-05-14 11:32:30
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-05-14 11:12:00
+📅 2026-05-16 19:58:59
 
 
-# **Follow My Way** / Chris Cornell
+# **Hole** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
 
-**Album:** Euphoria Morning
+**Album:** Land Animal
 
-📅 2026-05-12 19:11:59
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2026-05-12 19:06:52
+📅 2026-05-16 19:53:26
 
 
-# **Losing My Religion** / R.E.M.
+# **Terror Bird** / Bent Knee
 
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
 
-**Album:** Out Of Time (25th Anniversary Edition)
+**Album:** Land Animal
 
-📅 2026-05-12 19:01:43
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-12 18:57:13
+📅 2026-05-16 19:50:04
 
 
-# **Out Of Sight** / Hooverphonic
+# **D.C. Sound Attack!** / Clutch
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
 
-**Album:** The Magnificent Tree
+**Album:** Earth Rocker
 
-📅 2026-05-12 18:53:11
-
-
-# **Pillow Of Your Bones** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-05-12 18:49:14
+📅 2026-05-16 19:45:57
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **Tabu** / Gustavo Cerati
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
 
-**Album:** No Time For Dreaming
+**Album:** Bocanada
 
-📅 2026-05-12 18:44:47
+📅 2026-05-16 17:06:55
 
 
-# **Disappearing One** / Chris Cornell
+# **Let's Dance - 2018 Remaster** / David Bowie
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
 
-**Album:** Euphoria Morning
+**Album:** Let's Dance (2018 Remaster)
 
-📅 2026-05-12 18:41:24
+📅 2026-05-16 12:54:08
+
+
+# **Frank Sinatra** / CAKE
+
+![Foto del album: Fashion Nugget](https://i.scdn.co/image/ab67616d00001e0238c44888655cc7d2e10122ba)
+
+**Album:** Fashion Nugget
+
+📅 2026-05-16 12:46:57
+
+
+# **My Very Best** / Elbow
+
+![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
+
+**Album:** Leaders Of The Free World
+
+📅 2026-05-16 12:42:29
+
+
+# **Army Of Me** / Björk
+
+![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e0203b878ae26aeab059fd94bf0)
+
+**Album:** Post
+
+📅 2026-05-16 12:36:55
+
+
+# **Make It Wit Chu** / Queens of the Stone Age
+
+![Foto del album: Era Vulgaris](https://i.scdn.co/image/ab67616d00001e0201b7dc44ae31364925b4eadc)
+
+**Album:** Era Vulgaris
+
+📅 2026-05-16 12:33:01
+
+
+# **Spread Your Love** / Black Rebel Motorcycle Club
+
+![Foto del album: B.R.M.C.](https://i.scdn.co/image/ab67616d00001e026344fa132200adc172571913)
+
+**Album:** B.R.M.C.
+
+📅 2026-05-16 12:28:12
+
+
+# **I Sat by the Ocean** / Queens of the Stone Age
+
+![Foto del album: ...Like Clockwork](https://i.scdn.co/image/ab67616d00001e02a705b56a83b703453d8ddd04)
+
+**Album:** ...Like Clockwork
+
+📅 2026-05-16 12:24:24
+
+
+# **Devils Haircut** / Beck
+
+![Foto del album: Odelay](https://i.scdn.co/image/ab67616d00001e02301bf333c6a1f573a2af5864)
+
+**Album:** Odelay
+
+📅 2026-05-16 12:20:28
+
+
+# **Go With The Flow** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2026-05-16 12:17:14
+
+
+# **Legendary** / Welshly Arms
+
+![Foto del album: No Place Is Home](https://i.scdn.co/image/ab67616d00001e02605fea88497f83c4881df0da)
+
+**Album:** No Place Is Home
+
+📅 2026-05-16 11:36:27
+
+
+# **Beetlebum - 2012 Remaster** / Blur
+
+![Foto del album: Blur (Special Edition)](https://i.scdn.co/image/ab67616d00001e02de114203356c1f7b136960b6)
+
+**Album:** Blur (Special Edition)
+
+📅 2026-05-16 11:32:34
+
+
+# **Plug in Baby** / Muse
+
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
+
+**Album:** Origin of Symmetry
+
+📅 2026-05-16 11:27:33
+
+
+# **Animal** / MISSIO
+
+![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e020363a0cc090d7df4c8270489)
+
+**Album:** Loner
+
+📅 2026-05-16 11:23:31
+
+
+# **Sledgehammer - Remastered** / Peter Gabriel
+
+![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+
+**Album:** So (Special Edition)
+
+📅 2026-05-16 11:19:38
