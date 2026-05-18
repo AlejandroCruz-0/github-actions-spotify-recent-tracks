@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Still Life** / Kane Parsons
+
+![Foto del album: Backrooms (Original Score), Vol. 3](https://i.scdn.co/image/ab67616d00001e02393fd7b8871f8b0cc3ffe084)
+
+**Album:** Backrooms (Original Score), Vol. 3
+
+📅 2026-05-17 14:44:01
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-05-17 14:41:43
+
+
 # **Mad About You** / Hooverphonic
 
 ![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Origin of Symmetry
 
 📅 2026-05-16 11:27:33
-
-
-# **Animal** / MISSIO
-
-![Foto del album: Loner](https://i.scdn.co/image/ab67616d00001e020363a0cc090d7df4c8270489)
-
-**Album:** Loner
-
-📅 2026-05-16 11:23:31
-
-
-# **Sledgehammer - Remastered** / Peter Gabriel
-
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
-
-**Album:** So (Special Edition)
-
-📅 2026-05-16 11:19:38
