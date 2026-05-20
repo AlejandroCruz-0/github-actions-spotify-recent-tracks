@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Government Funding** / Kane Parsons
+
+![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
+
+**Album:** Backrooms (Original Score), Vol. 1
+
+📅 2026-05-19 11:53:17
+
+
 # **Still Life** / Kane Parsons
 
 ![Foto del album: Backrooms (Original Score), Vol. 3](https://i.scdn.co/image/ab67616d00001e02393fd7b8871f8b0cc3ffe084)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Blur (Special Edition)
 
 📅 2026-05-16 11:32:34
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2026-05-16 11:27:33
