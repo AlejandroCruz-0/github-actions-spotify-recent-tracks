@@ -85,7 +85,7 @@ Nombre: **lotario1999**
 📅 2026-05-16 19:45:57
 
 
-# **Tabu** / Gustavo Cerati
+# **Tabú** / Gustavo Cerati
 
 ![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
 
