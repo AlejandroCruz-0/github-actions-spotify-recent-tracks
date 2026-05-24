@@ -13,6 +13,51 @@ Nombre: **lotario1999**
 
 
 
+# **Time Deer** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
+
+**Album:** Land Animal
+
+📅 2026-05-23 10:39:45
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
+
+**Album:** Land Animal
+
+📅 2026-05-23 10:35:18
+
+
+# **Ain't No Sunshine** / Bill Withers
+
+![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02f64b9ea8a8a409c6af86134f)
+
+**Album:** Just As I Am
+
+📅 2026-05-23 10:31:07
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-05-23 10:26:37
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2026-05-23 10:23:18
+
+
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -146,48 +191,3 @@ Nombre: **lotario1999**
 **Album:** Land Animal
 
 📅 2026-05-16 19:58:59
-
-
-# **Hole** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-05-16 19:53:26
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-05-16 19:50:04
-
-
-# **D.C. Sound Attack!** / Clutch
-
-![Foto del album: Earth Rocker](https://i.scdn.co/image/ab67616d00001e02e2af051ae9f8eff9b0720060)
-
-**Album:** Earth Rocker
-
-📅 2026-05-16 19:45:57
-
-
-# **Tabú** / Gustavo Cerati
-
-![Foto del album: Bocanada](https://i.scdn.co/image/ab67616d00001e021152471596980e1bba03b6ab)
-
-**Album:** Bocanada
-
-📅 2026-05-16 17:06:55
-
-
-# **Let's Dance - 2018 Remaster** / David Bowie
-
-![Foto del album: Let's Dance (2018 Remaster)](https://i.scdn.co/image/ab67616d00001e02db0917ddd4139153bc1d1a1a)
-
-**Album:** Let's Dance (2018 Remaster)
-
-📅 2026-05-16 12:54:08
