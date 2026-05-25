@@ -13,6 +13,24 @@ Nombre: **lotario1999**
 
 
 
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-05-24 15:49:56
+
+
+# **Belly Side Up** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
+
+**Album:** Land Animal
+
+📅 2026-05-24 15:47:15
+
+
 # **Time Deer** / Bent Knee
 
 ![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
@@ -173,21 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2026-05-17 14:41:43
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-05-16 20:03:07
-
-
-# **Holy Ghost** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-05-16 19:58:59
