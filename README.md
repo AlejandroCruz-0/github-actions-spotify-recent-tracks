@@ -19,7 +19,7 @@ Nombre: **lotario1999**
 
 **Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2026-05-25 10:23:48
+📅 2026-05-25 10:23:17
 
 
 # **Lace** / Christopher Larkin
@@ -28,7 +28,7 @@ Nombre: **lotario1999**
 
 **Album:** Hollow Knight: Silksong (Original Soundtrack)
 
-📅 2026-05-24 15:49:56
+📅 2026-05-24 15:49:54
 
 
 # **Belly Side Up** / Bent Knee
@@ -37,7 +37,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2026-05-24 15:47:15
+📅 2026-05-24 15:47:01
 
 
 # **Time Deer** / Bent Knee
@@ -46,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2026-05-23 10:39:45
+📅 2026-05-23 10:39:44
 
 
 # **Terror Bird** / Bent Knee
@@ -55,7 +55,7 @@ Nombre: **lotario1999**
 
 **Album:** Land Animal
 
-📅 2026-05-23 10:35:18
+📅 2026-05-23 10:35:15
 
 
 # **Ain't No Sunshine** / Bill Withers
@@ -64,7 +64,7 @@ Nombre: **lotario1999**
 
 **Album:** Just As I Am
 
-📅 2026-05-23 10:31:07
+📅 2026-05-23 10:31:05
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -73,7 +73,7 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2026-05-23 10:26:37
+📅 2026-05-23 10:26:36
 
 
 # **Glory Box** / Portishead
@@ -82,7 +82,7 @@ Nombre: **lotario1999**
 
 **Album:** Dummy
 
-📅 2026-05-23 10:23:18
+📅 2026-05-23 10:23:10
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -91,7 +91,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 16:33:18
+📅 2026-05-22 16:33:17
 
 
 # **Disappearing One** / Chris Cornell
@@ -100,7 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Euphoria Morning
 
-📅 2026-05-22 16:10:28
+📅 2026-05-22 16:10:26
 
 
 # **Mad About You** / Hooverphonic
@@ -109,7 +109,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2026-05-22 16:06:42
+📅 2026-05-22 16:06:41
 
 
 # **Mad About You** / Hooverphonic
@@ -118,7 +118,7 @@ Nombre: **lotario1999**
 
 **Album:** The Magnificent Tree
 
-📅 2026-05-22 16:03:05
+📅 2026-05-22 16:03:04
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -127,7 +127,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 15:56:55
+📅 2026-05-22 15:56:53
 
 
 # **You Don't Know What Love Is - Remastered** / Fenton Robinson
@@ -136,7 +136,7 @@ Nombre: **lotario1999**
 
 **Album:** Somebody Loan Me A Dime (Remastered)
 
-📅 2026-05-22 15:53:13
+📅 2026-05-22 15:52:42
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -145,7 +145,7 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2026-05-22 15:52:33
+📅 2026-05-22 15:52:32
 
 
 # **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
@@ -154,7 +154,7 @@ Nombre: **lotario1999**
 
 **Album:** No Time For Dreaming
 
-📅 2026-05-22 10:28:36
+📅 2026-05-22 10:28:33
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -163,7 +163,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 10:24:43
+📅 2026-05-22 10:24:42
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -172,7 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 10:20:44
+📅 2026-05-22 10:20:35
 
 
 # **Government Funding** / Kane Parsons
@@ -181,13 +181,4 @@ Nombre: **lotario1999**
 
 **Album:** Backrooms (Original Score), Vol. 1
 
-📅 2026-05-19 11:53:17
-
-
-# **Still Life** / Kane Parsons
-
-![Foto del album: Backrooms (Original Score), Vol. 3](https://i.scdn.co/image/ab67616d00001e02393fd7b8871f8b0cc3ffe084)
-
-**Album:** Backrooms (Original Score), Vol. 3
-
-📅 2026-05-17 14:44:01
+📅 2026-05-19 11:53:06
