@@ -13,6 +13,87 @@ Nombre: **lotario1999**
 
 
 
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2026-05-26 15:48:33
+
+
+# **I Feel You** / Depeche Mode
+
+![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
+
+**Album:** Songs of Faith and Devotion (Deluxe)
+
+📅 2026-05-26 15:43:09
+
+
+# **Your Woman** / White Town
+
+![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+
+**Album:** Women in Technology
+
+📅 2026-05-26 15:38:33
+
+
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-05-26 15:33:58
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-05-26 13:23:57
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-05-26 13:19:29
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-26 13:10:12
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-26 13:05:48
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-26 13:05:48
+
+
 # **Far Fields** / Christopher Larkin
 
 ![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
@@ -110,75 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Magnificent Tree
 
 📅 2026-05-22 16:06:41
-
-
-# **Mad About You** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-05-22 16:03:04
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-22 15:56:53
-
-
-# **You Don't Know What Love Is - Remastered** / Fenton Robinson
-
-![Foto del album: Somebody Loan Me A Dime (Remastered)](https://i.scdn.co/image/ab67616d00001e02871f2d23c14c9497fb7b5c84)
-
-**Album:** Somebody Loan Me A Dime (Remastered)
-
-📅 2026-05-22 15:52:42
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-05-22 15:52:32
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-05-22 10:28:33
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-22 10:24:42
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-05-22 10:20:35
-
-
-# **Government Funding** / Kane Parsons
-
-![Foto del album: Backrooms (Original Score), Vol. 1](https://i.scdn.co/image/ab67616d00001e02298d8cd0746032895b46c887)
-
-**Album:** Backrooms (Original Score), Vol. 1
-
-📅 2026-05-19 11:53:06
