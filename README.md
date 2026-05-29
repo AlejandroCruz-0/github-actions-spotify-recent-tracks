@@ -13,76 +13,85 @@ Nombre: **lotario1999**
 
 
 
-# **Firestarter** / The Prodigy
+# **It Happens** / Bent Knee
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
 
-**Album:** The Fat of the Land
+**Album:** You Know What They Mean
 
-📅 2026-05-26 15:48:33
-
-
-# **I Feel You** / Depeche Mode
-
-![Foto del album: Songs of Faith and Devotion (Deluxe)](https://i.scdn.co/image/ab67616d00001e02029fe2605ca0c2edd929658f)
-
-**Album:** Songs of Faith and Devotion (Deluxe)
-
-📅 2026-05-26 15:43:09
+📅 2026-05-28 14:42:23
 
 
-# **Your Woman** / White Town
+# **Golden Hour** / Bent Knee
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
 
-**Album:** Women in Technology
+**Album:** You Know What They Mean
 
-📅 2026-05-26 15:38:33
-
-
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-05-26 15:33:58
+📅 2026-05-28 14:37:18
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **Garbage Shark** / Bent Knee
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
 
-**Album:** Euphoria Morning
+**Album:** You Know What They Mean
 
-📅 2026-05-26 13:23:57
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-05-26 13:19:29
+📅 2026-05-28 14:31:27
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Catch Light** / Bent Knee
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** You Know What They Mean
 
-📅 2026-05-26 13:10:12
+📅 2026-05-28 14:25:49
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **It Happens** / Bent Knee
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** You Know What They Mean
 
-📅 2026-05-26 13:05:48
+📅 2026-05-28 13:49:44
+
+
+# **Golden Hour** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-28 09:02:52
+
+
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-28 08:57:01
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-28 08:51:23
+
+
+# **Dead and Gone** / The Black Keys
+
+![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
+
+**Album:** El Camino
+
+📅 2026-05-28 08:46:33
 
 
 # **Take The Long Way Home - Remastered 2010** / Supertramp
@@ -91,79 +100,7 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-26 13:05:48
-
-
-# **Far Fields** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-05-25 10:23:17
-
-
-# **Lace** / Christopher Larkin
-
-![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
-
-**Album:** Hollow Knight: Silksong (Original Soundtrack)
-
-📅 2026-05-24 15:49:54
-
-
-# **Belly Side Up** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-05-24 15:47:01
-
-
-# **Time Deer** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-05-23 10:39:44
-
-
-# **Terror Bird** / Bent Knee
-
-![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
-
-**Album:** Land Animal
-
-📅 2026-05-23 10:35:15
-
-
-# **Ain't No Sunshine** / Bill Withers
-
-![Foto del album: Just As I Am](https://i.scdn.co/image/ab67616d00001e02f64b9ea8a8a409c6af86134f)
-
-**Album:** Just As I Am
-
-📅 2026-05-23 10:31:05
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-05-23 10:26:36
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2026-05-23 10:23:10
+📅 2026-05-28 00:09:43
 
 
 # **Oh Darling - Remastered 2010** / Supertramp
@@ -172,22 +109,85 @@ Nombre: **lotario1999**
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 16:33:17
+📅 2026-05-28 00:09:11
 
 
-# **Disappearing One** / Chris Cornell
+# **Breakfast In America - Remastered 2010** / Supertramp
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Euphoria Morning
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 16:10:26
+📅 2026-05-28 00:05:08
 
 
-# **Mad About You** / Hooverphonic
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** The Magnificent Tree
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-05-22 16:06:41
+📅 2026-05-28 00:02:29
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-27 23:56:34
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-27 23:52:22
+
+
+# **Terror Bird** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
+
+**Album:** Land Animal
+
+📅 2026-05-27 23:42:23
+
+
+# **Belly Side Up** / Bent Knee
+
+![Foto del album: Land Animal](https://i.scdn.co/image/ab67616d00001e02a72b58149e010bbdc76fb616)
+
+**Album:** Land Animal
+
+📅 2026-05-27 23:38:13
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-27 23:33:12
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-27 23:28:30
+
+
+# **Hold Me In** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-27 23:13:47
