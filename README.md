@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Rhinestone Eyes** / Gorillaz
+
+![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
+
+**Album:** Plastic Beach
+
+📅 2026-05-31 19:06:57
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2026-05-31 14:26:29
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2026-05-31 14:21:13
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2026-05-31 14:14:46
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2026-05-31 14:10:38
+
+
+# **Lace** / Christopher Larkin
+
+![Foto del album: Hollow Knight: Silksong (Original Soundtrack)](https://i.scdn.co/image/ab67616d00001e02e9bb10e381fbd4f78ce2a511)
+
+**Album:** Hollow Knight: Silksong (Original Soundtrack)
+
+📅 2026-05-31 14:07:12
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-31 14:03:15
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-05-31 11:01:08
+
+
+# **Catch Light** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-31 10:56:53
+
+
+# **Garbage Shark** / Bent Knee
+
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
+
+**Album:** You Know What They Mean
+
+📅 2026-05-31 10:51:29
+
+
 # **Catch Light** / Bent Knee
 
 ![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2026-05-29 13:32:21
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-29 13:28:08
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-29 13:03:28
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-29 12:58:44
-
-
-# **It Happens** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 14:42:23
-
-
-# **Golden Hour** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 14:37:18
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 14:31:27
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 14:25:49
-
-
-# **It Happens** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 13:49:44
-
-
-# **Golden Hour** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 09:02:52
-
-
-# **Garbage Shark** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-05-28 08:57:01
