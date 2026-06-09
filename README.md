@@ -13,6 +13,123 @@ Nombre: **lotario1999**
 
 
 
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-08 22:22:34
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-08 22:17:31
+
+
+# **Sour Times** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2026-06-08 21:22:45
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-08 16:33:36
+
+
+# **Fugitive Motel** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-08 15:55:17
+
+
+# **Buttons and Zips** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-08 12:56:55
+
+
+# **I've Got Your Number** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-08 12:52:57
+
+
+# **Crawling With Idiot** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-08 12:46:12
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-08 12:40:58
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-08 12:36:48
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-08 12:33:02
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-08 10:39:42
+
+
+# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
+
+![Foto del album: God Willin' & The Creek Don't Rise (with The Pariah Dogs)](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
+
+**Album:** God Willin' & The Creek Don't Rise (with The Pariah Dogs)
+
+📅 2026-06-08 10:35:54
+
+
 # **Rumour Has It** / Adele
 
 ![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e027e7e5dd9d1ab19fcded8a17f)
@@ -74,120 +191,3 @@ Nombre: **lotario1999**
 **Album:** Cast Of Thousands
 
 📅 2026-06-07 21:22:50
-
-
-# **I've Got Your Number** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-07 21:16:45
-
-
-# **Fugitive Motel** / Elbow
-
-![Foto del album: The Best Of (Deluxe)](https://i.scdn.co/image/ab67616d00001e02469040cc19c6627510a8ef23)
-
-**Album:** The Best Of (Deluxe)
-
-📅 2026-06-07 21:10:56
-
-
-# **The Bones of You** / Elbow
-
-![Foto del album: The Best Of (Deluxe)](https://i.scdn.co/image/ab67616d00001e02469040cc19c6627510a8ef23)
-
-**Album:** The Best Of (Deluxe)
-
-📅 2026-06-07 21:05:43
-
-
-# **Forget Myself** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2026-06-07 20:55:08
-
-
-# **Where Is My Mind? - 2007 Remaster** / Pixies
-
-![Foto del album: Surfer Rosa (2007 Remaster)](https://i.scdn.co/image/ab67616d00001e028aa545a0ea869940cce358b5)
-
-**Album:** Surfer Rosa (2007 Remaster)
-
-📅 2026-06-07 20:07:55
-
-
-# **Rhinestone Eyes** / Gorillaz
-
-![Foto del album: Plastic Beach](https://i.scdn.co/image/ab67616d00001e02661d019f34569f79eae9e985)
-
-**Album:** Plastic Beach
-
-📅 2026-06-07 20:03:59
-
-
-# **Plug in Baby** / Muse
-
-![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
-
-**Album:** Origin of Symmetry
-
-📅 2026-06-07 20:00:25
-
-
-# **Amarillo** / Gorillaz
-
-![Foto del album: The Fall](https://i.scdn.co/image/ab67616d00001e02bfcb1c9ce002a2c2cd5e9f34)
-
-**Album:** The Fall
-
-📅 2026-06-07 19:49:52
-
-
-# **Two Weeks** / FKA twigs
-
-![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
-
-**Album:** LP1
-
-📅 2026-06-07 19:46:10
-
-
-# **Nobody Speak** / DJ Shadow|Run The Jewels
-
-![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
-
-**Album:** The Mountain Will Fall
-
-📅 2026-06-07 19:42:02
-
-
-# **Do You See Me Now (Music from the Original TV Series)** / CHINCHILLA|Isobel Waller-Bridge
-
-![Foto del album: Do You See Me Now (Music from the Original TV Series)](https://i.scdn.co/image/ab67616d00001e02c2b87a8d404035c025ad66bb)
-
-**Album:** Do You See Me Now (Music from the Original TV Series)
-
-📅 2026-06-07 19:38:41
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-06-07 09:22:17
-
-
-# **Breakfast In America - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-06-07 06:25:45
