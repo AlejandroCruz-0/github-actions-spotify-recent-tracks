@@ -19,7 +19,7 @@ Nombre: **lotario1999**
 
 **Album:** Bedtime Stories
 
-📅 2026-06-08 22:22:34
+📅 2026-06-10 00:04:50
 
 
 # **Human Nature** / Madonna
@@ -28,61 +28,16 @@ Nombre: **lotario1999**
 
 **Album:** Bedtime Stories
 
-📅 2026-06-08 22:17:31
+📅 2026-06-09 23:59:06
 
 
-# **Sour Times** / Portishead
+# **Human Nature** / Madonna
 
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
 
-**Album:** Dummy
+**Album:** Bedtime Stories
 
-📅 2026-06-08 21:22:45
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-08 16:33:36
-
-
-# **Fugitive Motel** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-08 15:55:17
-
-
-# **Buttons and Zips** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-08 12:56:55
-
-
-# **I've Got Your Number** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-08 12:52:57
-
-
-# **Crawling With Idiot** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-08 12:46:12
+📅 2026-06-09 23:52:57
 
 
 # **Grounds for Divorce** / Elbow
@@ -91,7 +46,7 @@ Nombre: **lotario1999**
 
 **Album:** The Seldom Seen Kid
 
-📅 2026-06-08 12:40:58
+📅 2026-06-09 22:32:15
 
 
 # **Grounds for Divorce** / Elbow
@@ -100,25 +55,88 @@ Nombre: **lotario1999**
 
 **Album:** The Seldom Seen Kid
 
-📅 2026-06-08 12:36:48
+📅 2026-06-09 22:28:17
 
 
-# **Magnificent (She Says)** / Elbow
+# **Lazarus** / David Bowie
 
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+![Foto del album: Blackstar](https://i.scdn.co/image/ab67616d00001e02edaa573d262bc9eddca6519b)
 
-**Album:** Little Fictions
+**Album:** Blackstar
 
-📅 2026-06-08 12:33:02
+📅 2026-06-09 22:24:31
 
 
-# **Grounds for Divorce** / Elbow
+# **Empire Ants (feat. Little Dragon)** / Gorillaz|Little Dragon
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Plastic Beach (Deluxe)](https://i.scdn.co/image/ab67616d00001e024960e8b13691e5570337d4d8)
 
-**Album:** The Seldom Seen Kid
+**Album:** Plastic Beach (Deluxe)
 
-📅 2026-06-08 10:39:42
+📅 2026-06-09 19:38:19
+
+
+# **Army Of Me** / Björk
+
+![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e0203b878ae26aeab059fd94bf0)
+
+**Album:** Post
+
+📅 2026-06-09 19:33:35
+
+
+# **Teardrop** / Massive Attack|Elizabeth Fraser
+
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+
+**Album:** Mezzanine
+
+📅 2026-06-09 19:29:41
+
+
+# **ocean eyes** / Billie Eilish
+
+![Foto del album: dont smile at me](https://i.scdn.co/image/ab67616d00001e02a9f6c04ba168640b48aa5795)
+
+**Album:** dont smile at me
+
+📅 2026-06-09 19:17:56
+
+
+# **Congregation** / Low
+
+![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e0249b23e24c3e785a5d443823c)
+
+**Album:** Ones and Sixes
+
+📅 2026-06-09 19:14:35
+
+
+# **After the Disco** / Broken Bells|Danger Mouse|James Mercer
+
+![Foto del album: After the Disco](https://i.scdn.co/image/ab67616d00001e02ac5ee6b666b254ca2ba935d7)
+
+**Album:** After the Disco
+
+📅 2026-06-09 19:10:08
+
+
+# **Oh I Wept** / Free
+
+![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
+
+**Album:** Fire And Water
+
+📅 2026-06-09 19:06:28
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-06-09 18:59:34
 
 
 # **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
@@ -127,67 +145,49 @@ Nombre: **lotario1999**
 
 **Album:** God Willin' & The Creek Don't Rise (with The Pariah Dogs)
 
-📅 2026-06-08 10:35:54
+📅 2026-06-09 18:54:10
 
 
-# **Rumour Has It** / Adele
+# **Catch Light** / Bent Knee
 
-![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e027e7e5dd9d1ab19fcded8a17f)
+![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
 
-**Album:** 21
+**Album:** You Know What They Mean
 
-📅 2026-06-08 00:00:32
-
-
-# **Skyfall** / Adele
-
-![Foto del album: Skyfall](https://i.scdn.co/image/ab67616d00001e02b479bb2aed275bb1b13d83da)
-
-**Album:** Skyfall
-
-📅 2026-06-07 23:56:49
+📅 2026-06-09 18:46:52
 
 
-# **Goodnight Saigon** / Billy Joel
+# **The Outsider** / A Perfect Circle
 
-![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02645ba1856ec85c156698fa5b)
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
 
-**Album:** The Nylon Curtain
+**Album:** Thirteenth Step
 
-📅 2026-06-07 23:52:03
-
-
-# **My Very Best** / Elbow
-
-![Foto del album: Leaders Of The Free World](https://i.scdn.co/image/ab67616d00001e028ceddc7ebcd8896e86ea1bfe)
-
-**Album:** Leaders Of The Free World
-
-📅 2026-06-07 23:51:30
+📅 2026-06-09 16:27:04
 
 
-# **Pressure** / Billy Joel
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: The Nylon Curtain](https://i.scdn.co/image/ab67616d00001e02645ba1856ec85c156698fa5b)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** The Nylon Curtain
+**Album:** Euphoria Morning
 
-📅 2026-06-07 21:36:36
-
-
-# **Duvet** / bôa
-
-![Foto del album: Duvet](https://i.scdn.co/image/ab67616d00001e02bddce74674b82af03c0d5365)
-
-**Album:** Duvet
-
-📅 2026-06-07 21:31:13
+📅 2026-06-09 16:22:58
 
 
-# **Buttons and Zips** / Elbow
+# **Love Is A Long Road** / Tom Petty
 
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
 
-**Album:** Cast Of Thousands
+**Album:** Full Moon Fever
 
-📅 2026-06-07 21:22:50
+📅 2026-06-09 16:17:50
+
+
+# **I Heard It Through The Grapevine** / Marvin Gaye
+
+![Foto del album: In The Groove](https://i.scdn.co/image/ab67616d00001e02aff6573c5110e0732fbab3d8)
+
+**Album:** In The Groove
+
+📅 2026-06-09 16:11:30
