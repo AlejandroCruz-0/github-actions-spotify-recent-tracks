@@ -13,6 +13,96 @@ Nombre: **lotario1999**
 
 
 
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-10 22:15:45
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-10 22:11:19
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-10 22:07:39
+
+
+# **A Quick Death in Texas** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2026-06-10 22:02:35
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2026-06-10 19:12:06
+
+
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2026-06-10 19:09:05
+
+
+# **Firebirds** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2026-06-10 19:05:23
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-10 13:07:31
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-10 10:52:26
+
+
+# **Erotica** / Madonna
+
+![Foto del album: Erotica (PA Version)](https://i.scdn.co/image/ab67616d00001e02f0ef8ce0db61b981468f7db7)
+
+**Album:** Erotica (PA Version)
+
+📅 2026-06-10 10:48:40
+
+
 # **Human Nature** / Madonna
 
 ![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
@@ -101,93 +191,3 @@ Nombre: **lotario1999**
 **Album:** dont smile at me
 
 📅 2026-06-09 19:17:56
-
-
-# **Congregation** / Low
-
-![Foto del album: Ones and Sixes](https://i.scdn.co/image/ab67616d00001e0249b23e24c3e785a5d443823c)
-
-**Album:** Ones and Sixes
-
-📅 2026-06-09 19:14:35
-
-
-# **After the Disco** / Broken Bells|Danger Mouse|James Mercer
-
-![Foto del album: After the Disco](https://i.scdn.co/image/ab67616d00001e02ac5ee6b666b254ca2ba935d7)
-
-**Album:** After the Disco
-
-📅 2026-06-09 19:10:08
-
-
-# **Oh I Wept** / Free
-
-![Foto del album: Fire And Water](https://i.scdn.co/image/ab67616d00001e02753c41c7fdc5e78ba017bbf5)
-
-**Album:** Fire And Water
-
-📅 2026-06-09 19:06:28
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-09 18:59:34
-
-
-# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
-
-![Foto del album: God Willin' & The Creek Don't Rise (with The Pariah Dogs)](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
-
-**Album:** God Willin' & The Creek Don't Rise (with The Pariah Dogs)
-
-📅 2026-06-09 18:54:10
-
-
-# **Catch Light** / Bent Knee
-
-![Foto del album: You Know What They Mean](https://i.scdn.co/image/ab67616d00001e02a1be9993cffad5aac0efbae0)
-
-**Album:** You Know What They Mean
-
-📅 2026-06-09 18:46:52
-
-
-# **The Outsider** / A Perfect Circle
-
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
-
-**Album:** Thirteenth Step
-
-📅 2026-06-09 16:27:04
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-06-09 16:22:58
-
-
-# **Love Is A Long Road** / Tom Petty
-
-![Foto del album: Full Moon Fever](https://i.scdn.co/image/ab67616d00001e0236572e6726714544f5bed456)
-
-**Album:** Full Moon Fever
-
-📅 2026-06-09 16:17:50
-
-
-# **I Heard It Through The Grapevine** / Marvin Gaye
-
-![Foto del album: In The Groove](https://i.scdn.co/image/ab67616d00001e02aff6573c5110e0732fbab3d8)
-
-**Album:** In The Groove
-
-📅 2026-06-09 16:11:30
