@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Teardrop** / Massive Attack|Elizabeth Fraser
+
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+
+**Album:** Mezzanine
+
+📅 2026-06-11 22:27:54
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-11 22:03:56
+
+
+# **Forbidden Love** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-11 21:58:54
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-11 16:43:55
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-11 16:38:56
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-11 09:56:17
+
+
+# **lippy kids** / Elbow
+
+![Foto del album: build a rocket boys!](https://i.scdn.co/image/ab67616d00001e0200fc05dd845fe011ae13901b)
+
+**Album:** build a rocket boys!
+
+📅 2026-06-11 09:52:30
+
+
 # **Magnificent (She Says)** / Elbow
 
 ![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bedtime Stories
 
 📅 2026-06-09 23:52:57
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-09 22:32:15
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-09 22:28:17
-
-
-# **Lazarus** / David Bowie
-
-![Foto del album: Blackstar](https://i.scdn.co/image/ab67616d00001e02edaa573d262bc9eddca6519b)
-
-**Album:** Blackstar
-
-📅 2026-06-09 22:24:31
-
-
-# **Empire Ants (feat. Little Dragon)** / Gorillaz|Little Dragon
-
-![Foto del album: Plastic Beach (Deluxe)](https://i.scdn.co/image/ab67616d00001e024960e8b13691e5570337d4d8)
-
-**Album:** Plastic Beach (Deluxe)
-
-📅 2026-06-09 19:38:19
-
-
-# **Army Of Me** / Björk
-
-![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e0203b878ae26aeab059fd94bf0)
-
-**Album:** Post
-
-📅 2026-06-09 19:33:35
-
-
-# **Teardrop** / Massive Attack|Elizabeth Fraser
-
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
-
-**Album:** Mezzanine
-
-📅 2026-06-09 19:29:41
-
-
-# **ocean eyes** / Billie Eilish
-
-![Foto del album: dont smile at me](https://i.scdn.co/image/ab67616d00001e02a9f6c04ba168640b48aa5795)
-
-**Album:** dont smile at me
-
-📅 2026-06-09 19:17:56
