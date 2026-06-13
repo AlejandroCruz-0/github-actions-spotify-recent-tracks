@@ -13,6 +13,132 @@ Nombre: **lotario1999**
 
 
 
+# **X-Ray Visions** / Clutch
+
+![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
+
+**Album:** Psychic Warfare
+
+📅 2026-06-12 22:55:54
+
+
+# **Crawling With Idiot** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 22:52:00
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-12 19:04:03
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-12 18:54:10
+
+
+# **Buttons and Zips** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 18:50:24
+
+
+# **I've Got Your Number** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 16:06:37
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-12 16:01:32
+
+
+# **Grace Under Pressure** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 15:54:09
+
+
+# **Crawling With Idiot** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 12:58:52
+
+
+# **Buttons and Zips** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 12:54:10
+
+
+# **I've Got Your Number** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-12 12:50:12
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-12 12:45:10
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-12 12:41:08
+
+
+# **Paradise Circus** / Massive Attack|Hope Sandoval
+
+![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
+
+**Album:** Heligoland
+
+📅 2026-06-12 12:36:10
+
+
 # **Teardrop** / Massive Attack|Elizabeth Fraser
 
 ![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
@@ -65,129 +191,3 @@ Nombre: **lotario1999**
 **Album:** The Seldom Seen Kid
 
 📅 2026-06-11 09:56:17
-
-
-# **lippy kids** / Elbow
-
-![Foto del album: build a rocket boys!](https://i.scdn.co/image/ab67616d00001e0200fc05dd845fe011ae13901b)
-
-**Album:** build a rocket boys!
-
-📅 2026-06-11 09:52:30
-
-
-# **Magnificent (She Says)** / Elbow
-
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
-
-**Album:** Little Fictions
-
-📅 2026-06-10 22:15:45
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-10 22:11:19
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-10 22:07:39
-
-
-# **A Quick Death in Texas** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2026-06-10 22:02:35
-
-
-# **Firebirds** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2026-06-10 19:12:06
-
-
-# **X-Ray Visions** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2026-06-10 19:09:05
-
-
-# **Firebirds** / Clutch
-
-![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
-
-**Album:** Psychic Warfare
-
-📅 2026-06-10 19:05:23
-
-
-# **Magnificent (She Says)** / Elbow
-
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
-
-**Album:** Little Fictions
-
-📅 2026-06-10 13:07:31
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-10 10:52:26
-
-
-# **Erotica** / Madonna
-
-![Foto del album: Erotica (PA Version)](https://i.scdn.co/image/ab67616d00001e02f0ef8ce0db61b981468f7db7)
-
-**Album:** Erotica (PA Version)
-
-📅 2026-06-10 10:48:40
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-10 00:04:50
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-09 23:59:06
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-09 23:52:57
