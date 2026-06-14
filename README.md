@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Crawling With Idiot** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-13 19:19:52
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-13 19:10:06
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-06-13 19:06:21
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-13 16:11:23
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-13 16:01:02
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-13 15:57:16
+
+
+# **Fly Boy Blue / Lunette** / Elbow
+
+![Foto del album: Fly Boy Blue / Lunette](https://i.scdn.co/image/ab6742d3000053b739ea7e0def85b6fbeab87d74)
+
+**Album:** Fly Boy Blue / Lunette
+
+📅 2026-06-13 15:57:16
+
+
 # **X-Ray Visions** / Clutch
 
 ![Foto del album: Psychic Warfare](https://i.scdn.co/image/ab67616d00001e027ff52fe3e618fd6058fbbab2)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bedtime Stories
 
 📅 2026-06-12 12:41:08
-
-
-# **Paradise Circus** / Massive Attack|Hope Sandoval
-
-![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
-
-**Album:** Heligoland
-
-📅 2026-06-12 12:36:10
-
-
-# **Teardrop** / Massive Attack|Elizabeth Fraser
-
-![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
-
-**Album:** Mezzanine
-
-📅 2026-06-11 22:27:54
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-11 22:03:56
-
-
-# **Forbidden Love** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-11 21:58:54
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-11 16:43:55
-
-
-# **Magnificent (She Says)** / Elbow
-
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
-
-**Album:** Little Fictions
-
-📅 2026-06-11 16:38:56
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-11 09:56:17
