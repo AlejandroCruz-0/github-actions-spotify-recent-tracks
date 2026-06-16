@@ -13,121 +13,94 @@ Nombre: **lotario1999**
 
 
 
-# **Buttons and Zips** / Elbow
+# **In Bloom** / Nirvana
 
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Cast Of Thousands
+**Album:** Nevermind (Remastered)
 
-📅 2026-06-14 21:40:21
-
-
-# **I've Got Your Number** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-14 21:36:23
+📅 2026-06-15 22:33:40
 
 
-# **Mirrorball** / Elbow
+# **Smells Like Teen Spirit** / Nirvana
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** The Seldom Seen Kid
+**Album:** Nevermind (Remastered)
 
-📅 2026-06-14 21:31:24
-
-
-# **Magnificent (She Says)** / Elbow
-
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
-
-**Album:** Little Fictions
-
-📅 2026-06-14 21:25:34
+📅 2026-06-15 22:29:25
 
 
-# **Grounds for Divorce** / Elbow
+# **Map of Your Head** / Muse
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
 
-**Album:** The Seldom Seen Kid
+**Album:** Hullabaloo Soundtrack (Eastwest Release)
 
-📅 2026-06-14 21:21:08
-
-
-# **Fisherman's Horizon** / Nobuo Uematsu
-
-![Foto del album: FINAL FANTASY VIII Original Soundtrack](https://i.scdn.co/image/ab67616d00001e024a8f99efdff178f3bdabde2a)
-
-**Album:** FINAL FANTASY VIII Original Soundtrack
-
-📅 2026-06-14 21:17:24
+📅 2026-06-15 22:23:59
 
 
-# **Oh Darling - Remastered 2010** / Supertramp
+# **Retrograde** / James Blake
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Overgrown
 
-📅 2026-06-14 15:00:43
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-14 14:56:36
+📅 2026-06-15 22:19:24
 
 
-# **Sledgehammer - Remastered** / Peter Gabriel
+# **Not Your Kind of People** / Garbage
 
-![Foto del album: So (Special Edition)](https://i.scdn.co/image/ab67616d00001e02bade4fc3596a6eee8dd3302a)
+![Foto del album: Not Your Kind of People](https://i.scdn.co/image/ab67616d00001e027a2d8fab5842a8073e62783e)
 
-**Album:** So (Special Edition)
+**Album:** Not Your Kind of People
 
-📅 2026-06-14 14:51:33
-
-
-# **Old Town Road (feat. Billy Ray Cyrus) - Remix** / Lil Nas X|Billy Ray Cyrus
-
-![Foto del album: 7](https://i.scdn.co/image/ab67616d00001e026239187793c9e492e687db01)
-
-**Album:** 7
-
-📅 2026-06-14 09:41:41
+📅 2026-06-15 22:14:58
 
 
-# **Rompecabezas** / Aterciopelados
+# **My 2 Cents - Bart & Baker Remix** / Caro Emerald|Bart & Baker
 
-![Foto del album: Gozo Poderoso](https://i.scdn.co/image/ab67616d00001e02ae10824276ccf749513cf0f3)
+![Foto del album: The Shocking Miss Emerald (The Remixes)](https://i.scdn.co/image/ab67616d00001e02f161e0d2bdbbbb543237272b)
 
-**Album:** Gozo Poderoso
+**Album:** The Shocking Miss Emerald (The Remixes)
 
-📅 2026-06-14 09:39:03
-
-
-# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
-
-![Foto del album: God Willin' & The Creek Don't Rise (with The Pariah Dogs)](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
-
-**Album:** God Willin' & The Creek Don't Rise (with The Pariah Dogs)
-
-📅 2026-06-14 09:34:13
+📅 2026-06-15 22:09:23
 
 
-# **Kiss from a Rose** / Seal
+# **Lovesong** / Adele
 
-![Foto del album: Seal](https://i.scdn.co/image/ab67616d00001e0233d4866ed921300e8ef50808)
+![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e027e7e5dd9d1ab19fcded8a17f)
 
-**Album:** Seal
+**Album:** 21
 
-📅 2026-06-14 08:41:41
+📅 2026-06-15 22:04:57
+
+
+# **Rumour Has It** / Adele
+
+![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e027e7e5dd9d1ab19fcded8a17f)
+
+**Album:** 21
+
+📅 2026-06-15 21:59:39
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
+
+**Album:** 19
+
+📅 2026-06-15 21:55:32
+
+
+# **Duvet** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
+
+**Album:** Twilight
+
+📅 2026-06-15 21:51:59
 
 
 # **Skyfall** / Adele
@@ -136,7 +109,34 @@ Nombre: **lotario1999**
 
 **Album:** Skyfall
 
-📅 2026-06-14 08:36:37
+📅 2026-06-15 21:48:35
+
+
+# **Old Before Your Time (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
+
+![Foto del album: God Willin' & The Creek Don't Rise (with The Pariah Dogs)](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
+
+**Album:** God Willin' & The Creek Don't Rise (with The Pariah Dogs)
+
+📅 2026-06-15 21:37:18
+
+
+# **This Love Is Over (with The Pariah Dogs)** / Ray LaMontagne|The Pariah Dogs
+
+![Foto del album: God Willin' & The Creek Don't Rise (with The Pariah Dogs)](https://i.scdn.co/image/ab67616d00001e0203752d238b3a8862246193df)
+
+**Album:** God Willin' & The Creek Don't Rise (with The Pariah Dogs)
+
+📅 2026-06-15 20:31:52
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-15 17:15:17
 
 
 # **Crawling With Idiot** / Elbow
@@ -145,7 +145,25 @@ Nombre: **lotario1999**
 
 **Album:** Cast Of Thousands
 
-📅 2026-06-13 19:19:52
+📅 2026-06-15 13:46:26
+
+
+# **Buttons and Zips** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-15 13:41:44
+
+
+# **I've Got Your Number** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-15 13:37:47
 
 
 # **Grounds for Divorce** / Elbow
@@ -154,16 +172,7 @@ Nombre: **lotario1999**
 
 **Album:** The Seldom Seen Kid
 
-📅 2026-06-13 19:10:06
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-06-13 19:06:21
+📅 2026-06-15 13:32:36
 
 
 # **Grounds for Divorce** / Elbow
@@ -172,22 +181,13 @@ Nombre: **lotario1999**
 
 **Album:** The Seldom Seen Kid
 
-📅 2026-06-13 16:11:23
+📅 2026-06-15 13:28:49
 
 
-# **Grounds for Divorce** / Elbow
+# **Crawling With Idiot** / Elbow
 
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
 
-**Album:** The Seldom Seen Kid
+**Album:** Cast Of Thousands
 
-📅 2026-06-13 16:01:02
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-13 15:57:16
+📅 2026-06-15 09:56:08
