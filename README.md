@@ -13,6 +13,33 @@ Nombre: **lotario1999**
 
 
 
+# **Skyfall** / Adele
+
+![Foto del album: Skyfall](https://i.scdn.co/image/ab67616d00001e02b479bb2aed275bb1b13d83da)
+
+**Album:** Skyfall
+
+📅 2026-06-19 21:43:38
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-06-19 21:38:37
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-19 18:45:07
+
+
 # **Grounds for Divorce** / Elbow
 
 ![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
@@ -164,30 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nevermind (Remastered)
 
 📅 2026-06-17 00:05:46
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-17 00:01:24
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-16 19:37:11
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-16 17:45:35
