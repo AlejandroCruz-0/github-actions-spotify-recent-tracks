@@ -13,6 +13,42 @@ Nombre: **lotario1999**
 
 
 
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-20 21:50:22
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-20 21:45:22
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-20 13:33:58
+
+
+# **Lovesong** / Adele
+
+![Foto del album: 21](https://i.scdn.co/image/ab67616d00001e027e7e5dd9d1ab19fcded8a17f)
+
+**Album:** 21
+
+📅 2026-06-20 13:30:11
+
+
 # **Skyfall** / Adele
 
 ![Foto del album: Skyfall](https://i.scdn.co/image/ab67616d00001e02b479bb2aed275bb1b13d83da)
@@ -155,39 +191,3 @@ Nombre: **lotario1999**
 **Album:** Overgrown
 
 📅 2026-06-17 15:12:06
-
-
-# **Recess** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2026-06-17 15:08:22
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-17 15:08:16
-
-
-# **Shrinking Universe** / Muse
-
-![Foto del album: Hullabaloo Soundtrack (Eastwest Release)](https://i.scdn.co/image/ab67616d00001e02812d596c3ae4731ec9228516)
-
-**Album:** Hullabaloo Soundtrack (Eastwest Release)
-
-📅 2026-06-17 00:09:09
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-06-17 00:05:46
