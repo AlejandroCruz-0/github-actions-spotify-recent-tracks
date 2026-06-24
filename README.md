@@ -13,6 +13,15 @@ Nombre: **lotario1999**
 
 
 
+# **Crazy For You** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
+
+**Album:** 19
+
+📅 2026-06-23 17:57:26
+
+
 # **Cold Shoulder** / Adele
 
 ![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
@@ -182,12 +191,3 @@ Nombre: **lotario1999**
 **Album:** Bedtime Stories
 
 📅 2026-06-18 15:40:26
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-06-18 15:35:26
