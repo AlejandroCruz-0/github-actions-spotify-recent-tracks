@@ -13,6 +13,78 @@ Nombre: **lotario1999**
 
 
 
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-06-26 21:09:08
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-06-26 17:07:56
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-06-26 15:41:59
+
+
+# **Forbidden Love** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-26 15:26:15
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-26 13:17:57
+
+
+# **Godspeed** / James Blake
+
+![Foto del album: Godspeed](https://i.scdn.co/image/ab67616d00001e02c7fdf13f4d55b4f0f0c6d1a6)
+
+**Album:** Godspeed
+
+📅 2026-06-26 13:12:58
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-06-26 10:41:29
+
+
+# **Snooks (Progress Report)** / Elbow
+
+![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
+
+**Album:** Cast Of Thousands
+
+📅 2026-06-26 10:37:33
+
+
 # **Fugitive Motel** / Elbow
 
 ![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
@@ -67,6 +139,15 @@ Nombre: **lotario1999**
 📅 2026-06-25 10:10:04
 
 
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e025d5c9f79fe1c08cd09f3f695)
+
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+
+📅 2026-06-24 20:35:55
+
+
 # **Sería Feliz** / Julieta Venegas
 
 ![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
@@ -110,84 +191,3 @@ Nombre: **lotario1999**
 **Album:** Out Of Time (25th Anniversary Edition)
 
 📅 2026-06-24 20:10:24
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-24 18:16:09
-
-
-# **Forbidden Love** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-24 18:12:24
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-24 12:16:18
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-23 20:55:47
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-23 17:57:26
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-21 21:55:59
-
-
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
-
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
-
-**Album:** No Time For Dreaming
-
-📅 2026-06-21 21:52:47
-
-
-# **Magnificent (She Says)** / Elbow
-
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
-
-**Album:** Little Fictions
-
-📅 2026-06-21 21:52:41
-
-
-# **Disappearing One** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-06-21 16:34:23
