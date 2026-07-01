@@ -13,6 +13,60 @@ Nombre: **lotario1999**
 
 
 
+# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
+
+![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02188924766d218d369d778af2)
+
+**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
+
+📅 2026-06-30 13:51:03
+
+
+# **Gotsta Get Paid** / Rico Nasty
+
+![Foto del album: Gotsta Get Paid](https://i.scdn.co/image/ab6742d3000053b76ee6bf8b1b6ff46e5a9c9cac)
+
+**Album:** Gotsta Get Paid
+
+📅 2026-06-30 13:47:06
+
+
+# **Smack A Bitch** / Rico Nasty
+
+![Foto del album: Nightmare Vacation](https://i.scdn.co/image/ab67616d00001e027cfcfe79c18ab88f4c10d09e)
+
+**Album:** Nightmare Vacation
+
+📅 2026-06-30 13:47:06
+
+
+# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
+
+![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02188924766d218d369d778af2)
+
+**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
+
+📅 2026-06-30 10:26:39
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-06-30 10:20:58
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-06-29 23:23:22
+
+
 # **DLM** / James Blake
 
 ![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
@@ -137,57 +191,3 @@ Nombre: **lotario1999**
 **Album:** Overgrown
 
 📅 2026-06-26 21:09:08
-
-
-# **Magnificent (She Says)** / Elbow
-
-![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
-
-**Album:** Little Fictions
-
-📅 2026-06-26 17:07:56
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-06-26 15:41:59
-
-
-# **Forbidden Love** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-26 15:26:15
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-26 13:17:57
-
-
-# **Godspeed** / James Blake
-
-![Foto del album: Godspeed](https://i.scdn.co/image/ab67616d00001e02c7fdf13f4d55b4f0f0c6d1a6)
-
-**Album:** Godspeed
-
-📅 2026-06-26 13:12:58
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-26 10:41:29
