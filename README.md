@@ -13,6 +13,141 @@ Nombre: **lotario1999**
 
 
 
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-07-02 20:21:08
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2026-07-02 20:16:59
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-07-02 15:28:17
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-07-02 15:23:01
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-07-02 15:18:58
+
+
+# **Pillow Of Your Bones** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-07-02 15:15:02
+
+
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-07-02 15:10:34
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-07-02 15:07:11
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-07-02 15:03:26
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
+
+**Album:** 19
+
+📅 2026-07-02 14:59:16
+
+
+# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
+
+![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02662f1828242ffe6d08ba83c7)
+
+**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
+
+📅 2026-07-02 14:55:47
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-07-02 14:49:20
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-07-02 14:36:00
+
+
+# **DLM** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-07-02 14:32:17
+
+
+# **Forbidden Love** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-07-02 14:32:11
+
+
 # **Retrograde** / James Blake
 
 ![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
@@ -33,7 +168,7 @@ Nombre: **lotario1999**
 
 # **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
 
-![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02188924766d218d369d778af2)
+![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02662f1828242ffe6d08ba83c7)
 
 **Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
 
@@ -56,138 +191,3 @@ Nombre: **lotario1999**
 **Album:** Nightmare Vacation
 
 📅 2026-07-01 11:59:06
-
-
-# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
-
-![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02188924766d218d369d778af2)
-
-**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
-
-📅 2026-06-30 13:51:03
-
-
-# **Gotsta Get Paid** / Rico Nasty
-
-![Foto del album: Gotsta Get Paid](https://i.scdn.co/image/ab6742d3000053b76ee6bf8b1b6ff46e5a9c9cac)
-
-**Album:** Gotsta Get Paid
-
-📅 2026-06-30 13:47:06
-
-
-# **Smack A Bitch** / Rico Nasty
-
-![Foto del album: Nightmare Vacation](https://i.scdn.co/image/ab67616d00001e027cfcfe79c18ab88f4c10d09e)
-
-**Album:** Nightmare Vacation
-
-📅 2026-06-30 13:47:06
-
-
-# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
-
-![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02188924766d218d369d778af2)
-
-**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
-
-📅 2026-06-30 10:26:39
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-30 10:20:58
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-29 23:23:22
-
-
-# **DLM** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-28 19:26:53
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-28 16:55:41
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-28 16:51:26
-
-
-# **Crazy For You** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-28 16:28:48
-
-
-# **Cold Shoulder** / Adele
-
-![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
-
-**Album:** 19
-
-📅 2026-06-28 16:25:20
-
-
-# **Buttons and Zips** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-06-28 16:17:11
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-28 11:12:48
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-06-28 11:07:40
-
-
-# **Forbidden Love** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-06-27 22:48:41
