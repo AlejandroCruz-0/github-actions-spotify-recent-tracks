@@ -13,6 +13,69 @@ Nombre: **lotario1999**
 
 
 
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-07-03 21:44:07
+
+
+# **Out Of Sight** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-07-03 21:39:07
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-07-03 11:58:50
+
+
+# **Retrograde** / James Blake
+
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
+
+**Album:** Overgrown
+
+📅 2026-07-03 11:16:10
+
+
+# **TEETHSUCKER (YEA3x)** / Rico Nasty
+
+![Foto del album: LETHAL](https://i.scdn.co/image/ab67616d00001e02ce70157f34433edb1e080be3)
+
+**Album:** LETHAL
+
+📅 2026-07-03 11:12:17
+
+
+# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
+
+![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02662f1828242ffe6d08ba83c7)
+
+**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
+
+📅 2026-07-03 10:37:08
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2026-07-03 10:33:08
+
+
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
@@ -128,66 +191,3 @@ Nombre: **lotario1999**
 **Album:** Overgrown
 
 📅 2026-07-02 14:36:00
-
-
-# **DLM** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-02 14:32:17
-
-
-# **Forbidden Love** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-07-02 14:32:11
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-01 20:07:26
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-07-01 19:16:18
-
-
-# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
-
-![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02662f1828242ffe6d08ba83c7)
-
-**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
-
-📅 2026-07-01 19:11:19
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-07-01 12:02:50
-
-
-# **Smack A Bitch** / Rico Nasty
-
-![Foto del album: Nightmare Vacation](https://i.scdn.co/image/ab67616d00001e027cfcfe79c18ab88f4c10d09e)
-
-**Album:** Nightmare Vacation
-
-📅 2026-07-01 11:59:06
