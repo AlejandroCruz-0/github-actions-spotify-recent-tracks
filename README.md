@@ -13,175 +13,148 @@ Nombre: **lotario1999**
 
 
 
-# **Prelude in E Minor, BWV 855/I (Arr. Siloti in B Minor)** / Johann Sebastian Bach|Víkingur Ólafsson
+# **Heart-Shaped Box - 2023 Remaster** / Nirvana
 
-![Foto del album: Johann Sebastian Bach](https://i.scdn.co/image/ab67616d00001e02369f6761d1cccba9a34f05cf)
+![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
 
-**Album:** Johann Sebastian Bach
+**Album:** In Utero (30th Anniversary Super Deluxe)
 
-📅 2026-07-09 21:44:28
-
-
-# **rumination** / BAANDIT!
-
-![Foto del album: rumination](https://i.scdn.co/image/ab67616d00001e022ad9cab0d0da6e62ec6b32a1)
-
-**Album:** rumination
-
-📅 2026-07-09 21:41:27
+📅 2026-07-10 22:50:44
 
 
-# **Dirtmouth** / Utagiri|Christopher Larkin
+# **Goodbye Stranger - Remastered 2010** / Supertramp
 
-![Foto del album: Dirtmouth](https://i.scdn.co/image/ab67616d00001e02ac3af2b180f2b0f02464e9b6)
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
-**Album:** Dirtmouth
+**Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-07-09 21:39:30
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-07-09 21:36:58
+📅 2026-07-10 22:45:25
 
 
-# **Mandala** / Skinshape
+# **Use Me** / Bill Withers
 
-![Foto del album: Oracolo](https://i.scdn.co/image/ab67616d00001e02f0c6f3355c889fa95e57506f)
+![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0272641ed682401fc46c18ac12)
 
-**Album:** Oracolo
+**Album:** Still Bill
 
-📅 2026-07-09 21:31:59
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-07-09 15:06:48
+📅 2026-07-10 22:39:33
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e025d5c9f79fe1c08cd09f3f695)
 
-**Album:** No Time For Dreaming
+**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
 
-📅 2026-07-09 09:24:58
+📅 2026-07-10 22:35:45
 
 
-# **Disappearing One** / Chris Cornell
+# **Sería Feliz** / Julieta Venegas
+
+![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+
+**Album:** Bueninvento
+
+📅 2026-07-10 22:33:57
+
+
+# **Scoring** / bôa
+
+![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
+
+**Album:** Twilight
+
+📅 2026-07-10 22:30:32
+
+
+# **The Outsider** / A Perfect Circle
+
+![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+
+**Album:** Thirteenth Step
+
+📅 2026-07-10 22:26:41
+
+
+# **Special - 2018 Remaster** / Garbage
+
+![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+
+**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+
+📅 2026-07-10 22:22:35
+
+
+# **Take The Long Way Home - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-07-10 22:18:51
+
+
+# **That's All I Wanted From You** / Jalen Ngonda
+
+![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+
+**Album:** Come Around and Love Me
+
+📅 2026-07-10 22:13:41
+
+
+# **Not Like Us** / Kendrick Lamar
+
+![Foto del album: Not Like Us](https://i.scdn.co/image/ab67616d00001e021ea0c62b2339cbf493a999ad)
+
+**Album:** Not Like Us
+
+📅 2026-07-10 22:11:04
+
+
+# **Moonchild** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2026-07-09 09:21:35
+📅 2026-07-10 22:05:39
 
 
-# **Mad About You** / Hooverphonic
+# **Main Titles** / Theodore Shapiro
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
 
-**Album:** The Magnificent Tree
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
 
-📅 2026-07-09 09:17:50
-
-
-# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
-
-![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02662f1828242ffe6d08ba83c7)
-
-**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
-
-📅 2026-07-09 09:13:57
+📅 2026-07-10 22:01:37
 
 
-# **Polly** / Nirvana
+# **Changes** / Charles Bradley|The Budos Band
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
 
-**Album:** Nevermind (Remastered)
+**Album:** Changes
 
-📅 2026-07-09 09:09:55
-
-
-# **Lithium** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-08 22:44:15
+📅 2026-07-10 22:00:16
 
 
-# **Breed** / Nirvana
+# **Follow My Way** / Chris Cornell
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** Nevermind (Remastered)
+**Album:** Euphoria Morning
 
-📅 2026-07-08 22:39:58
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-08 22:36:54
+📅 2026-07-10 21:54:33
 
 
-# **In Bloom** / Nirvana
+# **Glory Box** / Portishead
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
 
-**Album:** Nevermind (Remastered)
+**Album:** Dummy
 
-📅 2026-07-08 22:33:15
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-08 22:29:00
-
-
-# **DLM** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-08 22:23:49
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-08 13:44:08
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-08 13:40:24
+📅 2026-07-10 21:49:25
 
 
 # **Losing My Religion** / R.E.M.
@@ -190,4 +163,31 @@ Nombre: **lotario1999**
 
 **Album:** Out Of Time (25th Anniversary Edition)
 
-📅 2026-07-08 13:40:19
+📅 2026-07-10 21:44:16
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-07-10 21:39:47
+
+
+# **You Can't Run From Me (from Cyberpunk: Edgerunners Season 2)** / Rico Nasty
+
+![Foto del album: You Can't Run From Me (from Cyberpunk: Edgerunners 2)](https://i.scdn.co/image/ab67616d00001e02662f1828242ffe6d08ba83c7)
+
+**Album:** You Can't Run From Me (from Cyberpunk: Edgerunners 2)
+
+📅 2026-07-10 21:34:23
+
+
+# **Human Nature** / Madonna
+
+![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
+
+**Album:** Bedtime Stories
+
+📅 2026-07-10 21:29:54
