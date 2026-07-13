@@ -13,49 +13,13 @@ Nombre: **lotario1999**
 
 
 
-# **Lithium** / Nirvana
+# **DLM** / James Blake
 
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
 
-**Album:** Nevermind (Remastered)
+**Album:** Overgrown
 
-📅 2026-07-11 19:38:05
-
-
-# **Breed** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-11 19:33:48
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-11 19:30:44
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-11 19:27:05
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-11 19:22:50
+📅 2026-07-12 20:04:58
 
 
 # **Retrograde** / James Blake
@@ -64,130 +28,166 @@ Nombre: **lotario1999**
 
 **Album:** Overgrown
 
-📅 2026-07-11 19:17:16
+📅 2026-07-12 20:02:32
 
 
-# **Pillow Of Your Bones** / Chris Cornell
+# **About A Girl** / Nirvana
 
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+![Foto del album: Bleach](https://i.scdn.co/image/ab67616d00001e0297507fd22fb690cb9085a864)
 
-**Album:** Euphoria Morning
+**Album:** Bleach
 
-📅 2026-07-11 11:14:36
+📅 2026-07-12 19:56:29
 
 
-# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+# **Where Is My Mind? - 2007 Remaster** / Pixies
 
-![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+![Foto del album: Surfer Rosa (2007 Remaster)](https://i.scdn.co/image/ab67616d00001e028aa545a0ea869940cce358b5)
 
-**Album:** No Time For Dreaming
+**Album:** Surfer Rosa (2007 Remaster)
 
-📅 2026-07-11 11:10:08
+📅 2026-07-12 19:53:40
 
 
-# **Mad About You** / Hooverphonic
+# **Plug in Baby** / Muse
 
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+![Foto del album: Origin of Symmetry](https://i.scdn.co/image/ab67616d00001e025225e9931a558f6d2f541a7d)
 
-**Album:** The Magnificent Tree
+**Album:** Origin of Symmetry
 
-📅 2026-07-11 10:22:39
+📅 2026-07-12 19:49:45
 
 
-# **Your Woman** / White Town
+# **Hells Bells** / AC/DC
 
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
 
-**Album:** Women in Technology
+**Album:** Back In Black
 
-📅 2026-07-11 10:18:49
+📅 2026-07-12 19:46:06
 
 
-# **Heart-Shaped Box - 2023 Remaster** / Nirvana
+# **Go With The Flow** / Queens of the Stone Age
 
-![Foto del album: In Utero (30th Anniversary Super Deluxe)](https://i.scdn.co/image/ab67616d00001e02455143dda05c7961b95b29bf)
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
 
-**Album:** In Utero (30th Anniversary Super Deluxe)
+**Album:** Songs For The Deaf
 
-📅 2026-07-10 22:50:44
+📅 2026-07-12 19:40:53
 
 
-# **Goodbye Stranger - Remastered 2010** / Supertramp
+# **Rhinestone Eyes** / Gorillaz
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Plastic Beach (Deluxe)](https://i.scdn.co/image/ab67616d00001e024960e8b13691e5570337d4d8)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Plastic Beach (Deluxe)
 
-📅 2026-07-10 22:45:25
+📅 2026-07-12 19:37:46
 
 
-# **Use Me** / Bill Withers
+# **Rape Me** / Nirvana
 
-![Foto del album: Still Bill](https://i.scdn.co/image/ab67616d00001e0272641ed682401fc46c18ac12)
+![Foto del album: In Utero (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e02aca059cebc1841277db22d1c)
 
-**Album:** Still Bill
+**Album:** In Utero (Deluxe Edition)
 
-📅 2026-07-10 22:39:33
+📅 2026-07-12 19:34:25
 
 
-# **Enlightenment (Main Title Theme) - from "The White Lotus: Season 3"** / Cristobal Tapia De Veer
+# **Endless, Nameless** / Nirvana
 
-![Foto del album: Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]](https://i.scdn.co/image/ab67616d00001e025d5c9f79fe1c08cd09f3f695)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Enlightenment (Main Title Theme) [from "The White Lotus: Season 3"]
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:35:45
+📅 2026-07-12 19:31:34
 
 
-# **Sería Feliz** / Julieta Venegas
+# **Something In The Way** / Nirvana
 
-![Foto del album: Bueninvento](https://i.scdn.co/image/ab67616d00001e0233a3f661128d181cebac962a)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Bueninvento
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:33:57
+📅 2026-07-12 19:24:51
 
 
-# **Scoring** / bôa
+# **On A Plain** / Nirvana
 
-![Foto del album: Twilight](https://i.scdn.co/image/ab67616d00001e026173e498401502583046f42c)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Twilight
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:30:32
+📅 2026-07-12 19:20:59
 
 
-# **The Outsider** / A Perfect Circle
+# **Stay Away** / Nirvana
 
-![Foto del album: Thirteenth Step](https://i.scdn.co/image/ab67616d00001e029fce7baa218063d99799ce52)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Thirteenth Step
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:26:41
+📅 2026-07-12 19:17:45
 
 
-# **Special - 2018 Remaster** / Garbage
+# **Lounge Act** / Nirvana
 
-![Foto del album: Version 2.0 (20th Anniversary Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e021c332142c228621abbf4da6e)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Version 2.0 (20th Anniversary Deluxe Edition)
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:22:35
+📅 2026-07-12 19:14:13
 
 
-# **Take The Long Way Home - Remastered 2010** / Supertramp
+# **Drain You** / Nirvana
 
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Breakfast In America (Deluxe Edition)
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:18:51
+📅 2026-07-12 19:07:08
 
 
-# **That's All I Wanted From You** / Jalen Ngonda
+# **Territorial Pissings** / Nirvana
 
-![Foto del album: Come Around and Love Me](https://i.scdn.co/image/ab67616d00001e02753a720a9845b697d8a120f6)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Come Around and Love Me
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-10 22:13:41
+📅 2026-07-12 19:03:24
+
+
+# **Polly** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-12 19:01:01
+
+
+# **Lithium** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-12 18:57:53
+
+
+# **Breed** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-12 18:42:46
+
+
+# **Come As You Are** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-12 18:38:28
