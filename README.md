@@ -13,6 +13,114 @@ Nombre: **lotario1999**
 
 
 
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
+
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
+
+**Album:** No Time For Dreaming
+
+📅 2026-07-16 15:13:59
+
+
+# **Disappearing One** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-07-16 15:10:36
+
+
+# **Mad About You** / Hooverphonic
+
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
+
+**Album:** The Magnificent Tree
+
+📅 2026-07-16 15:06:50
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-16 15:03:00
+
+
+# **Black Milk** / Massive Attack|Elizabeth Fraser
+
+![Foto del album: Mezzanine](https://i.scdn.co/image/ab67616d00001e022fcb0a3c7a66e516b11cd26e)
+
+**Album:** Mezzanine
+
+📅 2026-07-16 11:50:44
+
+
+# **Paradise Circus** / Massive Attack|Hope Sandoval
+
+![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
+
+**Album:** Heligoland
+
+📅 2026-07-16 11:44:22
+
+
+# **Firestarter** / The Prodigy
+
+![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+
+**Album:** The Fat of the Land
+
+📅 2026-07-16 11:25:01
+
+
+# **Crazy For You** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
+
+**Album:** 19
+
+📅 2026-07-16 10:47:23
+
+
+# **Cold Shoulder** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
+
+**Album:** 19
+
+📅 2026-07-16 10:43:55
+
+
+# **Chasing Pavements** / Adele
+
+![Foto del album: 19](https://i.scdn.co/image/ab67616d00001e0262e62cf225b72fca8d765168)
+
+**Album:** 19
+
+📅 2026-07-16 10:40:43
+
+
+# **Grounds for Divorce** / Elbow
+
+![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
+
+**Album:** The Seldom Seen Kid
+
+📅 2026-07-16 10:08:43
+
+
+# **Magnificent (She Says)** / Elbow
+
+![Foto del album: Little Fictions](https://i.scdn.co/image/ab67616d00001e0233089911fdfcb1a8c91e5db3)
+
+**Album:** Little Fictions
+
+📅 2026-07-16 10:04:55
+
+
 # **Grounds for Divorce** / Elbow
 
 ![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
@@ -83,111 +191,3 @@ Nombre: **lotario1999**
 **Album:** Euphoria Morning
 
 📅 2026-07-15 15:05:20
-
-
-# **Out Of Sight** / Hooverphonic
-
-![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
-
-**Album:** The Magnificent Tree
-
-📅 2026-07-15 15:01:09
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-15 14:57:04
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-15 13:12:41
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-15 13:02:45
-
-
-# **Human Nature** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-07-15 12:58:21
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-15 12:53:23
-
-
-# **Breakfast In America - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-15 11:48:58
-
-
-# **Goodbye Stranger - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-14 23:51:02
-
-
-# **DLM** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-14 13:21:41
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-14 12:55:38
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-14 11:15:46
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2026-07-14 11:11:55
