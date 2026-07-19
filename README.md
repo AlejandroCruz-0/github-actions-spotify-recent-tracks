@@ -13,6 +13,105 @@ Nombre: **lotario1999**
 
 
 
+# **Moonchild** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-07-18 21:41:24
+
+
+# **Main Titles** / Theodore Shapiro
+
+![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
+
+**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
+
+📅 2026-07-18 21:37:22
+
+
+# **Changes** / Charles Bradley|The Budos Band
+
+![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
+
+**Album:** Changes
+
+📅 2026-07-18 21:36:01
+
+
+# **Follow My Way** / Chris Cornell
+
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
+
+**Album:** Euphoria Morning
+
+📅 2026-07-18 21:30:18
+
+
+# **Glory Box** / Portishead
+
+![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
+
+**Album:** Dummy
+
+📅 2026-07-18 21:25:10
+
+
+# **Losing My Religion** / R.E.M.
+
+![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
+
+**Album:** Out Of Time (25th Anniversary Edition)
+
+📅 2026-07-18 21:20:01
+
+
+# **Oh Darling - Remastered 2010** / Supertramp
+
+![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
+
+**Album:** Breakfast In America (Deluxe Edition)
+
+📅 2026-07-18 21:15:32
+
+
+# **Ritual Spirit** / Massive Attack|Azekel
+
+![Foto del album: Ritual Spirit](https://i.scdn.co/image/ab67616d00001e02379474197c2f811bbb5e19eb)
+
+**Album:** Ritual Spirit
+
+📅 2026-07-18 21:11:22
+
+
+# **Paradise Circus** / Massive Attack|Hope Sandoval
+
+![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
+
+**Album:** Heligoland
+
+📅 2026-07-18 18:08:14
+
+
+# **Oceans & Streams** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2026-07-18 18:02:53
+
+
+# **Things Ain't Like They Used to Be** / The Black Keys
+
+![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+
+**Album:** Attack & Release
+
+📅 2026-07-18 18:02:53
+
+
 # **So He Won't Break** / The Black Keys
 
 ![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
@@ -92,102 +191,3 @@ Nombre: **lotario1999**
 **Album:** Heligoland
 
 📅 2026-07-17 20:49:36
-
-
-# **Polly** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-17 20:24:52
-
-
-# **Lithium** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-17 20:21:58
-
-
-# **Come As You Are** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-17 20:06:01
-
-
-# **In Bloom** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-17 13:03:26
-
-
-# **Smells Like Teen Spirit** / Nirvana
-
-![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
-
-**Album:** Nevermind (Remastered)
-
-📅 2026-07-17 12:59:11
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2026-07-17 12:54:05
-
-
-# **Oh Darling - Remastered 2010** / Supertramp
-
-![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
-
-**Album:** Breakfast In America (Deluxe Edition)
-
-📅 2026-07-17 11:38:47
-
-
-# **I've Got Your Number** / Elbow
-
-![Foto del album: Cast Of Thousands](https://i.scdn.co/image/ab67616d00001e02bc902959e31a0107e23f7b0c)
-
-**Album:** Cast Of Thousands
-
-📅 2026-07-17 11:34:26
-
-
-# **Grounds for Divorce** / Elbow
-
-![Foto del album: The Seldom Seen Kid](https://i.scdn.co/image/ab67616d00001e02967a417ba6b1db017324e8a8)
-
-**Album:** The Seldom Seen Kid
-
-📅 2026-07-17 11:23:59
-
-
-# **Retrograde** / James Blake
-
-![Foto del album: Overgrown](https://i.scdn.co/image/ab67616d00001e02d134dbb0fad78dda23d777ff)
-
-**Album:** Overgrown
-
-📅 2026-07-17 11:20:12
-
-
-# **Forbidden Love** / Madonna
-
-![Foto del album: Bedtime Stories](https://i.scdn.co/image/ab67616d00001e0240cbf5330f808105d7ba9a44)
-
-**Album:** Bedtime Stories
-
-📅 2026-07-17 11:16:23
