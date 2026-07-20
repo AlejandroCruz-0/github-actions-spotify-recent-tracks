@@ -13,76 +13,22 @@ Nombre: **lotario1999**
 
 
 
-# **Moonchild** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-07-18 21:41:24
-
-
-# **Main Titles** / Theodore Shapiro
-
-![Foto del album: Severance: Season 1 (Apple TV+ Original Series Soundtrack)](https://i.scdn.co/image/ab67616d00001e02441bc2ca2f87dd0f7840c7a0)
-
-**Album:** Severance: Season 1 (Apple TV+ Original Series Soundtrack)
-
-📅 2026-07-18 21:37:22
-
-
-# **Changes** / Charles Bradley|The Budos Band
-
-![Foto del album: Changes](https://i.scdn.co/image/ab67616d00001e0275e94963adb0f7f4caeffa5e)
-
-**Album:** Changes
-
-📅 2026-07-18 21:36:01
-
-
-# **Follow My Way** / Chris Cornell
-
-![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
-
-**Album:** Euphoria Morning
-
-📅 2026-07-18 21:30:18
-
-
-# **Glory Box** / Portishead
-
-![Foto del album: Dummy](https://i.scdn.co/image/ab67616d00001e02dc20397b139223620af148f6)
-
-**Album:** Dummy
-
-📅 2026-07-18 21:25:10
-
-
-# **Losing My Religion** / R.E.M.
-
-![Foto del album: Out Of Time (25th Anniversary Edition)](https://i.scdn.co/image/ab67616d00001e02e2dd4e821bcc3f70dc0c8ffd)
-
-**Album:** Out Of Time (25th Anniversary Edition)
-
-📅 2026-07-18 21:20:01
-
-
 # **Oh Darling - Remastered 2010** / Supertramp
 
 ![Foto del album: Breakfast In America (Deluxe Edition)](https://i.scdn.co/image/ab67616d00001e025405ef9e393f5f1e53b4b42e)
 
 **Album:** Breakfast In America (Deluxe Edition)
 
-📅 2026-07-18 21:15:32
+📅 2026-07-19 22:57:05
 
 
-# **Ritual Spirit** / Massive Attack|Azekel
+# **Army Of Me** / Björk
 
-![Foto del album: Ritual Spirit](https://i.scdn.co/image/ab67616d00001e02379474197c2f811bbb5e19eb)
+![Foto del album: Post](https://i.scdn.co/image/ab67616d00001e0203b878ae26aeab059fd94bf0)
 
-**Album:** Ritual Spirit
+**Album:** Post
 
-📅 2026-07-18 21:11:22
+📅 2026-07-19 22:42:47
 
 
 # **Paradise Circus** / Massive Attack|Hope Sandoval
@@ -91,43 +37,25 @@ Nombre: **lotario1999**
 
 **Album:** Heligoland
 
-📅 2026-07-18 18:08:14
+📅 2026-07-19 20:52:30
 
 
-# **Oceans & Streams** / The Black Keys
+# **I'll Keep Coming** / Low Roar
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: 0](https://i.scdn.co/image/ab67616d00001e02ae859022b02dfe42b2c7a04d)
 
-**Album:** Attack & Release
+**Album:** 0
 
-📅 2026-07-18 18:02:53
-
-
-# **Things Ain't Like They Used to Be** / The Black Keys
-
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
-
-**Album:** Attack & Release
-
-📅 2026-07-18 18:02:53
+📅 2026-07-19 20:47:33
 
 
-# **So He Won't Break** / The Black Keys
+# **Come As You Are** / Nirvana
 
-![Foto del album: Attack & Release](https://i.scdn.co/image/ab67616d00001e02b6b648147df2f34d39fc1e14)
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
 
-**Album:** Attack & Release
+**Album:** Nevermind (Remastered)
 
-📅 2026-07-17 22:33:31
-
-
-# **Dead and Gone** / The Black Keys
-
-![Foto del album: El Camino](https://i.scdn.co/image/ab67616d00001e026a21b97de47168df4f0c1993)
-
-**Album:** El Camino
-
-📅 2026-07-17 22:28:10
+📅 2026-07-19 20:47:29
 
 
 # **Will Do** / TV On The Radio
@@ -136,58 +64,130 @@ Nombre: **lotario1999**
 
 **Album:** Nine Types of Light
 
-📅 2026-07-17 22:24:28
+📅 2026-07-19 17:42:10
 
 
-# **Can't Change Me** / Chris Cornell
+# **Hells Bells** / AC/DC
+
+![Foto del album: Back In Black](https://i.scdn.co/image/ab67616d00001e02ff191d7fbdb5a13eaf84132b)
+
+**Album:** Back In Black
+
+📅 2026-07-19 17:38:25
+
+
+# **Immigrant Song - Remaster** / Led Zeppelin
+
+![Foto del album: Led Zeppelin III (Remaster)](https://i.scdn.co/image/ab67616d00001e0290a50cfe99a4c19ff3cbfbdb)
+
+**Album:** Led Zeppelin III (Remaster)
+
+📅 2026-07-19 17:33:11
+
+
+# **Electric Worry** / Clutch
+
+![Foto del album: From Beale Street to Oblivion](https://i.scdn.co/image/ab67616d00001e023a0f3b4a2a7eb4b4adf9a325)
+
+**Album:** From Beale Street to Oblivion
+
+📅 2026-07-19 17:30:45
+
+
+# **Criminal** / Fiona Apple
+
+![Foto del album: Tidal](https://i.scdn.co/image/ab67616d00001e02b254ca0983d65ede8e3d2f7a)
+
+**Album:** Tidal
+
+📅 2026-07-19 17:25:29
+
+
+# **Burning Down the House - Live** / Talking Heads
+
+![Foto del album: Stop Making Sense (Live)](https://i.scdn.co/image/ab67616d00001e02689b2ab688caacbca226fcb8)
+
+**Album:** Stop Making Sense (Live)
+
+📅 2026-07-19 17:19:47
+
+
+# **No One Knows** / Queens of the Stone Age
+
+![Foto del album: Songs For The Deaf](https://i.scdn.co/image/ab67616d00001e029eec33b045d88f87b9b06e67)
+
+**Album:** Songs For The Deaf
+
+📅 2026-07-19 17:15:40
+
+
+# **Two Weeks** / FKA twigs
+
+![Foto del album: LP1](https://i.scdn.co/image/ab67616d00001e0277a39a4e1d5d0f24dac1130a)
+
+**Album:** LP1
+
+📅 2026-07-19 17:11:01
+
+
+# **Nobody Speak** / DJ Shadow|Run The Jewels
+
+![Foto del album: The Mountain Will Fall](https://i.scdn.co/image/ab67616d00001e020b345678ef9735630f459341)
+
+**Album:** The Mountain Will Fall
+
+📅 2026-07-19 17:06:53
+
+
+# **In Bloom** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-19 14:46:15
+
+
+# **Smells Like Teen Spirit** / Nirvana
+
+![Foto del album: Nevermind (Remastered)](https://i.scdn.co/image/ab67616d00001e02fbc71c99f9c1296c56dd51b6)
+
+**Album:** Nevermind (Remastered)
+
+📅 2026-07-19 14:42:00
+
+
+# **Pillow Of Your Bones** / Chris Cornell
 
 ![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
 **Album:** Euphoria Morning
 
-📅 2026-07-17 22:20:43
+📅 2026-07-19 14:36:53
 
 
-# **Firestarter** / The Prodigy
+# **The World (Is Going Up in Flames)** / Charles Bradley|Menahan Street Band
 
-![Foto del album: The Fat of the Land](https://i.scdn.co/image/ab67616d00001e028688e410538bc27972791f4c)
+![Foto del album: No Time For Dreaming](https://i.scdn.co/image/ab67616d00001e024e529fde7d61924b18e26ef5)
 
-**Album:** The Fat of the Land
+**Album:** No Time For Dreaming
 
-📅 2026-07-17 22:17:20
-
-
-# **Cochise** / Audioslave
-
-![Foto del album: Audioslave](https://i.scdn.co/image/ab67616d00001e02a7292b6863258e889b78d787)
-
-**Album:** Audioslave
-
-📅 2026-07-17 22:12:35
+📅 2026-07-19 11:33:58
 
 
-# **I Won't Let You Down** / Curtis Harding
+# **Disappearing One** / Chris Cornell
 
-![Foto del album: If Words Were Flowers](https://i.scdn.co/image/ab67616d00001e02035f697ee8ef8648a3153453)
+![Foto del album: Euphoria Morning](https://i.scdn.co/image/ab67616d00001e02bd74dc1cdeeb5c4b57945cab)
 
-**Album:** If Words Were Flowers
+**Album:** Euphoria Morning
 
-📅 2026-07-17 21:13:24
-
-
-# **Your Woman** / White Town
-
-![Foto del album: Women in Technology](https://i.scdn.co/image/ab67616d00001e020d920d65d4e7c30cedc5eb53)
-
-**Album:** Women in Technology
-
-📅 2026-07-17 20:59:45
+📅 2026-07-19 11:30:36
 
 
-# **Paradise Circus** / Massive Attack|Hope Sandoval
+# **Mad About You** / Hooverphonic
 
-![Foto del album: Heligoland](https://i.scdn.co/image/ab67616d00001e02852aaa233e122f1dbfefcf00)
+![Foto del album: The Magnificent Tree](https://i.scdn.co/image/ab67616d00001e02adc391e06a1ecdc2cb4d193f)
 
-**Album:** Heligoland
+**Album:** The Magnificent Tree
 
-📅 2026-07-17 20:49:36
+📅 2026-07-19 11:24:26
