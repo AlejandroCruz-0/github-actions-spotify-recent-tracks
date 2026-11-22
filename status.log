@@ -3076,3 +3076,5 @@ For more information check: https://httpstatuses.com/400
 For more information check: https://httpstatuses.com/400
 2026-11-21 06:31:22,308 - __main__ - ERROR - Client error '400 Bad Request' for url 'https://accounts.spotify.com/api/token'
 For more information check: https://httpstatuses.com/400
+2026-11-22 05:59:23,724 - __main__ - ERROR - Client error '400 Bad Request' for url 'https://accounts.spotify.com/api/token'
+For more information check: https://httpstatuses.com/400
